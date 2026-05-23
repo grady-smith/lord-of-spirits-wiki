@@ -4,293 +4,293 @@ tags: [lordofspirits]
 ---
 ## The Lord of Spirits - 100th Episode: The Unchanging Faith
 
-**[[Fr. Andrew]] Stephen Damick:** [Listen from 01:06](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:06)
+**[[Fr. Andrew]] Stephen Damick:** [Listen from [01:06](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:06)
 Good evening, giant-killers, dragon-slayers, hunters of the hobgoblin hordes. You are listening to the Lord of Spirits podcast. My co-host, [[Fr. Stephen]] De Young is with me from Lafayette, Louisiana, and I am [[Fr. Andrew]] Stephen Damick, and I'm not in Emmaus. That's right. I am in Chesterton, Duneland, Indiana itself, AKA the poor man's Ohio, Ancient Faith Ministries headquarters. And I am actually in the same room as our very own Matushka Trudy "the Tank" Richter. So if you hear her giggling in the background, that is the tank herself. We discovered the last few days her secret nickname that she had when she was but a callow youth. And we're live. And if you're listening to us live, you can call us at 855-AF-RADIO, that's 855-237-2346, and you could talk to us. And we're going to get to your calls in the second half of the show, but I should warn you that I am going to be the one answering your calls. So if you call, you're not going to hear the melodious voice of Matushka Trudy "the Tank" Richter. Instead, you're going to just go straight to hold, and we're just going to have sheer anarchy. So you better behave here on our 100th episode of the Lord of Spirits podcast.
 
-**[[Fr. Stephen]] De Young:** [Listen from 02:23](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:23)
+**[[Fr. Stephen]] De Young:** [Listen from [02:23](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:23)
 Having descended to the heart of the maelstrom and the belly of the beast, you are now drunk with power.
 
-**[[Fr. Andrew]]:** [Listen from 02:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:28)
+**[[Fr. Andrew]]:** [Listen from [02:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:28)
 That's right. I can do anything. First they were going to put me like out on kind of the factory floor here at AFM HQ. But I'm like, why does Trudy get to be in the soundproof room taking the phone calls and I have to be like in front of some green screen or whatever the heck it is. Oh, Trudy just walked out. I don't know what's going on. I could just start pressing buttons. This would be really fun. She probably does that normally during the show, we just don't even know.
 
-**[[Fr. Stephen]]:** [Listen from 02:54](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:54)
+**[[Fr. Stephen]]:** [Listen from [02:54](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:54)
 Press buttons or walk out?
 
-**[[Fr. Andrew]]:** [Listen from 02:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:55)
+**[[Fr. Andrew]]:** [Listen from [02:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:55)
 Maybe some of both. So, all right, well this 100th episode is sponsored by the [[Orthodox]] Studies Institute at St. [[Constantine]] College, which exists to advance the study and application of [[Orthodox]] Christianity in faithfulness to Holy Tradition. OSI is currently offering a live online course on the [[book of Enoch]], taught by you, [[Fr. Stephen]] De Young. The course is underway, but by popular demand, OSI has reopened registration. You can catch up on the recordings of earlier classes and participate in live classes going forward.
 
-**[[Fr. Stephen]]:** [Listen from 03:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:28)
+**[[Fr. Stephen]]:** [Listen from [03:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:28)
 Live class at this point.
 
-**[[Fr. Andrew]]:** [Listen from 03:29](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:29)
+**[[Fr. Andrew]]:** [Listen from [03:29](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:29)
 Oh, there you go. To learn more, go to orthodoxstudies.org/los. Registration is now open for OSI's second course, which is Holy Women of Byzantium, which begins in October. You can go to orthodoxstudies.org/los to learn more. This is indeed our 100th episode. I was going to say 100th anniversary episode. That's right, kids, we've been doing this since 1922.
 
-**[[Fr. Stephen]]:** [Listen from 03:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:55)
+**[[Fr. Stephen]]:** [Listen from [03:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:55)
 I know it feels like an eternity, but that's because you're doing it with me.
 
-**[[Fr. Andrew]]:** [Listen from 03:58](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:58)
+**[[Fr. Andrew]]:** [Listen from [03:58](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:58)
 It kind of does. But it is our fourth anniversary episode. So over 99 episodes, up until now when we just started talking, we have droned on for, and I checked this, I added it all up by listening to it once again and with a stopwatch, 270 hours, 57 minutes, and 21 seconds. That makes the average LOS episode about two hours and 45 minutes long. Probably would have been longer, but a lot of our earlier ones were...
 
-**[[Fr. Stephen]]:** [Listen from 04:31](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:31)
+**[[Fr. Stephen]]:** [Listen from [04:31](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:31)
 Yeah, because this was supposed to be a one-hour show.
 
-**[[Fr. Andrew]]:** [Listen from 04:33](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:33)
+**[[Fr. Andrew]]:** [Listen from [04:33](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:33)
 I know, remember that? We're like, yeah, it'll be like 45 minutes to an hour.
 
-**[[Fr. Stephen]]:** [Listen from 04:37](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:37)
+**[[Fr. Stephen]]:** [Listen from [04:37](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:37)
 Hahaha.
 
-**[[Fr. Andrew]]:** [Listen from 04:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:41)
+**[[Fr. Andrew]]:** [Listen from [04:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:41)
 Fooled y'all. So, yes, so this is our 100th anniversary episode. We're in a celebratory mood, as [[Fr. Stephen]] has said. I do feel drunk with power here being in AFM HQ. But we are going to actually talk about real stuff.
 
 ### Introduction
 
-**[[Fr. Andrew]]:** [Listen from 04:57](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:57)
+**[[Fr. Andrew]]:** [Listen from [04:57](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:57)
 The word "unchanging" is a word that's often used to describe [[Orthodox]] Christianity. The Synodikon of Orthodoxy even says that [[Orthodox]] Christianity is the faith which has established the universe, a bold statement. Yet, if you look at the evidence for [[Christian]] worship many centuries ago, it is not exactly the same as [[Orthodox]] worship here in the 21st century. And clearly, it's very different from what we see in [[Genesis]] chapter one. So what does unchanging actually mean? And is there acceptable change? And is this the episode where we finally completely succumb to the pan-heresy of ecumenism?
 
-**[[Fr. Stephen]]:** [Listen from 05:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:41)
+**[[Fr. Stephen]]:** [Listen from [05:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:41)
 Well, I think you already did.
 
-**[[Fr. Andrew]]:** [Listen from 05:43](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:43)
+**[[Fr. Andrew]]:** [Listen from [05:43](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:43)
 That's what people say.
 
-**[[Fr. Stephen]]:** [Listen from 05:44](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:44)
+**[[Fr. Stephen]]:** [Listen from [05:44](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:44)
 On one of your other programs.
 
-**[[Fr. Andrew]]:** [Listen from 05:46](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:46)
+**[[Fr. Andrew]]:** [Listen from [05:46](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:46)
 That's what people say.
 
-**[[Fr. Stephen]]:** [Listen from 05:48](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:48)
+**[[Fr. Stephen]]:** [Listen from [05:48](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:48)
 But I, I will not, because...
 
-**[[Fr. Andrew]]:** [Listen from 05:51](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:51)
+**[[Fr. Andrew]]:** [Listen from [05:51](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:51)
 Well, thank you. Thank you, Father.
 
-**[[Fr. Stephen]]:** [Listen from 05:52](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:52)
+**[[Fr. Stephen]]:** [Listen from [05:52](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:52)
 It's it's it's not because I am some stalwart of the [[Orthodox]] faith. It's just I'm petty and I dislike people who are different than me.
 
-**[[Fr. Andrew]]:** [Listen from 06:01](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:01)
+**[[Fr. Andrew]]:** [Listen from [06:01](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:01)
 Yeah.
 
 ### Main Topic: Change and Continuity in Worship
 
-**[[Fr. Stephen]]:** [Listen from 08:40](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=08:40)
+**[[Fr. Stephen]]:** [Listen from [08:40](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=08:40)
 So what we're actually talking about is not related to the Lin Kuei or any other magic-wielding ninja forces/cybernetic conspiracies. But we're kind of in a way picking up on what we talked about last time where last time we went way back into the long ago time.
 
-**[[Fr. Andrew]]:** [Listen from 09:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:10)
+**[[Fr. Andrew]]:** [Listen from [09:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:10)
 Yes.
 
-**[[Fr. Stephen]]:** [Listen from 09:11](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:11)
+**[[Fr. Stephen]]:** [Listen from [09:11](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:11)
 Even before the distant year 2000. Even before 2000 BC, back to the Stone Age. And we really were talking about the continuity last time, the continuity of the worship of the true [[God]], right, in all in all generations. And so tonight now, we're going to be talking about the fact that, okay, yes, you talked about that continuity, right? But within that, we also made the point of various distinctions, right, between for example, different religious forms.
 
-**[[Fr. Andrew]]:** [Listen from 09:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:55)
+**[[Fr. Andrew]]:** [Listen from [09:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:55)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 09:56](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:56)
+**[[Fr. Stephen]]:** [Listen from [09:56](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=09:56)
 Like between paganism and Judaism and Christianity. So there's not just continuity, there's also discontinuity. And this begs the question, how much change or variation does it take within continuity to make a discontinuity?
 
-**[[Fr. Andrew]]:** [Listen from 10:20](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=10:20)
+**[[Fr. Andrew]]:** [Listen from [10:20](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=10:20)
 Yeah, because we're not saying that all religions are the same, man. Right. So we weren't saying that.
 
-**[[Fr. Stephen]]:** [Listen from 10:59](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=10:59)
+**[[Fr. Stephen]]:** [Listen from [10:59](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=10:59)
 We clearly weren't trying to make this perennialist point even while we were stressing the idea of continuity. So now we're going to talk about where the discontinuity comes in and where that break is, right? So last time, just to sort of recap a little, because every episode is someone's first...
 
-**[[Fr. Andrew]]:** [Listen from 11:21](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:21)
+**[[Fr. Andrew]]:** [Listen from [11:21](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:21)
 Yeah, I just feel bad for the people for whom this is their first. If this is your first episode, go ahead and call in. We'd like to hear from you and and just call in. We'd like to walk with you in your confusion.
 
-**[[Fr. Stephen]]:** [Listen from 12:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:00)
+**[[Fr. Stephen]]:** [Listen from [12:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:00)
 So we'll recap it forwards.
 
-**[[Fr. Andrew]]:** [Listen from 12:03](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:03)
+**[[Fr. Andrew]]:** [Listen from [12:03](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:03)
 That's nice.
 
-**[[Fr. Stephen]]:** [Listen from 12:14](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:14)
+**[[Fr. Stephen]]:** [Listen from [12:14](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:14)
 So we started out talking about the very early, talking about humans in hunter-gatherer societies having maintained sort of a conception of the one [[God]] who created everything. Although even within that, you start to see some drift in that that one [[God]] starts to become a sky [[God]]. And once you start getting a sky [[God]], then you're on your way...
 
-**[[Fr. Andrew]]:** [Listen from 12:44](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:44)
+**[[Fr. Andrew]]:** [Listen from [12:44](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:44)
 Is that a sky daddy?
 
-**[[Fr. Stephen]]:** [Listen from 12:45](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:45)
+**[[Fr. Stephen]]:** [Listen from [12:45](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=12:45)
 Yeah, yeah, exactly. The flying spaghetti monster. But once you have a [[god]] that you associate particularly a sky [[god]]. So there's already drift happening, but we don't have what would later come to be called paganism yet. And we talked about how paganism as such, the kind of paganism that we find being pretty ubiquitous in the ancient world, you find beginning and growing out of the Neolithic revolution as people move from hunter-gatherer to agrarian. They start domesticating plants and animals. They start living in one place, growing food. This is where you begin to see first, you see the sort of sky father, earth mother kind of paradigm emerge, and then as life in settlements starts, you start seeing gods of this, that, and the other. You then you start to see sacrifices happening in distinct sacred places, right, rather than people stopping and building altars as they travel.
 
-**[[Fr. Andrew]]:** [Listen from 14:15](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=14:15)
+**[[Fr. Andrew]]:** [Listen from [14:15](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=14:15)
 Yeah, there's like shrines.
 
-**[[Fr. Stephen]]:** [Listen from 14:18](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=14:18)
+**[[Fr. Stephen]]:** [Listen from [14:18](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=14:18)
 Right, that people take pilgrimages to and then become the sites of settlements, permanent settlements. You have still within it, you have the phenomenon of nomadism and people who are living nomadically still when you look at their religion, it's still closer to those earlier roots, right, which of course we as Christians believe is at least closer to the truth. And we talked about how there's also a thread going through here of people who are worshipping the true [[God]], right? And we see that spelled out not just in terms of from [[Moses]] on, but even in [[Genesis]], and not just [[Abraham]]. [[Abraham]] encounters [[Melchizedek]], who is someone living in a pagan society, but who is still worshipping the true [[God]]. And then we talked about the shifts in the mid-1st millennium BC that's referred to as the Axial Age, these sort of shifts that happen really across the world. Shifts that happen both within paganism from sort of the de rigueur paganism of the day to paganisms that are in various ways more refined.
 
-**[[Fr. Andrew]]:** [Listen from 15:46](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=15:46)
+**[[Fr. Andrew]]:** [Listen from [15:46](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=15:46)
 Yeah, I I think like the way that I I kind of works out in my head is it's sort of intellectualizing on some level. You know, you start getting doctrines and texts and this kind of thing to express, as you said, more refined, to express a more kind of verbal, I think, form of of religion.
 
-**[[Fr. Stephen]]:** [Listen from 16:08](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=16:08)
+**[[Fr. Stephen]]:** [Listen from [16:08](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=16:08)
 Right, because there is that move to a focus on texts, a more intense focus on texts, a rise in literacy rates. That happened not only within paganism, but as we talked about, that happened within Judaism. And that's part of what produces what we call [[Second Temple]] Judaism with the [[synagogue]] system, with a renewed focus on the text, particularly of the [[Torah]], but then of the other Hebrew scriptures and then ultimately is continued into Christianity. So last time, right, and we're going to... as it our want, we went backwards last time. We sort of worked our way back to the Stone Age.
 
-**[[Fr. Stephen]]:** [Listen from 17:40](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=17:40)
+**[[Fr. Stephen]]:** [Listen from [17:40](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=17:40)
 We want to focus in a little bit on those shifts happening within Judaism. The way we see what we were talking about last time. Last time we were talking mainly about the pagan world with broad strokes. Now we're going to focus in on how we see this reflected especially in the scriptures but also within Israelite religion, Judaism and Christianity.
 
-**[[Fr. Andrew]]:** [Listen from 18:04](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=18:04)
+**[[Fr. Andrew]]:** [Listen from [18:04](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=18:04)
 Okie doke.
 
-**[[Fr. Stephen]]:** [Listen from 21:50](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:50)
+**[[Fr. Stephen]]:** [Listen from [21:50](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:50)
 The first of these shifts that we see reflected in scripture is in [[Genesis]] chapter 4 verse 26. So we're not starting in [[Genesis]] 1:1 this time, but close, couple pages. And that's in one of, that's in the genealogy of Seth, one of the genealogies there in [[Genesis]] 4. Everybody's favorite thing in the Bible. But there's this comment about Seth's son Enosh. Right? So this is, as presented in the genealogy, Adam's grandson.
 
-**[[Fr. Andrew]]:** [Listen from 22:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:28)
+**[[Fr. Andrew]]:** [Listen from [22:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:28)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 22:30](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:30)
+**[[Fr. Stephen]]:** [Listen from [22:30](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:30)
 It says Seth's son Enosh, not [[Enoch]], Enosh. [[Enoch]] comes later. And it says that in his day, people began to call upon the name of [[Yahweh]].
 
-**[[Fr. Andrew]]:** [Listen from 22:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:41)
+**[[Fr. Andrew]]:** [Listen from [22:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:41)
 Yeah, which on its face seems kind of weird. Like, wait a minute, wasn't Adam talking to him? Wasn't Seth talking to him? Wasn't Abel talking to him?
 
-**[[Fr. Stephen]]:** [Listen from 22:51](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:51)
+**[[Fr. Stephen]]:** [Listen from [22:51](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:51)
 Yes, yeah. So, but this is reflecting a shift. And calling upon the name of [[Yahweh]], or as it's usually in English Bibles, calling upon the name of the Lord.
 
-**[[Fr. Andrew]]:** [Listen from 23:02](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:02)
+**[[Fr. Andrew]]:** [Listen from [23:02](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:02)
 Of the Lord, yeah, but it's...
 
-**[[Fr. Stephen]]:** [Listen from 23:03](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:03)
+**[[Fr. Stephen]]:** [Listen from [23:03](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:03)
 Always refers to worship. Right. This is, you know, over and over again in [[Genesis]], in the patriarchal narratives, you know, he built an [[altar]] and there he called upon the name of the Lord. Right. So we could translate this meaningfully that this is when people started to worship [[Yahweh]], which again, as Father Andrew said...
 
-**[[Fr. Andrew]]:** [Listen from 23:37](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:37)
+**[[Fr. Andrew]]:** [Listen from [23:37](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:37)
 They weren't doing that before?
 
-**[[Fr. Stephen]]:** [Listen from 23:39](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:39)
+**[[Fr. Stephen]]:** [Listen from [23:39](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:39)
 Right. We know that Abel at the very least.
 
-**[[Fr. Andrew]]:** [Listen from 23:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:41)
+**[[Fr. Andrew]]:** [Listen from [23:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:41)
 We know that Abel at the very least was doing it.
 
-**[[Fr. Stephen]]:** [Listen from 23:43](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:43)
+**[[Fr. Stephen]]:** [Listen from [23:43](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:43)
 Offering sacrifices.
 
-**[[Fr. Andrew]]:** [Listen from 23:44](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:44)
+**[[Fr. Andrew]]:** [Listen from [23:44](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:44)
 That's right.
 
-**[[Fr. Stephen]]:** [Listen from 23:45](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:45)
+**[[Fr. Stephen]]:** [Listen from [23:45](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:45)
 Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 23:45](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:45)
+**[[Fr. Andrew]]:** [Listen from [23:45](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:45)
 Right. So it seems strange that it says, and then they began to call upon the name of [[Yahweh]].
 
-**[[Fr. Stephen]]:** [Listen from 23:51](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:51)
+**[[Fr. Stephen]]:** [Listen from [23:51](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:51)
 Right. What is it that began exactly? So what this is talking about is a shift that happens as humanity is multiplying on the earth. And once you have humanity multiplying and spreading out, right, then you have the beginning of religion. Before this, to throw some of our friends a bone, it was a relationship, not a religion. But from Enosh on, it's a religion, not a relationship. Because it's, number one, it's not direct. And number two, right, we're not talking about just there's one big family on earth and the head of that family is leading it in the worship of [[God]]. We're talking about lots of families, they're spreading out, right? Therefore, you have individual heads of families offering sacrifices in different places. But you also have, when you go over to the genealogy of Cain, there are other names being called upon. There are other things starting to be worshipped in the city that Cain built. Over there in Cainland. And so there is now, we can now talk about religion meaningfully once we get to the generation of of Enosh. That's what this is saying. There are people who are worshipping [[Yahweh]], the true [[God]]. There are other people out there worshipping other things in different places. And so we see this pattern that we referred to last time of sort of earlier pre-settled religion being preserving an earlier stage of religion. Right. So [[Abraham]] is living in an idolatrous city.
 
-**[[Fr. Andrew]]:** [Listen from 26:16](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:16)
+**[[Fr. Andrew]]:** [Listen from [26:16](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:16)
 Where they've got temples and, you know, all that going on.
 
-**[[Fr. Stephen]]:** [Listen from 26:21](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:21)
+**[[Fr. Stephen]]:** [Listen from [26:21](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:21)
 Right, you got paganism running wild. We're well post-Neolithic revolution here by millennia. But notice the situation with [[Abraham]], [[God]] comes and appears to [[Abraham]] in person.
 
-**[[Fr. Andrew]]:** [Listen from 26:37](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:37)
+**[[Fr. Andrew]]:** [Listen from [26:37](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:37)
 Yeah, which presumably... I mean, we don't get any records, I should say, of that happening...
 
-**[[Fr. Stephen]]:** [Listen from 26:54](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:54)
+**[[Fr. Stephen]]:** [Listen from [26:54](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:54)
 No, that's [[Abraham]] and then [[Moses]].
 
-**[[Fr. Andrew]]:** [Listen from 26:58](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:58)
+**[[Fr. Andrew]]:** [Listen from [26:58](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=26:58)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 27:07](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:07)
+**[[Fr. Stephen]]:** [Listen from [27:07](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:07)
 He's called to this idolatrous city and is called to leave that city and return to living essentially as a nomad. Not only when as he spends years traversing the known world and the Fertile Crescent to get to [[Canaan]], but then even once he's in [[Canaan]], he's not... he doesn't go and move to a city. Lot does, and that goes badly, but [[Abraham]] doesn't move into a city. [[Abraham]] continues to live nomadically on the land and move from place to place.
 
-**[[Fr. Andrew]]:** [Listen from 27:36](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:36)
+**[[Fr. Andrew]]:** [Listen from [27:36](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:36)
 And and as we've said before, like this is one of the themes that runs through especially the Old Testament is this idea that the, you know, putting down roots and building cities is less than ideal. It's not the the paradisaical life that was given to Adam and Eve.
 
-**[[Fr. Stephen]]:** [Listen from 27:57](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:57)
+**[[Fr. Stephen]]:** [Listen from [27:57](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:57)
 It may not be bad in and of itself, but it's dangerous.
 
-**[[Fr. Andrew]]:** [Listen from 28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:00)
+**[[Fr. Andrew]]:** [Listen from [28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:00)
 Yeah, yeah. Most cities, more problems.
 
-**[[Fr. Stephen]]:** [Listen from 28:04](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:04)
+**[[Fr. Stephen]]:** [Listen from [28:04](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:04)
 Yeah. Yeah, you go there and big city women try and vamp you.
 
-**[[Fr. Stephen]]:** [Listen from 28:35](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:35)
+**[[Fr. Stephen]]:** [Listen from [28:35](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:35)
 So we see, we see this pattern then in [[Genesis]] that the places where the worship of the true [[God]] is preserved, right, is among the Abrahamites. Like the Midianites, like Jethro, [[Moses]]' father-in-law, has preserved the worship of the true [[God]], right? And some of the Edomites have. But not all of the Abrahamites even, because very quickly we see as we go through the [[Torah]] that the Moabites, once they've come and settled in the land that [[God]] brought them to according to [[Deuteronomy]] 2, the Moabites start worshipping Chemosh, the moon [[god]], and other pagan gods. But as we mentioned before, though, right? So on the one hand, right, you see the Moabites once they settle. And this is of course the big warning in [[Deuteronomy]] to the Israelites is that [[God]] telling them, not really warning them, he's kind of just telling them what's going to happen, that once they come into the land and they settle down and they plant their crops and they plant their vineyards and they're living in their cities, that they'll forget about him. They'll [[fall]] into the paganism, right, of the world. But even that is not a given because as we mentioned before, [[Melchizedek]] is the king of a city, the city of Jerusalem.
 
-**[[Fr. Andrew]]:** [Listen from 31:20](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:20)
+**[[Fr. Andrew]]:** [Listen from [31:20](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:20)
 And he's keeping it real.
 
-**[[Fr. Stephen]]:** [Listen from 31:23](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:23)
+**[[Fr. Stephen]]:** [Listen from [31:23](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:23)
 And he still is worshipping the true [[God]]. He's still worshipping [[Yahweh]] when [[Abraham]] gets there, right? So it's not a foregone conclusion that city people will get in trouble, but it's much more dangerous, right? It's more difficult. There's a tendency.
 
-**[[Fr. Stephen]]:** [Listen from 33:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:10)
+**[[Fr. Stephen]]:** [Listen from [33:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:10)
 That the axial age, there is this shift that happens also that sort of produces [[Second Temple]] Judaism. that, we see a shift from what's called ancient Israelite religion after the exile, the return to the land, that's a product of things that happened in the exile, product of the shift in status.
 
-**[[Fr. Andrew]]:** [Listen from 33:36](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:36)
+**[[Fr. Andrew]]:** [Listen from [33:36](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:36)
 Yep. Big focus on the [[Torah]], like Josiah, you know, all that stuff, everybody.
 
-**[[Fr. Stephen]]:** [Listen from 34:11](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:11)
+**[[Fr. Stephen]]:** [Listen from [34:11](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:11)
 And this then, this literacy emphasis then also produces as an emphasis on putting things in writing. So this is when you get this explosion of [[Second Temple]] Jewish literature, which is recording what was previously oral tradition into these various texts, these various documents around, sort of around and surrounding the Hebrew Scriptures. All this starts happening in the Axial Age, but this is a shift and a trend that affects everybody everywhere.
 
-**[[Fr. Andrew]]:** [Listen from 34:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:41)
+**[[Fr. Andrew]]:** [Listen from [34:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:41)
 Yeah, right, as we said in great detail last time.
 
-**[[Fr. Stephen]]:** [Listen from 35:15](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:15)
+**[[Fr. Stephen]]:** [Listen from [35:15](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:15)
 So to focus in a little bit, on how this is reflected in scripture is in [[Genesis]] chapter 4 verse 26.
 
 ### Clip 1: Guardian [[Angels]] and Spiritual Warfare
-[Listen from 35:39](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:39)
+[Listen from [35:39](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:39)
 
 **[[Fr. Andrew]]:**
 So how do you interact more with your angel? Well, number one, you know, a lot of prayer books, for instance, will have a prayer in there called your the prayer to your [[guardian angel]]. If you don't have it in your prayer book, then you could probably find an [[Orthodox]] prayer to the angel online somewhere. I'm sure that you can find something. And and and that's something that I would incorporate into your prayer every day. But, you know, one of the things that actually I, I don't know why I started doing this, not that long ago. I'm kind of ashamed to admit it. within just the past couple of years, as I'm going to sleep, first, of course, you know, we pray to our Lord [[Jesus]] [[Christ]] to to preserve us and to to save us, you know, of course, because we could die in our sleep. But also, the next thing that I do then is I specifically say, Guardian of my soul and body, protect for me from all assaults of the evil one this night. And then I also add, because I'm a husband and a father, protect my wife and my children, and I name them in that prayer as I'm going to sleep because, you know, you go to sleep, that's a kind of a vulnerable position to be in. And you want the guards up and doing their task in the night while you're asleep. And, you know, that is one of the things that we know that the [[angels]] do. That's not all that they're about for sure. We're going to be talking a lot more on this show about what [[angels]] are about and and what they do. One of the things that they do, of course, is to guard us. They they keep us from harm, not just physical harm, but also spiritual harm. Like there is a war going on. There is a war going on. It is a spiritual reality and we're participating in it. We're either participating in the works of [[God]] and becoming more like him, or we're participating in the works of the [[devil]] and becoming more like him. Like the the biggest aha moments in my conversations with Father Stephen was when he said, "You know that there's there's basically a thing that's the opposite of [[theosis]]?" I said, "What is that? Demonosis?" And he's like, "Well, I don't know if there's a word for it specifically, but but there is. Like you participate in what [[God]] is doing and you become like him. But if you participate in what the dark [[powers]] are doing, you become like them." Right? So it's you're always heading in one direction or the other. You don't get to stand still. How do we participate in the reality of our [[angels]]? I mean, prayer is the biggest thing, but also just have that sense. I think especially when you're going to sleep is a good one, but also, you know, when you wake up in the morning to say, "Help me today, be with me." It we're not talking about some kind of flim-flammy, "I hope [[angels]] are watching over you." Like that's okay to say that, right? But that's kind of not all that they're really about. These are [[God]]'s armies, his created beings. They're his government in a very real sense. And and part of our task is to become like them. The Lord said that the sons of the [[resurrection]], this is in [[Luke]]'s [[gospel]], sons of the [[resurrection]] become like sons of [[God]] and equal to the [[angels]]. So we we we take on their roles. We do the things that they do. Your your your [[guardian angel]], your your patron [[saint]], the one you're named after, the one who's assigned to your parish is very concerned with the place that your church is in. The beginning is just to acknowledge that like they're here. My church is just named after. Here in Emmaus, our church is named for the [[Apostle Paul]]. It's not just named after the [[Apostle Paul]]. He's here and this place is important to him because we asked [[God]] to assign him here and so we believe that that happened.
 
 ### Continued Discussion on Change and Continuity
 
-**[[Fr. Stephen]]:** [Listen from 47:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=47:41)
+**[[Fr. Stephen]]:** [Listen from [47:41](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=47:41)
 So there's this relationship then between [[Second Temple]] Judaism and Christianity that we just talked about, this relationship of continuity. Right? But within that continuity, there are things that change, like there's a New Testament now. Right? So we're going to use this as sort of a paradigm for understanding how you can have changes and and shifts of different sorts without breaking continuity. So to start out tonight, we want to focus in a little bit on what are the important points of continuity that we're talking about? Where are the places where we need to have a kind of continuity in order to say that there is an overarching continuity despite other things maybe shifting, changing, varying somewhat?
 
-**[[Fr. Andrew]]:** [Listen from 52:05](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:05)
+**[[Fr. Andrew]]:** [Listen from [52:05](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:05)
 Yeah, and and how can you tell when something is in discontinuity?
 
-**[[Fr. Stephen]]:** [Listen from 52:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:10)
+**[[Fr. Stephen]]:** [Listen from [52:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:10)
 Right. And if one of these things is broken, now we're talking about something else. So the first, the first one of these shifts that we see reflected in scripture is in [[Genesis]] chapter 4 verse 26.
 
-**[[Fr. Stephen]]:** [Listen from 53:30](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=53:30)
+**[[Fr. Stephen]]:** [Listen from [53:30](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=53:30)
 There is an idea that I know is going to sound strange and and foreign, I know, to some people, some [[Christian]] people. That is the idea of primary and secondary scriptures. And by that, I'm not referring to things that are deuterocanonical. Right. I think the reason people aren't used to thinking this way is because of the deep impact that Sola Scriptura has made on the American culture and, you know, northern European culture more broadly where it's spread throughout the world, where scriptures are scriptures and everything that's not scripture is not scripture, and that's it. Right. But this this isn't the way scriptures have functioned in the history of Judaism and Christianity. Right. There are primary and secondary scriptures within the canon. So it's pretty hard to argue and be taken seriously by anyone that the [[Torah]] doesn't occupy a special place within Judaism. all the way through, right? That it is in some way the primary scripture and then the other, the rest of the Hebrew scriptures are sort of secondary to it because they're all in different ways reflecting on the contents of the [[Torah]]. Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 55:07](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:07)
+**[[Fr. Andrew]]:** [Listen from [55:07](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:07)
 Commenting, applying, regurgitating.
 
-**[[Fr. Stephen]]:** [Listen from 55:12](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:12)
+**[[Fr. Stephen]]:** [Listen from [55:12](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:12)
 Right. Seeing history through the lens of it or applying it or interpreting it. Right. And we have built into our liturgical forms a similar relationship within the New Testament.
 
-**[[Fr. Andrew]]:** [Listen from 55:32](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:32)
+**[[Fr. Andrew]]:** [Listen from [55:32](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:32)
 Oh, sure. I mean, just just look at the, like set the content aside, just look at the way the Gospels are treated in the services and look at the way readings from the Acts and the epistles are treated in the services.
 
-**[[Fr. Stephen]]:** [Listen from 55:49](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:49)
+**[[Fr. Stephen]]:** [Listen from [55:49](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:49)
 Right, it's not the same. It's very obvious, right? Like if someone walked in, knew nothing about Christianity, and they heard the one reading where someone just gets up and does it, and generally in the [[Orthodox]] Church, someone who's not even [[Orthodox]] can do the [[epistle]] reading.
 
-**[[Fr. Stephen]]:** [Listen from 58:14](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=58:14)
+**[[Fr. Stephen]]:** [Listen from [58:14](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=58:14)
 Those texts that are constitutive of the community, right? That they're how [[St. Paul]]'s epistles are how those early [[Christian]] communities came to be organized in terms of their leadership, in terms of their worship, in terms of their way of life. All of these things, right, are being organized into through these texts. So this is one category of continuity. Right. Are we using the same texts? This is why it's so important that you don't throw out the Old Testament. Because if you do throw out the Old Testament, you're now a new religion. Congratulations. You're a Marcionite heretic. You're not Judaism or Christianity, you're something else. Having the same formative body of scriptures, right, is part of the part of the continuity. You also have a continuity of forms of worship. Right. But what we didn't mention, right, last time was that an interesting fact that there are a bunch of critiques of the idea of the Axial Age.
 
-**[[Fr. Stephen]]:** [Listen from 01:13:21](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=73:21)
+**[[Fr. Stephen]]:** [Listen from [01:13:21](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=73:21)
 We just described and we've given this as an example, right, there is a form of [[Second Temple]] Judaism that becomes known as Christianity, first at Antioch. And it has continuity with the [[Second Temple]] Judaism that came before and ancient Israelite religion, even though if you look at, like you come to a [[divine liturgy]] and you go in your time machine back to the [[Tabernacle]] in the wilderness, the two things you see are not going to be identical. But there is this overarching continuity and not a break. Right. So we're going to use this as sort of a paradigm for understanding how do shifts happen? Is every shift a change? Is every change a break?
 
 ### Clip 2: The Meaning of Salvation
-[Listen from 01:19:56](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=79:56)
+[Listen from [01:19:56](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=79:56)
 
 **[[Fr. Stephen]]:**
 You know, uh, nerdery aside, and uh, I clearly am one because I consider reading, you know, Ugaritic ritual texts and picking through Esau's genealogy to be fun and exciting ways to spend an afternoon. Um, but beyond that nerdery, why is this important at all? Why is this important to the [[Orthodox]] faith or theology, uh, other than just, hey, it's interesting and fun and neat. Uh, I think this actually goes to the core what we've been talking about today. Goes to the core of what salvation is. And here's how I think that is. My father used to tell me about my grandfather, that at one point my father was watching the Nuremberg trials on television, which were the trials of Nazi war criminals. So sort of the most demonically evil humans, you know, of our of our era. And my father asked my grandfather what he thought about what had happened and and these trials. And my grandfather's response was, "There but for the grace of [[God]] go I." And usually when we say that, we say that about some misfortune someone has suffered. Someone has ended up homeless, someone has ended up bankrupt, uh, someone has uh died at a young age, and we say, "Oh, there for the grace of [[God]] go I." It's [[God]]'s grace that I have the things I have. And that's not untrue. But my grandfather was saying that about becoming a Nazi war criminal. He was saying that about becoming this sort of immoral monster who would murder other people in mass and do these other things. And this is how the scriptures present the demonic and our sin as participation in the demonic. After Adam and Eve have disobeyed, [[God]] says it's not good that man should live forever. Because if we had, if we'd lived forever in that state, we would have been just like the [[demons]], immortal and immoral. Immortal and evil. And so [[God]] gives us this life in this world and our mortality and our repentance to prevent us from suffering that fate. A lot of times our Western [[Christian]] friends present salvation as, well, [[God]] has these laws, we've broken those laws, so he's angry at us or he's compelled by his attribute of justice. He has to punish those violations of the law. And so [[Christ]] comes to save us from that. So [[God]] has to save us from himself or save us from one of his attributes. Save us from his own justice. But that's not what the scriptures say. The scriptures say that [[Christ]] came to save us from our sins because our sins are destroying us. Our sins are turning us into these demonic monsters if we keep going down that path. So the truth we have here when we look at these these [[giants]] who are the far end of where that road leads, who represent someone not become like [[God]] but become like the [[demons]], dehumanized and inhuman, we see where the path of sin leads. And it shows us that in reality, [[Christ]] came to save us from ourselves. And it gives us a clarity of of exactly what that means. So, I I think this is important beyond all the history and the tying things together in the Old Testament and understanding some of the hymns of the church, that's the core. That's the core. That despite our sin and wickedness, which is deliberate, despite our throwing in our lot with these demonic spirits who rebel against and hate [[God]], [[Christ]] still loved us enough to come and die and rescue us, redeem us and buy us back so that we could become sons of [[God]] as we've talked about in previous episodes. This shows us the other side. We talked about uh in past episodes, what we're saved to, what we're saved for. This is what we're saved from.
 
 ### Clip 3: On Finding the Right Way of Life
-[Listen from 01:23:02](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=85:02)
+[Listen from [01:23:02](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=85:02)
 
 **[[Fr. Stephen]]:**
 In a lot of ways in previous generations, especially if you go back a few generations, things were sort of allotted and handed to you, right? Your your your marriage was sort of arranged and your career was sort of arranged and your education was sort of arranged. And you had a, you know, from your birth or shortly thereafter, you had a path set in front of you for you to walk through the world, you know, for the rest of your life, basically. You had a lot in life. Um, and that is very much not true anymore for the vast majority of us. Um, if you think you might want to get married and have kids, you got to figure that out. You got to find a person to do that with and try and find the right person who you're going to be able to do that with over a lot of years. And how do you figure that out and how do you know and what do I do? And and you got to figure out, well, what do I want to do for a living? Uh, what will actually pay for me to be able to live? Am I going to have to cobble together two, three, four things just to try and just survive and live, let alone have some kind of quote unquote career that leads to a retirement or something. Um, and how am I going to qualify myself? Where and how can I get an education and how much debt should I take on to do it? It's on and on and on and on and on. And for us religious, including for Christians, Christianity, has ended up getting treated very much the same way. It's one more thing you got to figure out, right? Now, kind of fortunately, um, you may have a default setting on that still. Right? If you're a person who was raised religious, you were probably brought up in some particular [[Christian]] or other religious community. Um, and you know, you could always default to that. You could sort of just keep doing that and take that one thing off the table. But that's not what happens that much anymore when you look at the actual landscape of things. Uh, first of all, a lot of people aren't brought up with any religion, so they don't have a default. But even those who are frequently for various reasons become dissatisfied with that situation. And then either way you're out into the world trying to figure that out too. And it's very much framed by our culture, the way our culture frames everything in this consumeristic way where, okay, I mean, I go, I figure out what I think is right and what I believe based on, right, books that I find convincing and preaching on the internet or TV or wherever that I find convincing of certain ideas. And then once I kind of settle on what I think is probably right and what I like and what I think it should be like, then I try to find a church that matches that. And guess what? There never is one. Uh, so I try to figure out like, well, okay, this this place has this and that place has that. Well, I guess I'll go to this one because, you know, it's got most of the things and the things it doesn't have I can live with and at least for now, right? And then other things happen later and unsettle that, you know, new pastor, they change the worship style, something else happens, this and that happens. You find out something you didn't know before, you change your mind. Um, and all of this is is just this kind of anxiety, you know, chaos-inducing anxiety where this burden is being heaped on people as individuals, meaning separated from their communities, their families, their no, this is you have to figure this out for yourself. It's all dropped on people. It's all dropped on people at an age when they're not prepared to do any of it. Um, but I I think some of the callers we had tonight and what we talked about tonight have a lot to do with an anecdote for that or at least another way of approaching that. Uh, there is a way of of being in the world. There is a way of life. There is a way of worshipping the true [[God]] that has existed for as long as humanity has existed. Not identical, but fundamentally the same. And there are various other ways of being in the world that have sort of fallen away from that over the years. Whether they fell away from it very early on, whether they fell away from it in the Neolithic Revolution where they fell into paganism, whether they fell away from it at a later period into some kind of religious thing of their own devising by artificially shoving things together or they fell away from it by following some heretical idea that distorted that true faith, that true way of being in the world, that true way of worshipping [[God]]. But they're all these ways that have fallen away from it. And I think we need to approach, we need to approach, if you accept that that is true, even if you don't accept necessarily that as I or Father Andrew would say, that that is preserved in the [[Orthodox]] Church, even if you don't accept that [[Orthodox]] Church part. If you accept that that is true, then it behooves you not to try to figure all these things out for yourself. Guess what? You don't have to. It's your lucky day. This is one thing you don't have to do that with. Um, but rather to find the place that practices that way of life. Father Andrew and I believe that is the [[Orthodox]] Church that has preserved that. Um, but you know, to find it, to find the place where that is, and then to place yourself within it. And then this will be one thing in your life that you don't have to be in charge of. That you don't have to struggle with, that you don't have to yank the reins on or turn the steering wheel. Right. This will be a place where you can learn and you can be shaped and you can be formed and you can be transformed and you can be healed and you can be helped. Right. And as that process happens, the really good news is that process and doing that process within a community of other people who you'll be bonded with, right, as that same transformation and that same thing is happening with them, will also help you a whole lot with all those other things you have to figure out. It won't do all the work for you. But it'll go a long way and it'll help an awful lot with all of those other things. So, next time we're going to kind of pick up where we sort of left off after the second half. We're going to talk about modernism and some other things. Um, but for now, we need to work on reorienting, right? Um, is religion something I figure out and then do as I think best? No. Uh, Christianity is a way of being that I can come into and be shaped and formed by. These are all passive words. Right. While I work on all these other things, these other responsibilities that that life presents to me.
 
-**[[Fr. Andrew]]:** [Listen from 01:31:17](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=91:17)
+**[[Fr. Andrew]]:** [Listen from [01:31:17](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=91:17)
 Amen. That's our 100th episode, everybody. Thanks for listening. If you didn't happen to get through to us live, we'd still like to hear from you. You can also email us at lordofspirits@ancientfaith.com. You can message us at our Facebook page or you can leave us a voicemail at speakpipe.com/lordofspirits. And if you have basic questions about [[Orthodox]] Christianity or need help to find an actual parish in the 3D world, head over to orthodoxintro.org.
 
-**[[Fr. Stephen]]:** [Listen from 01:31:48](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=91:48)
+**[[Fr. Stephen]]:** [Listen from [01:31:48](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=91:48)
 And join us for our live broadcasts on the second and fourth Thursdays of the month at 7 p.m. Eastern, 4 p.m. Pacific.
 
-**[[Fr. Andrew]]:** [Listen from 01:31:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=91:55)
+**[[Fr. Andrew]]:** [Listen from [01:31:55](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=91:55)
 And if you're on Facebook, you can follow our page, join our discussion group, leave ratings and reviews and all the appropriate places and some inappropriate places if you like, but most importantly, share this show with a friend who is going to benefit from it.
 
-**[[Fr. Stephen]]:** [Listen from 01:32:06](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=92:06)
+**[[Fr. Stephen]]:** [Listen from [01:32:06](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=92:06)
 And finally, be sure to go to ancientfaith.com/support and help make sure we and lots of other AFR podcasters stay on the air.
 
-**[[Fr. Andrew]]:** [Listen from 01:32:14](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=92:14)
+**[[Fr. Andrew]]:** [Listen from [01:32:14](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=92:14)
 Thank you. Good night. [[God]] bless you.

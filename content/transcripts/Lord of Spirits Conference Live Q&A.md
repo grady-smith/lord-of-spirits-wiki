@@ -6,109 +6,109 @@ tags: [lordofspirits]
 
 ## Transcript
 
-**Intro:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=00:00:00)
+**Intro:** [Listen from [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=00:00:00)
 He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. ([[1 Enoch]] 48:4-5)
 
 The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, Father Andrew Stephen Damick and Father Stephen De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:06:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:06:00) 
 Good evening, giant killers and dragon slayers. I know, it was a little delayed. I know there's usually no "woo," like... Right. Yeah, yeah. You are listening to the [[Lord of Spirits]] podcast. My co-host, Father Stephen De Young, is with me from Ligonier, Pennsylvania. And I'm Father Andrew Stephen Damick, also in Ligonier, Pennsylvania. And that's because it's the [[Lord of Spirits]] conference, everybody.
 
 And for all of those of you who grew up in the 1980s, [[Lord of Spirits]] is taped before a live studio audience.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:00:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [02:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:00:00) 
 Although, we are kind of giving a false impression here about how this usually works.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:04:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:04:00) 
 That's right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:05:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [02:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:05:00) 
 Right? Like, you're seeing us sit here at the table, right? It's more like, have you seen Eddie Murphy's "Party All the Time" video? This is usually I'm in the church office, I have like the headset with the thing turned around so I just have like the one earpiece so I can kind of vibe with it. And like Matushka Trudi is doing the Rick [[James]] thing, you know?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:29:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:29:00) 
 That's right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:31:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [02:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:31:00) 
 In the video. So this is not really how it usually is.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:34:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:34:00) 
 Yeah. No. Yeah, I usually don't have to look at him. So, Matushka Trudi, who is over there, everybody, next to some dude named Bobby, will not be taking your calls tonight. It's just you and us, but we do have bouncers...
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:05:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [03:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:05:00) 
 Pass her a note.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:06:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=03:06:00) 
 Yeah, there you go. You can pass her a note. We do have bouncers available if need be. Famed WWE grappler Richard Rohan is available to strangle those who ask the wrong questions. From his posing his questions. Yes.
 
 So, as sometimes happens, I have to read an ad. [[Lord of Spirits]] podcast is brought to you by our listeners with help from [[Leviathan]] Political Consultants. Are you a god-king ready to level up to god-emperor? Having trouble stirring the satraps? Trying to be Nimrod but keep getting it Nim-wrong? Ever see beasts rising out of the sea and say to your wives, "That should be me"? If that's you, you need [[Leviathan]] Political Consultants. Whether you're just looking to expand your regional idolatrous footprint or need to subsume all cultures into one world kleptocracy, LPC LLC can make your dreams of imperium come true. With our patented vassal squeeze and peasant burnination techniques, you'll have even the worthless gods of the other nations ready to open your nostrils and feed, clothe, and bathe you. Act now and get a free Ziggy the Ziggurat bobblehead scepter. Visit leviathanpoliticalconsultants.com today. Volcanic gas-sniffing oracles are standing by.
 
 So, we gave you a...
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:55:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [04:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:55:00) 
 They made us an idol.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:56:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:56:00) 
 We got a big donation for that one, yeah. Right, this would normally be our [[Halloween]] episode. It's that time. And also, I don't know if any of our our um our ladies were planning on announcing this, but I was informed by a listener just this week that the National Park Service, I'm not making this up, the National Park Service has declared October 24th through 31st to be International Bat Week. Not making that up. You can go to batweek.org on your phones and and uh and and you can see that there for yourself.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:40:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [05:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:40:00) 
 They won't tell you what it's like to be one, though.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:43:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=05:43:00) 
 I know. You you can't you can't do that. Yeah. Um so, but because it is uh this is essentially our [[Halloween]] episode, but mostly we're going to be dedicating this to what you have to say. Uh because this is our [[Halloween]] episode, we thought that each of us would give you a little something at the beginning of the first and second halves. There will be three halves, [[God]] willing. Um and we're going to take a couple of real breaks in between, you know, where you can get up for a few minutes and, you know, use the restroom and and so forth.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:15:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [06:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:15:00) 
 Do various non-yoga stretching exercises.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:17:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:17:00) 
 Exactly. Exactly so. I like how that laugh kind of had an extension to it. That's good. Yeah. As people were gradually getting the joke.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:26:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [06:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:26:00) 
 There's levels. It's like an ogre.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:30:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:30:00) 
 Exactly. So, uh so for the first half, uh uh the Reverend Dr. Ogre will be...
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:37:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [06:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:37:00) 
 The Very Reverend Dr. Ogre.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:38:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:38:00) 
 Excuse me, the Very Reverend Dr. Ogre will be providing a little bit of content for us this evening. So, Father Stephen.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:45:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [06:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=06:45:00) 
 Yes, so uh, my bon mot, which would be good death, I guess. Uh, for uh for this evening, I want to talk about exorcism. Yay. So, not primarily the Exorcist movies. I haven't seen the new one yet. This became part of a conversation at dinner.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:08:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:08:00) 
 I haven't seen any of them. I know, that's a big shock with my Baptist upbringing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:11:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [07:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:11:00) 
 One and three are good, just for the record. Okay, okay. Three starred George C. Scott, who both starred in the only good Exorcist sequel and gave a chilling performance uh in another movie where he explained the five points of [[Calvinism]]. It's true. You can look it up on YouTube. I'm not kidding.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:30:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:30:00) 
 And General Patton. He played Patton, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:33:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [07:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:33:00) 
 But so, uh, exorcism, uh, we've talked a little bit about possession on the show at various points.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:44:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:44:00) 
 Which is nine-tenths of the law.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:46:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [07:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=07:46:00) 
 Yes. So, normally you can only hear my sigh, you can't see the expression of sadness and disappointment. Um, so, so we've talked about that and and we've talked about, uh, [[Psalm]] 91 in the in the Hebrew, 90 in the Greek, uh, as having been used as an exorcism psalm. In a minute here, I'm going to read at least what we still have of the other Qumran exorcism psalms. Uh, and make a few points about them.
 
 But exorcism as a phenomenon sort of appears uh, if if you're reading a typical, your typical American Bible, right, just sort of appears in the [[New Testament]]. There aren't really incidents of exorcism in the [[Hebrew Bible]]. There are instances of possession, right? You've got Saul being troubled by an unclean spirit. You've got that kind of thing, but you don't have people exercising demons per se. Now, if you go to the Christian [[Old Testament]] and we get the Book of [[Tobit]] in there, we've got something at least, right? And we're going to see that actually ties into some of these exorcism psalms from Qumran, too. Um, but nothing in in the [[Hebrew Bible]] proper. And then you get to the [[New Testament]], you get to the Gospels, and all of a sudden [[Christ]] casting demons out of people is this huge focus, that this incredible amount of attention is paid to.
 
 And there there's there's some context missing there. And let me suggest that a big part of why this becomes a phenomenon in that period is the Greeks. Got any Greeks here tonight? Sorry in advance. Um, as we've as we've talked about before on the show when we talk about possession and that kind of thing, uh, demonic possession really was an institution in pagan Greek culture in a way that it wasn't as fully embedded an institution in a lot of other and preceding ancient Near Eastern cultures. So there were oracular phenomenon, right? People who would be possessed by a spirit, give some kind of prophecies, some kind of wisdom that is coming from that spirit. But this becomes not just the Oracle at Delphi, but a number of local oracles. This becomes a major part of Greek religious life, right? And at the same time, we've also read in past episodes some of those cool quotes from Socrates talking about the demon he has who whispers wisdom to his soul and all that creepy stuff. Um, and so this was just firmly embedded in culture in a way that it wasn't until the Seleucids come to dominate Syria, Palestine, right, the whole area. And so now this situation arises where demonic possession is going to be a more common phenomenon in the Levant. Uh, there are going to be pagan temples, Greek temples being built in that area, specifically Greek ones, not just pagan in general, right? And so these practices become much more prominent, and we see the rise of psalms being used as exorcism prayers and exorcisms happening because of it, right? Because of that that overlap. So it's the Greeks' fault. Um, but but so, pagan Greeks.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 11:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:50:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [11:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:50:00) 
 Yes, pagan Greeks.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:51:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [11:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:51:00) 
 Pagan Greeks. Pagan Greeks. Pagan Greeks. Although, I... Every time I hear about the spirit of Hellenism, I wonder what exact spirit that is. Anyway. Shots fired. Just saying is all. Just narrow it down for me a little, guys. Um, so, we mentioned at the time in the episode when we kind of went through [[Psalm]] 91 or [[Psalm]] 90 in detail, uh, which is, uh, if you're Orthodox, you may know, is the psalm that's read in our funeral service as well. Uh, we at least mentioned that it was part of a group of exorcism psalms that were found at Qumran. And what's interesting about that is that that psalm, [[Psalm]] 91 or [[Psalm]] 90, is the only one that's a canonical psalm. The other psalms that are in this sort of exorcism psalm collection are extra-biblical. So it's been kind of pulled out for this use. And so I'm not going to go back through that again because it's in a past episode. I don't know where. Sorry. I can't keep track of these things.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=13:01:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=13:01:00) 
 He doesn't listen to the podcast.
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=13:02:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [13:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=13:02:00) 
 I don't listen to the podcast. I already know all this stuff. Anyway, so, but I am going to talk about the other three, uh, as much as we can. So here's the reality of ancient texts, right? Ancient texts this old especially. As the name Dead Sea Scrolls implies, these are scrolls, meaning they're rolled up. And so when you have a text that's rolled up like this and it's very ancient, it starts to fray at the end, right? And it's the outer layer of the wrapped scroll starts to deteriorate first, break apart first, be damaged first, right? And so, uh, the the copy of [[Psalm]] 91 or 90 that's in that collection was the last of the four. So it is pretty much perfectly preserved and matches all the other Hebrew texts we have of that psalm. So it doesn't help us a ton in terms of textual stuff, while the first psalm is in little bits and pieces because it's what was on the outside, right, of the scroll. So I'm going to read now what we have left of the first one. It gets better after this, but here's what we have left of the first one.
 
 "And the one who weeps for him, the curse by [[Yahweh]], dragon, the earth, exercising, to this, to the demon, he will dwell."
@@ -127,183 +127,183 @@ So you get at the end this invocation of the Archangel [[Raphael]], right, who, 
 
 But so a couple of things we could hopefully saw along the way, right? These are invocations not only of [[God]], but also of angelic beings to come and make war against these demonic spirits, right? And this particular mode of spiritual warfare and exorcism is associated with the Davidic line of kings, with David and Solomon. So when we get to the Gospels, specifically the synoptic Gospels, because there are no exorcisms in St. [[John]]'s Gospel, they're all in the synoptic Gospels. When we get to the synoptic Gospels, and they're going to argue [[Jesus]] is the [[Messiah]], right? [[Jesus]] is the son of David, right? His ability to cast out demons, right, is an important criteria there to identify him with this line of kings. But more than that, notice when [[Christ]] casts out demons, he doesn't invoke anybody else. And when the apostles later cast out demons, they invoke [[Christ]], not anyone or anything else, including the seven sons of Sceva who try to invoke [[Christ]] and get whooped. Like Roland will if he ever faces me in a steel cage.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 21:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:18:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [21:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:18:00) 
 So that's my fun times with exorcism for this evening.
 
 All right. All right. Well, on that cheery note. So now we're ready to take your not calls. We're actually ready to hear your voice. So if anyone is interested in, there's no hand raising. I know those of you listening to the recording right now are like, what happened? Um, yeah. So in the middle...
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:44:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [21:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:44:00) 
 Lawlessness.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 21:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:45:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [21:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=21:45:00) 
 Yeah, exactly. In the middle, in the middle, there are two mics. And it's actually important. Someone could actually adjust those so they're right next to each other because one of those mics is so everyone in this room can hear you and the other mic is so that you get recorded for the episode. So if you would like to ask a question during this this half of the [[Lord of Spirits]] podcast, you need to go ahead and line up and behind that mic and we're going to take your questions one right after the other. And then when I get tired of hearing you, we're going to have a break. And then and but the break will be exactly 10 minutes, so please be prompt. And that recording microphone does mean anything you say can and will be used against you.
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:28:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [22:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:28:00) 
 Yeah, exactly so.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 22:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:30:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [22:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:30:00) 
 So thank you, Matushka Trudi. See, she is taking your questions. Yeah, that's right, it's true, it's true. So when you step up to the mic, please give us at least your first name and where you're from.
 
-**[[Mark]]:** [Listen from 22:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:41:00) 
+**[[Mark]]:** [Listen from [22:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=22:41:00) 
 Hi, my name is [[Mark]] and I'm from New Hampshire and uh, huge fan of the show, so thank you for doing it. Um, so my question has to do with one of Father Stephen's sort of famous, like, I'll lay out something super loaded and just not elaborate on it. What? Do you do that? May or may not have happened. So I remember in one of the, I don't remember what episode in particular, you're talking about how uh, Greek was read, or or how, um, the [[Torah]] was read in Greek in the synagogue um, during the time of [[Christ]]. And then you went on to say something, but that but Aramaic was not. But then you made the point, this was sort of your thing, like I'll leave this here was, but uh, but so in the gospels when when [[Christ]] says, he's on the cross, says, "Eli, Eli, lama sabachthani, my [[God]], my [[God]], you might, why have you forsaken me?" right? You said that was in uh, Aramaic.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:39:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [23:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:39:00) 
 Right, right.
 
-**[[Mark]]:** [Listen from 23:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:40:00) 
+**[[Mark]]:** [Listen from [23:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:40:00) 
 Right? And you just sort of, you said you just sort of left it there as like that's that's a big deal that it's that he said it in Aramaic. And can you elaborate on that a little further or I mean, is that something...
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:51:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [23:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=23:51:00) 
 I can, but folks, do I have to like chew your food and drop it into your mouth like a baby bird? Wow! The first... The first guy. Wow! The first guy, you already throwing him under the bus. Remember the two-star, two-star review? That was me. That was me. That was me. But this is part of my strategy. Right? I don't want to say something dumb unintentionally and get canceled. I want it to be for something I did deliberately. No, so, so yeah, so, um, not only is that an Aramaic, but uh, I don't know if he's in the room right now. But as a as a friend of mine pointed out in the in the Syriac, uh, you can tell the Syriac is translated from the Greek because in that passage it says that [[Christ]] cried out "Eloi, Eloi, lama sabachthani," which means "Eloi, Eloi, lama sabachthani." Like they just... So, um, Right, so yeah, and this isn't this isn't a thing of [[Christ]] just mixing it up, right, or something.
 
 Um, I I think the key thing to take away from that is that, and this is something that Orthodox folks shouldn't have, but some of them still do, this idea that there is a text that is the real text in a particular language, right? So most Orthodox folks, it's, no, the Greek, right, the Greek is the real text. Right. There's a whole pile of questions there like which Greek and stuff that makes that really complicated. But, um, that's not the perspective that like the church fathers take. Right? Uh, you know how I know they don't take that perspective? Because they translated the Bible into other languages. And they didn't tell the people, "Okay, I know you're reading it in Slavonic now, but this is just a translation, so if you really what you got to..." Right? Um, and so, uh, the Aramaic, the reason I threw that in there was I didn't want what I was saying historically about the synagogue practice to play into that, "Oh, well, the Aramaic is not the real... I see. text." Right? It's real enough that [[Christ]] quotes it. Right, right. Right? That [[Christ]] prays that psalm in Aramaic. Right. Right? Right. On the cross. Right. Right? But him doing that doesn't mean, "Oh no, the Aramaic of that psalm is the real one and forget the Hebrew and the Greek." Right. Okay, either. Right? I see. Yeah. Um, so there is these different ancient translations, these different variants in the text. Right? This is one of the things they they they don't talk about much either because if you if you study [[New Testament]] Greek in a Protestant context, they don't care about it much. Um, and, um, there aren't a lot of Orthodox contexts to study it, but [[New Testament]] Greek in and when you do, a lot of times they're just telling you the patriarchal text of 1914 is like the King [[James]] Bible, it fell out of heaven. Right. Um...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 27:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:28:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [27:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:28:00) 
 But it did fall out of heaven. The King [[James]] Bible did fall out of heaven. Maybe in a plane crash.
 
-**[[Fr. Stephen De Young]]:** [Listen from 27:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:35:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [27:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=27:35:00) 
 One of those miracles where like, "The Bible survived! Look, everyone, it's a miracle!" Everyone else died in the plane crash. The humans died, but the Bible... It's intact. Here, laying on the ground. Um, but if you if you get like the critical edition of the [[New Testament]], a lot of the notes, right, especially if you get the the editiocritica maior for the books that that's available for, a lot of the variants are church fathers' quotes. You can get a whole, there's a whole sub-genre of the Society of Biblical Literature publications of like what did this church father's copy of the Gospel of [[John]] look like, where they just get all the quotes in Greek and put them all together and say, "This must be what the text he was looking at." And that's sometimes not identical to the patriarchal text of 1914.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 28:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:40:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [28:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:40:00) 
 But that's not a problem. Right? The [[Holy Spirit]] has seen to it that every generation of the church has the the scriptures. Right? The scriptures that [[God]] wants them to have to do what they need to do.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 28:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:53:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [28:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=28:53:00) 
 Yeah, I think one of the problems, right, is that modern people, um, one of the things we're into is antiquarianism. Like if we find some old thing, you know, that's thousands of years old or whatever, we try to preserve it exactly as it is, you know? Which, I mean, I love museums, don't get me wrong. But I think we take this antiquarian way of thinking and we even put it on now, maybe there's a chicken-egg issue here, I don't know, but we put it on the biblical text as well, like it's this idea of getting back to the original thing. And so like restoration needs to make it look like exactly the original thing. And and we as Orthodox Christians sometimes fall into this manner of thinking. We do. And, um, and have this sense like, "Well, I don't I don't care what anyone around me actually says, just tell me what the fathers say," right? I mean, it's good to read the fathers. It's good to read the fathers. But like, [[God]] gave you your pastor. Like he didn't leave a copy of the homilies of St. Gregory Palamas to run your church, as awesome as they are, which everyone should get them, you know, and support Dr. Christopher Veniamin who has published them. Uh, please. It's a family of heat. Yeah, exactly, exactly. Right. But but he gave you an actual living person to be your pastor and he gave you the living church to to be there to actually guide you. This is not an antiquarian uh exercise. Right? This is life and it's actually alive now.
 
 But one of the things that makes [[Orthodoxy]] different from, say, the way that kind of Pentecostalism tends to act, right, which is completely in the other direction, like it's really the church of what's happening right this second in many cases, uh, is that with [[Orthodoxy]] it's this one seamless tradition that's still going, you know, and that that we have all of it all at once, including what's happening at this moment.
 
 I remember uh, one time listening, I I was taking class in liturgics when I was in seminary and the the professor said something I very much disagreed with and and uh, not related, but he was later deposed from the priesthood. Uh, you know who to call to make things happen. Wow. Um, he said he had this idea that the that the liturgical tradition had sort of uh, it was like a blossom that had completely opened and it was done opening. Nothing more. There's no more, no more going to nothing more going to happen. Right? And and I the question I asked him was like, "Well, what point did that happen? Like at what point in history did it stop? And why did it stop there?" You know? Uh, again, it's not because I believe in an evolutionary or like throw all the history out, I mean for crying out loud. Right? But but there is this reality that that it's all it's all present together and the church is alive and the church continues to be creative in a way that is completely consistent with its previous creativity. Right? Um, so that's probably not what you were asking about, but these were some thoughts that I had based on things he said.
 
-**[[Fr. Stephen De Young]]:** [Listen from 31:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:57:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [31:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:57:00) 
 That's the kind of progressivism we're used to from you, Father.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 31:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:59:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [31:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=31:59:00) 
 That's right, exactly. So...
 
-**[[Mark]]:** [Listen from 32:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:02:00) 
+**[[Mark]]:** [Listen from [32:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:02:00) 
 Thank you. I appreciate it. Thanks.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:03:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:03:00) 
 Yeah, yeah. All right. Any chance you'll tell us how you were physically ejected from the uh Mormon temple?
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:07:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [32:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:07:00) 
 Not tonight. The weekend is young.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:11:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:11:00) 
 That's right. All right.
 
-**Heath Hemphill:** [Listen from 32:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:16:00) 
+**Heath Hemphill:** [Listen from [32:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:16:00) 
 Good evening, Fathers. Good evening. I'm Heath Hemphill from Austin, Texas.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:21:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:21:00) 
 Heath Hemphill from Austin. The most alliterative man in the room. Heath Hemphill. Isn't that amazing, everybody? Just have to put, just have to put that out there.
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:31:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [32:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:31:00) 
 It's a honor to meet you.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:35:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:35:00) 
 Because H is a consonant now, according to this guy. It is.
 
-**Heath Hemphill:** [Listen from 32:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:41:00) 
+**Heath Hemphill:** [Listen from [32:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=32:41:00) 
 Fathers, my my question tonight is titled, "Which came first, the idolatrous chicken or the demonic egg?" Uh, so following the dividing of the nations, uh, [[God]] assigned the sons of [[God]] to to rule over the nations and shepherd them, uh, all of which eventually fell, right, and were accepting, uh, worship from those nations. So my question is, and then, you know, later we see the the rise of giant clans from some of those nations. Um, was this the, were the fallen, sinful men responsible for pulling down the sons of [[God]], or were the angels jealous of the forgiveness given to man, tempting men to fall further than they already were?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 33:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:36:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [33:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:36:00) 
 So who tempted, the angels or these evil people?
 
-**Heath Hemphill:** [Listen from 33:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:39:00) 
+**Heath Hemphill:** [Listen from [33:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:39:00) 
 Yes.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 33:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:40:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [33:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:40:00) 
 Wow. I don't know that we know, like I don't think it's depicted in the scripture.
 
-**[[Fr. Stephen De Young]]:** [Listen from 33:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:45:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [33:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=33:45:00) 
 ¿Por que no los dos? Oh. Yeah. Yeah. So I mean, I I my honestly because, um, when we're dealing with angelic beings, we get into the whole "how do they experience time" thing, right? So, we've talked about, right, there are these eternal realities and then there are points in time and space where they become reality from our human perspective, right? But we don't know what that looks like from an angelic perspective and especially not from [[God]]'s perspective, right? And so it can be that the way in which the fall of those beings, those spiritual beings, becomes reality in the time-space reality of human beings historically is within that idolatry. So there's not a causal connection, there's sort of the same thing. That would be my answer.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:53:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:53:00) 
 Does that make sense? As I love to ask people.
 
-**Heath Hemphill:** [Listen from 34:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:56:00) 
+**Heath Hemphill:** [Listen from [34:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:56:00) 
 It does. Thank you.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:57:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=34:57:00) 
 Good. Thank you. We're going to take one more question before we take our break. And then you need to line up in the same order.
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:08:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [35:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:08:00) 
 In the same order.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:10:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:10:00) 
 Yes. So people don't jump in after these two people.
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:13:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [35:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:13:00) 
 I have an acute visual memory. I will know.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:18:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:18:00) 
 All right, so. All righty.
 
-**Richard:** [Listen from 35:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:22:00) 
+**Richard:** [Listen from [35:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:22:00) 
 Hi, Richard from Dallas. Uh, uh, long-time listener, first-time caller, I think. So actually, no, I think I've called in before.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:09:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:09:00) 
 And you're not calling in right now, you realize.
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:11:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [35:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:11:00) 
 That is true. You're not on the phone. That is true.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:15:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:15:00) 
 Okay, okay.
 
-**Richard:** [Listen from 35:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:17:00) 
+**Richard:** [Listen from [35:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:17:00) 
 Um, so uh I would just like uh a definitive, dogmatic, once and for all answer.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:26:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:26:00) 
 I'm I'm sorry, what?
 
-**Richard:** [Listen from 35:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:29:00) 
+**Richard:** [Listen from [35:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:29:00) 
 Was [[Psalm]] 90-91 the uh the song that David was playing on the harp to banish the evil spirit from King Saul? Yes or no?
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:48:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [35:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:48:00) 
 Are you ready?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:49:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:49:00) 
 I'm ready.
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:50:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [35:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:50:00) 
 Yes.
 
-**Richard:** [Listen from 35:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:52:00) 
+**Richard:** [Listen from [35:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:52:00) 
 Cool.
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:53:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [35:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=35:53:00) 
 And it's the one Leonard Cohen is talking about. Wow.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:01:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:01:00) 
 Our first Leonard Cohen reference for the night. Well played. Well played. Leonard Cohen, by the way, Litvak, which means he was a Lithuanian Jew. Just putting that out there. All great Canadian Jews are Lithuanian Jews.
 
-**[[Fr. Stephen De Young]]:** [Listen from 36:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:16:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [36:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:16:00) 
 That's right, William Shatner. Also Litvak.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:19:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:19:00) 
 Any Litvaks in the room tonight? Any Litvaks, people with Lithuanian Jewish heritage? Hey! All right. Sveikas. All right. It just means hello in Lithuanian. All right.
 
-**Stephen:** [Listen from 36:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:35:00) 
+**Stephen:** [Listen from [36:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=36:35:00) 
 Uh, good evening, Fathers. Uh, Stephen from Maryland. Um, I have a two-part question on war. Uh, you all have talked about how, uh, spirits can animate communities and institutions. And Father Stephen, I think you were contrasting the Roman army of the Byzantine period with its pagan predecessor and, you know, they weren't quite, uh, doing devastation against the barbarians, at least not on the scale of the pagan period. That got me thinking, looking, um, kind of going through wars through history, and certainly Orthodox countries have been involved in them, both what could be considered a defensive and offensive. And so, um, I mean, outside of Byzantium, you go say to the Roman, to the Russian Empire where they clearly expanded from this large area around Moscow all the way to Siberia at, you know, the expense of indigenous people. Fast forward to today where you have the Patriarch of Moscow giving blessings and encouraging Russian soldiers to go slaughter their Orthodox brethren in Ukraine. So my question, first part of the question is, what is the church's teaching on war? Is there an equivalent to the just war theory in the West? There seem to be parts where, you know, killing is bad, destroying the icons of, you know, [[Christ]] among us is, is bad. But there seem to be times where that if the church, maybe not condones it, but maybe tolerates it in certain circumstances. Question two is, given the discussion on the taint of sin that you all have mentioned several times, what is the moral implication for the participants in war? Um, in the modern context, that would include everyone from like the intel guys looking at threats and advising policymakers, to the policymakers making the decisions, to the military guys who are actually executing that. And for both questions, does it matter if it's a, quote unquote, defensive/good war, offensive/bad war, understanding that's all a matter of perspective?
 
-**[[Fr. Stephen De Young]]:** [Listen from 38:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=38:48:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [38:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=38:48:00) 
 Oh man.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 38:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=38:50:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [38:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=38:50:00) 
 Good times, everybody. Sorry, you you got me thinking.
 
-**[[Fr. Stephen De Young]]:** [Listen from 38:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=38:55:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [38:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=38:55:00) 
 Somebody should write a book about that. I have an idea.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=39:07:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=39:07:00) 
 Um, I I'm not going to pass judgment on somebody else's bishop. That's not my my position. Um, but I will say that um, I think that when any people attempt to, and I'm not speaking about any particular thing, so I'm going to ask you to apply this for yourself in your own heads. But I think that when any people attempt to impose their own way of being on another people, um, that that is frankly Leviathanic behavior. Right? Like I'll I'll talk, like so I actually do know something about um, you know, some of the work of uh historically the the Russian Empire. Like you mentioned it expanded east to Siberia, but it also expanded west. Right, my Litvak friend? You know what I'm talking about. Uh, so yeah, it it expands. I I've done a lot of research in in and it's not just because I am ethnically Lithuanian a little bit, but um, but but just to point this out, okay, this is really obvious. Um, I went to actually with with Richard, uh we went on a pilgrimage to Lithuania and we went to a uh museum that was once a Nazi and KGB prison. And, um, we actually went into the room where they shot people in the head. And you could feel the evil. Like, it was evil.
 
-**Richard:** [Listen from 40:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=40:46:00) 
+**Richard:** [Listen from [40:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=40:46:00) 
 I I had I had to walk out.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 40:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=40:47:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [40:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=40:47:00) 
 Yeah, Richard had to walk out. I I mean, I crossed myself like 20 times. Um, but when we walked into the museum, you know, there was a little sign next to the the thing that actually explained when they made this building into a museum. And I asked, I said, I said, "When was this turned into a museum?" They said, "Right after independence." So right after the Soviets left, they immediately turned this building into a museum. And it explains on the sign, it says, "This building was preserved as it had been been used because this is the way that it was." All right? And as and as Christians, we need to focus on and and face the way that things are, even if it's been being perpetrated by people that we'd like to think are are our side. Right?
 
 So I'll talk about this historical bit about the Russian Empire. Um, but this is not unique to the Russian Empire. Many empires have done this stuff. Like it's not special to that one. But like one of the things that they did, and this actually, this is a bit of history that touched Pennsylvania, and I'll explain why. So there's a little town that I went to. I I just came back from Lithuania uh a month ago for my second visit. And uh, I insisted on going to a little town called Kražiai. So Kražiai has a, there's a big Catholic church there in the middle of it. Most of Lithuania is Catholic. And uh beautiful, beautiful church. And if you go in there, they have a uh a church pew that looks different from the rest of them, and it's off to the side and kind of roped off. And you can read a little sign that they have there in both in Lithuanian and English, so it's for visitors too to see this. It says, "This pew was one of the ones where the Cossacks tied their horses." Now, why would a Cossack be tying up his horse inside a church next to a pew? Well, the reason is that the Russian imperial governor decided he was going to demolish, first he kicked the nuns that were out of the convent there, and he decided he was going to demolish the parish church of this Catholic village. Right? He was just going to trash it. The Russians did this in many places in Lithuania. They demolished Catholic churches and then built Orthodox ones that were used by the local army garrison. So it wasn't like, "Oh, we want to spread [[Orthodoxy]]." It's, "Look, soldiers, they pray here on the on the ruins of what was your church."
@@ -314,84 +314,84 @@ Well, word of this got out to the Lithuanian-American community, and they starte
 
 Now, that's the way that it was, right? Uh, so, you know, those were Orthodox Christians doing that thing, like actually doing religious persecution against harmless peasants and nuns, you know? Uh, were they acting like Orthodox Christians when they did that? No, they were not. It would be profoundly stupid for any of us to say, "Well, that was my side, and it's okay when Orthodox do it." No, it is not. It is absolutely not. Um, so, uh, yeah, I I think that, um, in our own day, if we're tempted to to fist-pump and like, "Yeah, us," when we pick some side that is literally killing people, lots of people, whatever side it is, whichever one you prefer, right? And not instead say, "You know, this is all wrong. This is all wrong." Uh, you know, Christianity is the faith of martyrdom. Like the central fact of Christianity is the martyrdom of [[God]] himself in the flesh. That's the central fact. A lot of people have been willing to kill for their religion and for their values. But Christianity is about dying for it. Dying for it. So, um, that's what I'm going to say about that.
 
-**[[Fr. Stephen De Young]]:** [Listen from 46:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=46:06:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [46:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=46:06:00) 
 Yeah. I'll I'll take off directly from that and to quote the title of a really good book, um, about the way war functions in modern society is that war is a force that gives us meaning. Because for someone to be willing to kill for something or even, as Father Andrew pointed out, to die for something, right? So people didn't like when we referenced the Battle Hymn of the Republic, the lyrics comparing the death of Union soldiers to [[Christ]]'s atoning death, which is perverse, right? Um, it de facto has to be something bigger than themselves, right? Because they're offering themselves to it or for it. Right? They're offering their virtue, they're offering their well-being, they're offering someone else's existence toward it. Right? And there are not a lot of things in the modern world, in the modern world, there are not a lot of things that can command that kind of devotion anymore. Very few. Right? You can you can point to all the Marxists and neo-Marxists you want at universities all over this country. Great. Not one of them is going to die to bring about a revolution. Not one. They're not even going to give up their salary. They're not going to give up cocktail parties, right? to have a revolution. Right? Um, and war is one of the few things that can still do that. Right? War grounded in nationalism, grounded in the idolatry of the nation-state, is one of the few things that can still do that. that can motivate someone. And it's not on the part of the person, the part of the person who goes and enlists, the part of the person who goes out to fight for their country, that's generally why, it gives them a sense of meaning and of purpose that they don't have otherwise, right? And then the bestowal of that sense of meaning and purpose is manipulated by other people and forces to accomplish other goals, right, and other things. Right? So that's the reality of war in the modern age is a far cry from what war was in the ancient world. And it's become something much more hideous. So the kind of war that we indulge in now has to be sort of resisted on all fronts, because as Father Andrew was pointing out, there's one cause you should be willing to die for. And it's not a nation-state that might not be around in 50 years or 100. Right? That's not it. Right? That may be hard to hear for some people, but it's the truth. Right? It's a it's a uh, distortion, right? And when when you read, I mean, you don't have to go any further than the [[Torah]], you don't have to go further than [[Deuteronomy]] and the commandments regarding warfare. The whole idea of commandments regarding warfare was a foreign concept in the ancient Near East and Greece and Rome, for even Rome. Right? Rome, inter arma silent leges, right? The law is silent during war. There's no law during war. You rape, you kill, whatever, right? Aristotle says you need to have one every so often because people need to vent all of those parts of themselves. They need to go out and do that somewhere else so they don't do it at home and commit crime. Right? And so the idea that [[God]]'s going to come and say, "No wars except defensive wars. When you fight a defensive war, you have to give them a chance to surrender peacefully. Uh, you cannot make total war. You can't even destroy the fruit trees. You can't destroy the crops and the fruit trees. You can't go scorched earth on your enemy. Um, there's nobody in the world today who cares at all about the commandments of the [[Torah]] about war, including the people who really should. Right? So, that's what I got to say about that.
 
-**Stephen:** [Listen from 50:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=50:46:00) 
+**Stephen:** [Listen from [50:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=50:46:00) 
 Okay. Well, thank you. I I I and there are people waiting other questions. I would mind continuing the conversation later, especially, you know, thinking about the guys in Ukraine trying to defend themselves, but there are other people. But thank you for the answers. Thank you for your wonderful work on the podcast. It's really amazing.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 51:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=51:02:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [51:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=51:02:00) 
 Thank you. All right.
 
-**Jeff:** [Listen from 51:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=51:22:00) 
+**Jeff:** [Listen from [51:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=51:22:00) 
 Hi, my name is Jeff. I'm from Raleigh, North Carolina. I'd like to thank you for going to the break after my question so I can sit down. Um, my question is about the visions of [[Daniel]] after [[Daniel]] 7 in [[Daniel]] 8, 9, and 10, and who is the man that he sees? We uh he there's the man over the river and a mysterious voice that tells him, seems to indicate that it's [[Gabriel]]. Uh, [[Daniel]] 9 mentions that it's [[Gabriel]] was the man he saw before. And in [[Daniel]] 10, it's something similar, but it's interesting because in the visions, uh, the way he is described is eerily reminiscent of the way St. [[John]] the Evangelist describes [[Christ]] in [[Revelation]] 1. And so my question is, is this [[Gabriel]]? Is this [[Michael]]? Is this the [[Angel of the Lord]]? Or some combination of all three in different times and places?
 
-**[[Fr. Stephen De Young]]:** [Listen from 52:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:08:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [52:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:08:00) 
 It's [[Christ]]. Footnote. I know I never do these, but footnote. See our episode, "Is the Heavenly Man the Man from Heaven?" Yeah, in the Christology series. Where we talk about that for three hours. But I gave you the short version just now. Yeah, there you go.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 52:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:30:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [52:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:30:00) 
 All right, thank you very much. We're going to go ahead and take our first break and we'll be right back with the [[Lord of Spirits]].
 
-**Outro:** [Listen from 52:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:40:00) 
+**Outro:** [Listen from [52:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:40:00) 
 Father Andrew Stephen Damick and Father Stephen De Young will be back in a moment to take your calls on the next part of the [[Lord of Spirits]]. Give them a call at 855-237-2346. That's 855-AF-RADIO.
 
-**Ad Break:** [Listen from 52:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:58:00) 
+**Ad Break:** [Listen from [52:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=52:58:00) 
 (Advertisement for [[Fr. Stephen]]'s book, "Apocrypha")
 
-**Intro:** [Listen from 54:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:06:00) 
+**Intro:** [Listen from [54:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:06:00) 
 We're back now with the [[Lord of Spirits]] with Father Andrew Stephen Damick and Father Stephen De Young. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:24:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:24:00) 
 All right, welcome back. It's the second half of the [[Lord of Spirits]] podcast, and we're not taking any calls because this is not live, but it is live. We're actually have people standing next to a microphone. But before we start to listen to people staying next to a microphone, who have nicely lined themselves back up in the exact same order that they were before, I assume...
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:45:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [54:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:45:00) 
 Can verify.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:46:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:46:00) 
 Yes. Actually, before you do what you're about to do...
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:49:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [54:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:49:00) 
 He knows what I'm about to do. I feel the need to do something.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:51:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:51:00) 
 Uh-oh.
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:53:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [54:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=54:53:00) 
 And that is, uh, it has been shown to me the way in which Father Andrew has been baiting and manipulating people with this announcement tomorrow night online, teasing people, tantalizing them. And so, yes, so I'm going to spoil it right now because the announcement's about me.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:18:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:18:00) 
 You know, lying is a sin, right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:19:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [55:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:19:00) 
 Many of you maybe I was going to announce this tomorrow, you don't know. Oh. Um, so as most of you are familiar with at least some of my books, you know I primarily have written non-fiction. But I'm going to branch out. I'm starting a new series of fiction books. In fact, it's a series of medieval fantasy romance novels titled "The Thirsty Knight." And the title of the first book is "It's Thirsty Night, You Know What That Means."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 56:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:08:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [56:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:08:00) 
 Now you can go ahead. Okay, thank you very much. I We have not yet received the manuscript. Ask him if they'll publish it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:23:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [56:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:23:00) 
 You know there are [[Nephilim]] romance novels? That's it's a real thing.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 56:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:28:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [56:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:28:00) 
 Don't Google it. Yeah, please don't. It's not...
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:32:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [56:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:32:00) 
 There is also a romance novel called "Amish Vampires from Space." It will get into your algorithm and never come out. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 56:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:42:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [56:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=56:42:00) 
 I'm not kidding about the Amish vampires from space, but also please do not Google it, but it is real. Um, welcome back. Uh, so... I like you people. Um, so this is the second half. Before we get to your your uh questions and comments, I had a little something I wanted to share, a a piece of content, as it were, which I just revealed to uh some ladies who are in the back corner. I think they're still there. I told them what I was going to talk about, and their response was, "What?" Which is exactly what we like to hear on the [[Lord of Spirits]] podcast. A whole lot of "what?"
 
 So if you pick up the OED, the Oxford English Dictionary, which is the greatest piece of scholarship ever assembled.
 
-**[[Fr. Stephen De Young]]:** [Listen from 57:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=57:31:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [57:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=57:31:00) 
 Something you pick up daily.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 57:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=57:33:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [57:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=57:33:00) 
 I do. I have my own personal copy of the OED. I think about the Roman Empire. You use the OED. That's correct. Um, the Oxford English Dictionary, and you you pick it up and you flip to the entry for psychopath. Uh you continue on down the page and get to the word psychophysic, and then towards psychoplasm, which is which refers to the idea of consciousness as some kind of substance. That's not what I'm talking about. Uh, then right after psychoplasm is the word psychopomp. Psychopomp. Uh...
 
-**[[Fr. Stephen De Young]]:** [Listen from 58:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=58:11:00) 
+**[[Fr. Stephen De Young]]:** [Listen from [58:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=58:11:00) 
 It's a great Rob Zombie album.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 58:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=58:13:00) 
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [58:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=58:13:00) 
 Also the name of my next band. Um, psychopomp. Yeah, okay. So who's heard this word before, psychopomp? A smattering of you. Congratulations. Um, yeah. So this word, um I you know, when I first came ran across it, I thought it was like some kind of modern academic uh thing. Like occasionally academics put together words from Greek bits to create new words that are not represented in ancient sources. Psychopomp is in ancient sources as psychopombos is how it is in Greek. Um, but it comes into English only in 1835. Father Andrew's etymology corner. That jingle was created by a guy named Chris who goes to my parish, which is so great. And if you've heard it, you've all heard it. There's like a little girl's voice at the end that goes, "Hee hee." That little girl's name is Eleanor, and she's awesome. So shout out to Chris and Kylie and Eleanor and their other children. Um, yeah. So psychopomp comes into English in 1835. Um, so it's been in English for about 188 years. It was pretty obscure for most of its those years. People didn't use it very much in English publications. Uh, but starting in the 1950s, it really starts to climb in English language sources. Um, and uh has continued to climb in popularity ever since, which is a little weird. Like, why are we talking about this more? Right? Um, not a lot. I mean, it's still not like a super popular word. Uh, weirdly enough, the rise of this word seems to be connected with a rise in interest in Jungian psychology, which includes the word psychopomp. But obviously, Jung did not invent this word or these concepts because Jung, you know, is late 18th, early 20th century. Uh, late 19th, early 20th century, excuse me. Uh, and this is an ancient Greek word.
 
 So, okay, so what is the etymology? In Greek, it's psychopombos, from psyche, which who knows what psyche means? Soul. Soul, very good. It doesn't mean psyche, like the modern English word psyche, which comes from it, but it means soul. And pombos, who knows what that word means? Not many. Uh, it means conductor. Soul conductor, which is also the name of my next album. Yeah. Okay. I get you. That sounds like more of a 70s acid rock vibe than a rock. Yeah, right. Soul conductor. I feel like it's some sort of alternative dance TV show. Like there's Soul Train, which was the good one, and then there was Soul Conductor, which is...

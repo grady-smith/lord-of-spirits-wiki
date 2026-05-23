@@ -4,7 +4,7 @@ tags: [lordofspirits]
 ---
 ## Transcript
 
-[Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=00:00:00)
+[Listen from [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=00:00:00)
 
 **Intro:** He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits.
 
@@ -12,7 +12,7 @@ tags: [lordofspirits]
 
 The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the Lord of Spirits.
 
-[Listen from 01:05:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=01:05:00)
+[Listen from [01:05:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=01:05:00)
 
 **[[Fr. Andrew]]:** Hey, good evening, giant killers, dragon slayers, cockroach encroachers. You are listening to the Lord of Spirits podcast. My co-host, [[Father Stephen]] De Young, Ogrish confessor to the stars, is with me straight from the swamp in Lafayette, Louisiana. And I'm [[Father Andrew]] Stephen Damick in Emmaus, Pennsylvania, perched precariously atop the Arcane Tower of Podcasting, hovering dozens, dozens of stories above a disused gateway to the underworld, and we are live.
 
@@ -128,13 +128,13 @@ But we haven't had an on-air firing yet.
 
 **Janine:** Thank you. Um, well, I just noticed that this number, one of 180... number 111, that's my birthday, so some something must be going on. Um... All right. My question is, uh, you recently had an episode on progress called "What is Progress?" And, um, but my question is from my perspective, there are so many really bad, evil things happening in the world right now. I guess they always do, but, um, especially the cleansing of Christians from all across the Middle East. Right now it's happening in Syria, uh, Armenian Christians, et cetera, et cetera, et cetera, and the kind of warfare we see going on, and this may be expanding. So my question is in terms of progress, what is the perspective of progress not from the linear standpoint of history, but from the standpoint of where we are as Orthodox Christians and sort of, if I can say, the arc of what we see as progress right now? And what what do we do in the midst of all of this when things look like they're going very badly in a lot of sort of ways? Does that question make sense to you guys?
 
-[Listen from 08:17:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=08:17:00)
+[Listen from [08:17:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=08:17:00)
 
 **[[Fr. Andrew]]:** I mean, halfway. Like the "what do we do" part, I'm I that's pretty clear to me. But what do you mean by like what do you what do we see as progress? Because I mean...
 
 **Janine:** Well... Yeah, yeah. Go ahead. I always presume that no matter what the circle, I mean, as we know, [[Christ]] asked, uh, when when I return, will I find faith on the earth? I mean, that sounds to me like a very wistful question. Like there's a possibility that he might not. So my presumption is that for no matter what the circumstances are, uh, [[God]] has a plan for it. I mean, that's it. I I have confidence in that, but I guess I'm asking what is that and what do we do in the midst of what we might see as a great falling away or or bad dire outcome?
 
-[Listen from 09:10:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=09:10:00)
+[Listen from [09:10:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=09:10:00)
 
 **[[Fr. Andrew]]:** Yeah, yeah. Okay. So I would start by saying that... what is, you know, what's, I'm sorry, like what is that progress of what [[God]]'s plan would be in the midst of that? I mean, I the first thing that I would say is that [[God]]'s purpose is to save as many people as possible. Right? And in the midst of whatever is happening, he is working to do that. Um, and also that providentially, the it's not like [[God]] didn't know, you know, what would be happening at this moment in history. He absolutely knew every single little bit of it, every, you know, subatomic movement. Um, and this is exactly the... I mean, it sounds a little probably presumptuous to put it this way maybe, but this is exactly the conditions needed for the salvation of of everyone that's currently alive. Um, this is this is this is what what he gave us, you know.
 
@@ -142,7 +142,7 @@ Um, and so, I mean, we know that a lot of saints were in super tough times. In f
 
 So, I mean, in terms of progress, I I think on the individual level, a person can progress, right? A person can become holier. Um, so... [[Theosis]], right? Yeah, yeah. Whereas, I mean, and Father, you can correct me if I'm wrong about this, you know, I think what we were trying to kind of say in our our episode in general is that it's not as though there is like an arc of history that's all kind of either getting better or going to bring about the end or anything like that. It's rather just that things are going to happen and we're all supposed to be struggling in our salvation in the midst of whatever's happening and that, you know, the end of time, the day of the Lord is going to be an interruption, not a sort of conclusion. Mm. I don't know. Father, what what do you think? Am I getting all that wrong?
 
-[Listen from 11:41:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=11:41:00)
+[Listen from [11:41:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=11:41:00)
 
 **[[Fr. Stephen]]:** As much as I'd like to say so, I don't know that that was that bad. Um, the... Oh, thanks. It'll get worse from here. But yeah, we we have to be careful what what scale we use to measure that, right, like [[Father Andrew]] said. Um, in the mind of the church, someone becoming a martyr is a glorious thing. Mhm. Um, that doesn't mean we want it to happen to other people. It doesn't even mean we necessarily want it to happen to ourselves. Um, but when it happens, it's it's something we glorify [[God]] for. And in addition to sort of what [[Father Andrew]] said, part of the issue is that we always have this sort of constructed golden age in the past when things were better than they are now. That's that's part of how you get the downward trajectory. They used to be better. Um, and there there was no golden age of the church. People will get mad at me for saying that. Okay, but this idea that there was one single undivided church for a thousand years is so much nonsense. Yeah. It is absolutely absurd. Not only were there heresies all over the place, not only are you leaving out the non-Chalcedonians and the Church of the East, uh, but you're leaving out the fact that I think in that thousand years, there were maybe 75 years total where all of the patriarchates were in communion with each other. Mhm. Somebody hadn't split communion with somebody else. There weren't two bishops somewhere. Right? Um, that's that's just not true, right? And the Byzantine Empire was not a golden age. Most of the kings were heretics, cruel, they're not saints. Very few of the Byzantine emperors are saints who were mutilating people, killing people, sometimes... You know, we just celebrated the Sunday of the Triumph of Orthodoxy. It's really triumphalistic until you think about the fact that we're celebrating the fact that they stopped killing people and cutting off their ears and noses for having icons. Which was going on for centuries before that. Yeah. Right? Um, there was no. And and the times where things were quote-unquote good from a material perspective, they were mostly horrible from a a a spiritual perspective. Like you can talk about holy Russia all you want, but are you talking about during Catherine the Great?
 
@@ -150,7 +150,7 @@ So, I mean, in terms of progress, I I think on the individual level, a person ca
 
 **[[Fr. Stephen]]:** Right. Like, a lot of Russian tsars not saints either. Um, so there there just isn't this good time. And I hope this isn't doesn't end up being true of the of the Middle East. Right? But we have to remember, the North African church was destroyed. Saint Augustine, right, North African, not in [[Rome]]. He was in North Africa. The Western North African church, the Latin North African church, vibrant Christianity produced saints. St. Cyprian of Carthage, right, St. Augustine. Right? This this great flowering of Christianity, wiped out by Islam. Mhm. We've lost chunks of Christianity before. And then we've gained. And so, who knows how long human history as we know it will continue, right, in this world. Right? Could be thousands of years for all we know. We don't know. Yep. Um, there might be star empires, who knows? But even if there's not, right, even if we're just talking about another 1,000 years, the locus of Orthodox Christianity may shift five times. Right? You know, the patriarch of Korea may end up being the first among equals. Who knows what's going to happen, right? Right. It it in terms of shifts of the faith and who comes to faith in [[Christ]] and where things happen and persecution. This is this is all going to this is all going to shift and change. But what's the same in every generation, going back into the Old Testament, is that there's always a faithful remnant of people. And that's the core of what we were getting at in that progress episode. Is despite the illusion of progress or whatever whatever schema people want to apply to history, right? The simple truth is that there is a faith, there is a faithfulness to the living [[God]] and a worship, a true worship of the true [[God]] that has existed for as long as humanity has existed and will exist until [[Christ]] returns. Even though in almost every generation, it's really truly being practiced only by a small remnant of people.
 
-[Listen from 16:50:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=16:50:00)
+[Listen from [16:50:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=16:50:00)
 
 **[[Fr. Andrew]]:** Yeah. And I think, I mean, one other thing I will add is that it it is the case, to be sure, that, uh, throughout history, that Orthodox Christianity has generated culture, has generated Christian culture, right? Um, and I think, I don't know if this is what you're asking about, but, uh, I've decided I'm going to rant on this for just a second. Um, I think that many times, especially Orthodox Christians in the West, whether it's people who have converted to Orthodoxy or those who grew up in it, um, often they look at those Christian cultures and that is, I mean, this is like what you were saying, Father, like like this idea of a golden age, you know, and often people have like, okay, if we only get to that. Like if we can only build that here in America or build our own version of that or whatever, you know, or like we could have our American that, you know, and they have that over there, we have this over here. And, um, the problem with that approach is, like, there is a saying, I can't remember where he wrote it, but it's one of these sayings from, and I'm and I'm pretty sure that he actually did say this. Uh, from C.S. Lewis, people attribute a lot of crazy stuff to him that he never said, but there is something that he that I'm pretty sure he did say, which is, "if you aim at heaven, you will get earth thrown in, but if you aim at earth, you will get neither." And I think that people who aim at Christian culture don't aren't actually aiming at Christianity. They're not actually aiming at [[Christ]].
 
@@ -160,7 +160,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 **[[Fr. Andrew]]:** That's right. And and I mean, it's very sad when a place that has seen Orthodox Christian flourishing for hundreds if not thousands of years, if it if it gets destroyed. Yeah. It's very sad. It's absolutely very sad. Like we we should we should weep for those people especially. Um, yeah. But but but the cultures are not the point. [[Christ]] is the point because at some point every culture is going to be over. You know? At some point it's all going to be over. Um, so what will remain is whatever is compatible with the kingdom of heaven. That's what's going to remain. You know, whatever is an expression of that. So, Janine, thank you very much for calling and, um, [[God]] bless your tender heart for the people who are suffering. Thank you for your answers. Thank you very much.
 
-[Listen from 21:12:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=21:12:00)
+[Listen from [21:12:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=21:12:00)
 
 **[[Fr. Andrew]]:** All right. Okay, this is an all call show, so we're going to go ahead and write into our next call. We have Lazarus on the line. Lazarus, welcome back from the dead. I don't know.
 
@@ -180,7 +180,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 **[[Fr. Stephen]]:** Yeah, preterism is just kind of dumb. Yeah. Well, and I mean like... So, what? Yeah, I mean, like St. [[Paul]] says in 2nd Thessalonians that there are some among you who teach that [[Christ]]'s appearing has already happened, "Do not be fooled." So, you know, why are we still having this discussion?
 
-[Listen from 22:22:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=22:22:00)
+[Listen from [22:22:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=22:22:00)
 
 **[[Fr. Andrew]]:** Yeah. Well, and I mean, like we we've done, you know, we've done a lot of stuff on eschatology. Um, we did a series on eschatology, and like where I come down on that question is essentially that the book of [[Revelation]] is is a history of of everything, you know. It's not a history of a specific moment or some future moment. It's it's the whole history of of humanity, the whole history of the world, right? And so it doesn't make sense to try to narrow it down. Like, like preterism, you know, um, saying, well, this was all fulfilled like in the first century or whatever is just as wrong as those who say everything that's in this book is in the future, so let's figure out when that's going to happen or whatever. You know, both both approaches are wrong and are fundamentally misunderstanding the way apocalypse even works, you know. Does that make sense, Lazarus?
 
@@ -204,7 +204,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 **Lazarus:** Thank you, podfathers.
 
-[Listen from 24:03:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=24:03:00)
+[Listen from [24:03:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=24:03:00)
 
 **[[Fr. Andrew]]:** All right. Okay, next we have [[James]] calling from, uh, New Hampshire where isn't the, uh, the the the motto is, uh, live free or die, right? Live free or die?
 
@@ -226,11 +226,11 @@ The reason why we have we get Christian culture is because there are people who 
 
 **[[Fr. Andrew]]:** Yeah, wow, that's that's good. Okay, so [[James]], what is on your mind this evening?
 
-[Listen from 24:55:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=24:55:00)
+[Listen from [24:55:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=24:55:00)
 
 **[[James]]:** Yeah, so thank you for taking my call. Um, my my question is about imprecatory prayer. So, I am a recovering Calvinist going on nine years, and in my previous tradition, imprecatory prayer in the liturgy was commonplace. We did it most of the time, and I'm just curious what an Orthodox perspective or, uh, Orthodox concerns relative to imprecatory prayer would be.
 
-[Listen from 25:22:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=25:22:00)
+[Listen from [25:22:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=25:22:00)
 
 **[[Fr. Andrew]]:** Yeah. I mean, we have that line especially we chant in Holy Week which this line is only in the [[Septuagint]]. It's not in the Masoretic Old Testament. "Bring more evils upon them, O Lord, bring more evils upon those who are glorious upon the earth." Um, where, you know, you don't want to like time that for when the bishop walks in, but, um...
 
@@ -238,7 +238,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 **[[Fr. Andrew]]:** Right. So tonight we're going to have a little Bible study right before parish council. Um, so, yeah. I mean this stuff is in the scriptures, right? And I think, I mean, my sense of it is that largely that the church fathers interpreted it in terms of our spiritual enemies, um, which is not other humans. And that even where it is pretty clearly aimed at other humans in the Old Testament, it's still within the context of of spiritual warfare because, you know, you're talking about the nations who are literally being directly, uh, influenced and ruled by demonic powers through idolatry, right? Um, it's not just, "I don't like this guy or I think he's a super creep, so, you know, Lord, you know, smite thou him, um, you know, who being naughty in thy sight shall snuff it." Um, I don't know, what do you think, Father?
 
-[Listen from 26:44:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=26:44:00)
+[Listen from [26:44:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=26:44:00)
 
 **[[Fr. Stephen]]:** Yeah, I mean that's this is this is one of those controversial things in the church fathers, but, uh, like St. [[John]] Chrysostom especially talks a lot about venting anger and hate at sin. Hmm, yeah, yeah. Right? That that there are correct objects for hatred. Right? And for anger. And, I mean, I I think that should be applied in a very practical way. I think that would help a lot of people, right? So, I don't hear your confessions. I'm not saying anything about the caller, but if if you're addicted to pornography, you need to get to the point where you hate pornography. Hm. Where you hate it with a perfect hatred, to borrow the biblical phrase. Right? That doesn't mean you hate the people who are in it or making it because a lot of them are victims of it, too. Um, we won't go into all that, but that industry, but, you know, hating hating sin, right? And hating the demonic powers, hating the thoughts, right, that come into our heads, right, is is for people in certain situations, a healthy way to help them break away from it, to help them get free of it.
 
@@ -248,7 +248,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 **[[Fr. Andrew]]:** Yeah, I mean, I think like like one of the ways I've heard this discussed is, uh, frankly, uh, that sin should disgust you. You know, you you want to get to a point where it's like, "Ooh, gross." You know, like, like I don't want to touch that anymore because it's so disgusting and gross. Um, you know, and that that this the, uh, like to use the philokalic language, the incensive power, like the burning power of of of the the human soul is supposed to be directed at at our sins, you know, at our at the corruption that we've accumulated through through sinning and that that's the ultimate point of it. It's not about, you know, "smite my human enemies because I don't like them or because they oppose me or whatever."
 
-[Listen from 29:02:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=29:02:00)
+[Listen from [29:02:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=29:02:00)
 
 **[[James]]:** Does that make sense? It does. Thank you.
 
@@ -288,7 +288,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 **[[Daniel]]:** No, it's not. We could discuss further if you want, but I do have a question about [[Isaiah]] 44. Um, I think it's come up on the show before, but [[Isaiah]] 44 to me sounds like, uh, you know, as a recovering materialist, it sounds like, uh, a materialist critique of paganism. It it it kind of sounds like [[Isaiah]] is, um, you know, insulting people for worshipping things that have no power because people made them with their hands. And it's not clear to me what the thrust of the argument is. Like it sounds as if he's saying, um, because you know the source and the material of an idol, that makes it impotent. But listening to you all, uh, it it sounds to me like the source of of power for a for an idol comes from the demon that sits behind the material. And so I'm I'm, if that question makes sense, I'd love to understand, again, kind of the thrust of the argument from um from that [[Isaiah]] passage.
 
-[Listen from 32:42:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=32:42:00)
+[Listen from [32:42:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=32:42:00)
 
 **[[Fr. Andrew]]:** Yeah, go for it.
 
@@ -296,7 +296,7 @@ The reason why we have we get Christian culture is because there are people who 
 
 Why on earth would they think that he has the power over rain and crops and human fertility? Like that dog don't hunt, right? Whereas the [[God]] of Israel created the universe and created the trees and created the rocks and created all of those things. And that's how you know he has the power to do the things that we ask of him. Right? And so it's pointing to a point in pagan idolatry where there's this fundamental cognitive dissonance of this all-powerful spirit who's at the same time totally helpless. Right? That's I that's I think the argument. That's what we're saying the argument is at least.
 
-[Listen from 34:49:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=34:49:00)
+[Listen from [34:49:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=34:49:00)
 
 **[[Fr. Andrew]]:** Yeah, I mean like one of the big apologetics or polemics against paganism in the Old Testament particularly is that the gods of the nations are weak, that they can't, you know, they can't deliver on what it is that they say they can do. And like, you know, the whole thing about like, look, you cut down the tree and made this idol. You, you know, you know, you smelted this and you made this idol is essentially to say like, like, look, you in some ways are more powerful than this god. Like, why are you asking it for help? You know? Um, and then on the other side, [[Yahweh]], the [[God]] of Israel is described as as not, not only that he created everything and rules everything, which no pagan god claims that about himself. They don't even make that claim. Um, but also that he takes no bribe, meaning he doesn't need anything. You can't, you can't pay him off, you know? And that's one of the reasons that he's completely different from the gods of the nations, you know? And and I would also ask like, why would humanity ever come up with a god like that because, uh, a god that you can't manipulate is not advantageous to you. So, like these people who say that the [[God]] of the scriptures is is made up to control other people or something like that are just terrible theologians. They have no no sense of the way that that worship and theology actually work. Um, so, yeah. Does that make sense?
 
@@ -312,17 +312,17 @@ Why on earth would they think that he has the power over rain and crops and huma
 
 **[[Daniel]]:** Yeah, it does. Thank you very much.
 
-[Listen from 39:10:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=39:10:00)
+[Listen from [39:10:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=39:10:00)
 
 **[[Fr. Andrew]]:** You're welcome. All right, we're going to go ahead and take our first break and we'll be right back on this all live Q&A episode of the Lord of Spirits podcast. See you soon.
 
 **Ad read:** [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young will be back in a moment to take your calls on the next part of the Lord of Spirits. Give them a call at 855-237-2346. That's 855-AF-RADIO. The centuries after the Protestant Reformation brought about a radical reinterpretation of the epistles of St. [[Paul]], disconnected from any historical reality. But [[Paul]] operated during his entire life as a faithful Pharisee within the Roman Jewish world. In "St. [[Paul]] the Pharisee: Jewish Apostle to All Nations," [[Father Stephen]] De Young surveys [[Paul]]'s life and writings, interpreting them within the holy tradition of the [[Orthodox Church]]. This survey is followed by De Young's interpretive translation of St. [[Paul]]'s epistles, which deliberately avoids overly familiar terminology. By using words and ideas grounded in 1st-century Judaism, De Young hopes to unsettle commonly held notions and help the reader reassess St. [[Paul]] in his historical context. Available now at store.ancientfaith.com. Again, that is store.ancientfaith.com.
 
-[Listen from 50:37:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=50:37:00)
+[Listen from [50:37:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=50:37:00)
 
 **Ad read:** We're back now with the Lord of Spirits with [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-[Listen from 50:54:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=50:54:00)
+[Listen from [50:54:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=50:54:00)
 
 **[[Fr. Andrew]]:** Voice of Steve, and we're doing an all live, all Q&A episode tonight. You know what that means? It means we didn't have to do a briefing earlier today. So I got a little homework done. Yeah.
 
@@ -370,7 +370,7 @@ Why on earth would they think that he has the power over rain and crops and huma
 
 **Andrew from NC:** Oh, really?
 
-[Listen from 53:37:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=53:37:00)
+[Listen from [53:37:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=53:37:00)
 
 **[[Fr. Andrew]]:** Yeah, he was, he would, he technically belonged to what we would now call the Assyrian Church of the East, uh, aka the Nestorians.
 
@@ -386,7 +386,7 @@ Why on earth would they think that he has the power over rain and crops and huma
 
 **[[Fr. Andrew]]:** Yeah, like it's just a historical reality.
 
-[Listen from 55:35:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=55:35:00)
+[Listen from [55:35:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=55:35:00)
 
 **[[Fr. Stephen]]:** People people don't like to think realistically, historically. Like you'll hear these people say, "Why didn't Martin Luther join the [[Orthodox Church]]?" And it's like, uh, 60 years after the fall of Constantinople, why didn't a German join the [[Orthodox Church]]? Like, is that a serious question? Right. Like... Yeah, I I completely understand. Yeah, it's not a thing. And so if you're born in a certain place at a certain time, you know, the [[Holy Spirit]] works where he will. Right? Um... It's true. Yeah. And so I think there's an an acknowledgement of that with certain people that like, if this person had been born in an Orthodox country with access to an [[Orthodox Church]], they would have been Orthodox, right? And and would have been regarded as a saint, you know. Yeah. Does that help?
 
@@ -402,7 +402,7 @@ Why on earth would they think that he has the power over rain and crops and huma
 
 **[[Fr. Andrew]]:** Well, again, I thank you, thank you so much, uh, fathers, that that really helps a lot. Thank you.
 
-[Listen from 57:42:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=57:42:00)
+[Listen from [57:42:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=57:42:00)
 
 **[[Fr. Andrew]]:** Thank you. Hope to see you soon. All right. Okay, next is Maria, who claims to be Trudi's friend. So, Maria, why don't you tell, I mean, how long have you known Trudi? Do you have any any dirt on her? Any other alternative nicknames that we could start applying to her besides just "the tank"? I don't know.
 
@@ -428,7 +428,7 @@ Why on earth would they think that he has the power over rain and crops and huma
 
 **[[Fr. Andrew]]:** Yes, it was. Nice.
 
-[Listen from 58:44:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=58:44:00)
+[Listen from [58:44:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=58:44:00)
 
 **[[Fr. Andrew]]:** Okay, Maria, what what is on your mind from way up there in the Great White North?
 

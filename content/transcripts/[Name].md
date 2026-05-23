@@ -9,223 +9,223 @@ The modern world doesn't acknowledge but is nevertheless haunted by spirits: ang
 
 **[[Fr. Andrew Stephen Damick]]:** Good evening, giant-killers, dragon-slayers, defeaters of the drow of the Underdark. You're listening to the [[Lord of Spirits]] podcast. My co-host, [[Father Stephen]] De Young, the bane of bog goblins, is with me straight from the swamp in Lafayette, Louisiana.
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:20:53](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:20:53) I first read that as bane of the Bogomils.
+**[[Fr. Stephen De Young]]:** [Listen from [01:20:53](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:20:53) I first read that as bane of the Bogomils.
 
 **[[Fr. Andrew Stephen Damick]]:** Oh.
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:24:29](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:24:29) Which would have been far more interesting.
+**[[Fr. Stephen De Young]]:** [Listen from [01:24:29](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:24:29) Which would have been far more interesting.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:25:52](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:25:52) Are you? Have you ever taken one on?
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:25:52](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:25:52) Are you? Have you ever taken one on?
 
 **[[Fr. Stephen De Young]]:** I don't know, you'd have to ask them.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:29:43](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:29:43) Oh. Bogomils, call in, let us know. How do you feel about [[Father Stephen]]? If you even listen.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:29:43](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:29:43) Oh. Bogomils, call in, let us know. How do you feel about [[Father Stephen]]? If you even listen.
 
 **[[Fr. Stephen De Young]]:** Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:38:00](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:38:00) Are there any of those around? There must be. I mean, this is the internet age. There's people claiming to be all kinds of things. I want us to have an Eckankar listener. That's what I really want.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:38:00](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=01:38:00) Are there any of those around? There must be. I mean, this is the internet age. There's people claiming to be all kinds of things. I want us to have an Eckankar listener. That's what I really want.
 
 But I am in Emmaus, Pennsylvania, perched precariously atop the Arcane Tower of Podcasting, hovering dozens of stories above a disused gateway to the underworld. And we are live. And if you are listening to us live, you can call us at 855-237-2346. You can talk to us, and we're going to get to your calls in the second half of the show. And Matushka Trudi, the tank rector, will be taking your calls.
 
 And tonight, I scarcely have any idea what monological dronings on [[Father Stephen]] has in store, but I think it's something to do with time and space again. So we're going full Hegelian this time around, right? The big question, though, is what is it all leading up to?
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:27:62](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:27:62) You never go full Hegel.
+**[[Fr. Stephen De Young]]:** [Listen from [02:27:62](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:27:62) You never go full Hegel.
 
 **[[Fr. Andrew Stephen Damick]]:** Oh, okay.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:30:72](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:30:72) Never go full Hegel. Can you ever arrive at full Hegel? Thesis, antithesis, synthesis?
+**[[Fr. Stephen De Young]]:** [Listen from [02:30:72](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:30:72) Never go full Hegel. Can you ever arrive at full Hegel? Thesis, antithesis, synthesis?
 
 **[[Fr. Andrew Stephen Damick]]:** A little bit of process.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:37:12](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:37:12) A little bit of process, right? You know, maybe, maybe a little bit of, you know, divine-human integration, you know, that that's okay. But no, not full Hegel, never.
+**[[Fr. Stephen De Young]]:** [Listen from [02:37:12](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:37:12) A little bit of process, right? You know, maybe, maybe a little bit of, you know, divine-human integration, you know, that that's okay. But no, not full Hegel, never.
 
 **[[Fr. Andrew Stephen Damick]]:** Rookie mistake.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:52:16](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:52:16) Um...
+**[[Fr. Stephen De Young]]:** [Listen from [02:52:16](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:52:16) Um...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:52:94](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:52:94) Oh, wow. Someone in the comments just said, "I'm not in Eckankar, but grew up in it."
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:52:94](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:52:94) Oh, wow. Someone in the comments just said, "I'm not in Eckankar, but grew up in it."
 
 **[[Fr. Stephen De Young]]:** Mmm.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:59:75](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:59:75) God bless you. That is amazing.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:59:75](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=02:59:75) God bless you. That is amazing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:02:69](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:02:69) What's the what's the sound they make?
+**[[Fr. Stephen De Young]]:** [Listen from [03:02:69](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:02:69) What's the what's the sound they make?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:04:80](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:04:80) Hugh.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:04:80](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:04:80) Hugh.
 
 **[[Fr. Stephen De Young]]:** Hugh.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:06:55](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:06:55) Hugh. Maybe we should have—her name is McKenna according to YouTube—maybe we should have McKenna call in and give us a good Hugh for old time's sake.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:06:55](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:06:55) Hugh. Maybe we should have—her name is McKenna according to YouTube—maybe we should have McKenna call in and give us a good Hugh for old time's sake.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:17:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:17:34) She could write about the sadness of leaving the group and call it "Hue and Cry."
+**[[Fr. Stephen De Young]]:** [Listen from [03:17:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:17:34) She could write about the sadness of leaving the group and call it "Hue and Cry."
 
 **[[Fr. Andrew Stephen Damick]]:** Wow. Oh, man. You know, there is a whole... there is a whole genre of Eckankar like CCM. They don't call it CCM, I'm sure, but like you can go on YouTube and and they have songs about Mahanta. You know, it's unbelievably corny. So great.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:38:39](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:38:39) Can you lose your salvation in Eckankar? Like can someone just come up and say, "Hey, Hugh, get off of my cloud"?
+**[[Fr. Stephen De Young]]:** [Listen from [03:38:39](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:38:39) Can you lose your salvation in Eckankar? Like can someone just come up and say, "Hey, Hugh, get off of my cloud"?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:47:18](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:47:18) Wow. Good thing she's a former Eck. Or what I'm not sure. I noticed the the Mahanta is called the Eck master. See, we should do it... of course, we would never get away with it, but it'd be so fun to do an episode about Eckankar.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:47:18](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=03:47:18) Wow. Good thing she's a former Eck. Or what I'm not sure. I noticed the the Mahanta is called the Eck master. See, we should do it... of course, we would never get away with it, but it'd be so fun to do an episode about Eckankar.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:01:13](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=04:01:13) Now I can immediately segue into what the Eck jokes, right? Like...
+**[[Fr. Stephen De Young]]:** [Listen from [04:01:13](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=04:01:13) Now I can immediately segue into what the Eck jokes, right? Like...
 
 **[[Fr. Andrew Stephen Damick]]:** There you go. Nice.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:08:86](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=04:08:86) But tonight, I debated briefly whether we should just spend two hours referring on whether Dazzler should be a member of the X-Men or should remain solo. But decided instead that yeah, as you pose there in your rhetorical question, how does it all end? Right? Um, where where is everything headed? And that also started me thinking about television, because we live in an era now where television sort of has like a through line, like television shows. Like they're kind of planned out for a certain length of time and then they have like an actual ending.
+**[[Fr. Stephen De Young]]:** [Listen from [04:08:86](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=04:08:86) But tonight, I debated briefly whether we should just spend two hours referring on whether Dazzler should be a member of the X-Men or should remain solo. But decided instead that yeah, as you pose there in your rhetorical question, how does it all end? Right? Um, where where is everything headed? And that also started me thinking about television, because we live in an era now where television sort of has like a through line, like television shows. Like they're kind of planned out for a certain length of time and then they have like an actual ending.
 
 **[[Fr. Andrew Stephen Damick]]:** Like podcasts never do.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:54:62](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=04:54:62) Yeah, well, this podcast, maybe. Who knows where the end will come. But, um, but yeah, unlike when we were kids, right? And like just a show went on until it got canceled, right? They were just cranking out episodes. And like the teenage kids from the show would be like in their 30s and they'd have like the cousin Oliver show up to try to keep kids on the show. Still living with mom and dad. Yeah, became generational, right? And then, um, yeah, or yeah, and they never had an ending, right? Like they just went off the air when they got canceled.
+**[[Fr. Stephen De Young]]:** [Listen from [04:54:62](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=04:54:62) Yeah, well, this podcast, maybe. Who knows where the end will come. But, um, but yeah, unlike when we were kids, right? And like just a show went on until it got canceled, right? They were just cranking out episodes. And like the teenage kids from the show would be like in their 30s and they'd have like the cousin Oliver show up to try to keep kids on the show. Still living with mom and dad. Yeah, became generational, right? And then, um, yeah, or yeah, and they never had an ending, right? Like they just went off the air when they got canceled.
 
 **[[Fr. Andrew Stephen Damick]]:** Right, they just stopped.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:31:73](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=05:31:73) Just vanished, like like Chuck Cunningham went upstairs, never was seen again.
+**[[Fr. Stephen De Young]]:** [Listen from [05:31:73](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=05:31:73) Just vanished, like like Chuck Cunningham went upstairs, never was seen again.
 
 **[[Fr. Andrew Stephen Damick]]:** There's no series finale.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:38:22](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=05:38:22) Yes, there's no... we will never know. Um, yeah. So is that what life in the world is like? That's what we're talking about tonight. Which which of those models is it? Is it more of a Breaking Bad or more of a TJ Hooker?
+**[[Fr. Stephen De Young]]:** [Listen from [05:38:22](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=05:38:22) Yes, there's no... we will never know. Um, yeah. So is that what life in the world is like? That's what we're talking about tonight. Which which of those models is it? Is it more of a Breaking Bad or more of a TJ Hooker?
 
 **[[Fr. Andrew Stephen Damick]]:** Facts of life.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:59:71](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=05:59:71) Or Facts of Life. Well, Facts of Life kept coming back. That was the amazing thing about that show. And then George Clooney shows up and like Cloris Leachman.
+**[[Fr. Stephen De Young]]:** [Listen from [05:59:71](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=05:59:71) Or Facts of Life. Well, Facts of Life kept coming back. That was the amazing thing about that show. And then George Clooney shows up and like Cloris Leachman.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:07:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:07:34) Didn't Facts of Life spin off at least one? Speaking of CCM. Uh, yeah, Lisa Whelchel, who played Blair, she had a brief, very brief CCM career.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:07:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:07:34) Didn't Facts of Life spin off at least one? Speaking of CCM. Uh, yeah, Lisa Whelchel, who played Blair, she had a brief, very brief CCM career.
 
 **[[Fr. Stephen De Young]]:** Yeah. Hard to believe. Yeah. And then a bunch of the other stars went on to do a lot of like TV movies. Aimed at women, yet featuring women getting abused, which is something I've also never understood. Why do all of these movies for women's channels involve women getting abused?
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:42:85](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:42:85) Although sometimes they get revenge, so that makes sense.
+**[[Fr. Stephen De Young]]:** [Listen from [06:42:85](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:42:85) Although sometimes they get revenge, so that makes sense.
 
 **[[Fr. Andrew Stephen Damick]]:** There you go.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:49:52](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:49:52) And then Kim Fields showed up on Fresh Prince of Bel-Air in a late season.
+**[[Fr. Stephen De Young]]:** [Listen from [06:49:52](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:49:52) And then Kim Fields showed up on Fresh Prince of Bel-Air in a late season.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:55:54](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:55:54) Anyway. None of that is the topic. The question is, right, where is everything headed? So if people saw the title of the episode, they saw that we're sort of talking about progress.
+**[[Fr. Stephen De Young]]:** [Listen from [06:55:54](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=06:55:54) Anyway. None of that is the topic. The question is, right, where is everything headed? So if people saw the title of the episode, they saw that we're sort of talking about progress.
 
 **[[Fr. Andrew Stephen Damick]]:** Progress, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:11:15](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=07:11:15) The idea of progress is dependent upon some other ideas, right? Um, in order to call something progress, you have to have some idea that there is a direction and a goal, right, a destination that's being aimed at, so that you can judge whether something is progress related to it. And so, but progress then is is sort of a subspecies of change. Right? It's it's change in a particular direction.
+**[[Fr. Stephen De Young]]:** [Listen from [07:11:15](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=07:11:15) The idea of progress is dependent upon some other ideas, right? Um, in order to call something progress, you have to have some idea that there is a direction and a goal, right, a destination that's being aimed at, so that you can judge whether something is progress related to it. And so, but progress then is is sort of a subspecies of change. Right? It's it's change in a particular direction.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:43:95](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=07:43:95) Usually with the application things are getting better.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:43:95](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=07:43:95) Usually with the application things are getting better.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:47:65](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=07:47:65) Right. Progress would be positive in some sense change. Um, so we did a couple episodes the end of last year. A whole year ago. Oh, the end of which last year? 2023?
+**[[Fr. Stephen De Young]]:** [Listen from [07:47:65](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=07:47:65) Right. Progress would be positive in some sense change. Um, so we did a couple episodes the end of last year. A whole year ago. Oh, the end of which last year? 2023?
 
 **[[Fr. Andrew Stephen Damick]]:** 2024. Oh, okay. All right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:08:70](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=08:08:70) So a couple months ago. But also last year. Um, where we talked about about change and we focused in those episodes on continuity. We focused on the idea that even though there's apparent change in humanity and human relations and religion in particular, and Christianity in particular particular, that there is an underlying continuity that sort of undergirds that apparent change. And so we talked about, we really stressed the idea that there's continuity like throughout the scripture, right? From beginning to end. And we even went sort of before that. We talked about how there's a continuity, there's a religious continuity going all the way back to, you know, your primitive hunter-gatherers, like all the way back, obviously, to your first humans, right? Um, so we were focused on the continuity that night. Tonight we're going to talk more about the change, right? The things that change. And how to understand that. Because we take it for granted that the idea of continuity and the idea of change are directly opposed to each other. Continuity means no change, and change means a lack of continuity. And tonight we're going to argue that that's not necessarily the case.
+**[[Fr. Stephen De Young]]:** [Listen from [08:08:70](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=08:08:70) So a couple months ago. But also last year. Um, where we talked about about change and we focused in those episodes on continuity. We focused on the idea that even though there's apparent change in humanity and human relations and religion in particular, and Christianity in particular particular, that there is an underlying continuity that sort of undergirds that apparent change. And so we talked about, we really stressed the idea that there's continuity like throughout the scripture, right? From beginning to end. And we even went sort of before that. We talked about how there's a continuity, there's a religious continuity going all the way back to, you know, your primitive hunter-gatherers, like all the way back, obviously, to your first humans, right? Um, so we were focused on the continuity that night. Tonight we're going to talk more about the change, right? The things that change. And how to understand that. Because we take it for granted that the idea of continuity and the idea of change are directly opposed to each other. Continuity means no change, and change means a lack of continuity. And tonight we're going to argue that that's not necessarily the case.
 
-[Listen from 09:42:85](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=09:42:85) Also, in a number of past episodes, here's where we're going to start, in a number of our past episodes, we've talked about, as exemplified by 19th-century Germans, the idea of sort of an evolutionary progress.
+[Listen from [09:42:85](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=09:42:85) Also, in a number of past episodes, here's where we're going to start, in a number of our past episodes, we've talked about, as exemplified by 19th-century Germans, the idea of sort of an evolutionary progress.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:04:84](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:04:84) The idea that, you know, and going with that, in the case of the 19th-century Germans, and, you know, fill in whoever else, 19th-century folks in the British Empire, late 20th-century Americans, you throw in whoever else you want with this, saw themselves as sort of the pinnacle of all human everything, right? Like all human achievement.
+**[[Fr. Stephen De Young]]:** [Listen from [10:04:84](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:04:84) The idea that, you know, and going with that, in the case of the 19th-century Germans, and, you know, fill in whoever else, 19th-century folks in the British Empire, late 20th-century Americans, you throw in whoever else you want with this, saw themselves as sort of the pinnacle of all human everything, right? Like all human achievement.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 10:33:63](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:33:63) I mean, humans tend to do that.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [10:33:63](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:33:63) I mean, humans tend to do that.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:37:40](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:37:40) Yeah, right? Everything was leading up to them. Well, you know, I I don't think that's true. See, we live in America, and I think we assume this. I I don't think the people who live in Liechtenstein are like, "Liechtenstein is the greatest country on Earth."
+**[[Fr. Stephen De Young]]:** [Listen from [10:37:40](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:37:40) Yeah, right? Everything was leading up to them. Well, you know, I I don't think that's true. See, we live in America, and I think we assume this. I I don't think the people who live in Liechtenstein are like, "Liechtenstein is the greatest country on Earth."
 
 **[[Fr. Andrew Stephen Damick]]:** That I'll give. But like [[Babylon]], [[Babylon]] saw itself as...
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:54:67](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:54:67) Yes. No, it's the empire at the top tends to do that.
+**[[Fr. Stephen De Young]]:** [Listen from [10:54:67](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:54:67) Yes. No, it's the empire at the top tends to do that.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:58:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:58:34) Like, but, you know, Switzerland isn't walking around going, you know, "Greatest country on Earth, God's favorite people, Switzerland, the Swiss," you know? I I just I don't think that's their thing.
+**[[Fr. Stephen De Young]]:** [Listen from [10:58:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=10:58:34) Like, but, you know, Switzerland isn't walking around going, you know, "Greatest country on Earth, God's favorite people, Switzerland, the Swiss," you know? I I just I don't think that's their thing.
 
 **[[Fr. Andrew Stephen Damick]]:** Switzerland and biblical prophecy.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:10:48](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=11:10:48) Yeah, like, not their vibe. Um, and so, you know, I think most of our listeners, and I think most serious Christians who are even vaguely traditional, aren't prone to deliberately going down that road, right? Um, we may get sucked into it, you know, patriotism and nationalistic fervor and things. We may get sucked into a little bit of that kind of thinking sometimes. Um, but that's not really where we're at, right? Most most serious, even vaguely traditional Christians are not going full Hegel, right? Um, but there is sort of another version of this that we do more often fall prey to. Or at least there's a much greater potential for us to fall prey to it.
+**[[Fr. Stephen De Young]]:** [Listen from [11:10:48](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=11:10:48) Yeah, like, not their vibe. Um, and so, you know, I think most of our listeners, and I think most serious Christians who are even vaguely traditional, aren't prone to deliberately going down that road, right? Um, we may get sucked into it, you know, patriotism and nationalistic fervor and things. We may get sucked into a little bit of that kind of thinking sometimes. Um, but that's not really where we're at, right? Most most serious, even vaguely traditional Christians are not going full Hegel, right? Um, but there is sort of another version of this that we do more often fall prey to. Or at least there's a much greater potential for us to fall prey to it.
 
-[Listen from 12:11:80](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=12:11:80) And that's the idea, not so much that sort of we're, at least we wouldn't say we're at the pinnacle of, right, all human history, all human history leads to us. If someone pointed out, "Really?" you know, if we were saying something along those lines, we'd go, "Well, okay, yeah," right? Um, but we do have this very firm idea, and this is often considered by people to be a Christian idea. I'm going to argue it's not, right, but it's considered to be a Christian idea that there is to history, to time, to the existence of this world, this creation, this cosmos, that there is a teleology to it. And teleology, of course, comes from the Greek word *telos*.
+[Listen from [12:11:80](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=12:11:80) And that's the idea, not so much that sort of we're, at least we wouldn't say we're at the pinnacle of, right, all human history, all human history leads to us. If someone pointed out, "Really?" you know, if we were saying something along those lines, we'd go, "Well, okay, yeah," right? Um, but we do have this very firm idea, and this is often considered by people to be a Christian idea. I'm going to argue it's not, right, but it's considered to be a Christian idea that there is to history, to time, to the existence of this world, this creation, this cosmos, that there is a teleology to it. And teleology, of course, comes from the Greek word *telos*.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:07:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:07:37) Meaning purpose or end.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:07:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:07:37) Meaning purpose or end.
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:09:23](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:09:23) Right, which, yeah, literally means end, but means end in the sense of ends and means.
+**[[Fr. Stephen De Young]]:** [Listen from [13:09:23](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:09:23) Right, which, yeah, literally means end, but means end in the sense of ends and means.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:17:11](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:17:11) Yeah, I mean, we use "end" in the same way in English. Like, "That's the end of my day," but also I could say, "Well, this was my true end."
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:17:11](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:17:11) Yeah, I mean, we use "end" in the same way in English. Like, "That's the end of my day," but also I could say, "Well, this was my true end."
 
 **[[Fr. Stephen De Young]]:** Right. Yeah. Right. Yeah, there's "The end of my day was midnight," or there's "The end of my day was accomplishing all these tasks," right?
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:35:86](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:35:86) We mean the second one of those, right? Um, and this is one of, famously, one of Aristotle's four causes, is the final cause, the purpose for which something is made, right? Something's purpose. So tied in with this idea of teleology, this idea of there being a goal, right, that that all of history, all of time and space, this cosmos, this world is moving toward a goal. Um, is very much then tied in with the concept of purpose. And that purpose can often be tied in with our ideas of meaning, right? That that purpose then, someone might say, is what gives meaning to various things. Yeah. Um, so sometimes this is laid out, right, when it's when it's talked about. And when it's attributed to Christianity or to quote-unquote the Judeo-Christian tradition, what that whatever that is, um, is in terms of philosophy of history. And this is going to sound very crude, but I can show you plenty of books, history books and philosophy of history books from like the 1960s that present this exactly this way, um, which is that, you know, pre outside of Judaism and Christianity or outside of biblical religion, right, um, they will say that ancient people had a cyclical view of time.
+**[[Fr. Stephen De Young]]:** [Listen from [13:35:86](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=13:35:86) We mean the second one of those, right? Um, and this is one of, famously, one of Aristotle's four causes, is the final cause, the purpose for which something is made, right? Something's purpose. So tied in with this idea of teleology, this idea of there being a goal, right, that that all of history, all of time and space, this cosmos, this world is moving toward a goal. Um, is very much then tied in with the concept of purpose. And that purpose can often be tied in with our ideas of meaning, right? That that purpose then, someone might say, is what gives meaning to various things. Yeah. Um, so sometimes this is laid out, right, when it's when it's talked about. And when it's attributed to Christianity or to quote-unquote the Judeo-Christian tradition, what that whatever that is, um, is in terms of philosophy of history. And this is going to sound very crude, but I can show you plenty of books, history books and philosophy of history books from like the 1960s that present this exactly this way, um, which is that, you know, pre outside of Judaism and Christianity or outside of biblical religion, right, um, they will say that ancient people had a cyclical view of time.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 15:27:14](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=15:27:14) That that time and the cosmos, the cosmos just kind of followed these cycles that repeated over and over again ad infinitum, not going anywhere, right, not necessarily aimed at anything. Whereas they will say, Judaism and Christianity, biblical religion argues that there is a beginning to time and history and space and the universe and an ending. And they will say therefore—now we're going to quit, we're going to interrogate this a little—but they will say therefore, they will say this is linear time, that time, space, the universe, everyone and everything in it are going from point A to point B. They're on a journey from point A to point B. And therefore there is this teleology. Right? And so then if you hold to that kind of view of history, then the idea of progress is a natural outgrowth to it because history, time, everything has this destination point it's headed toward. If you're moving toward that destination, that's progress.
+**[[Fr. Stephen De Young]]:** [Listen from [15:27:14](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=15:27:14) That that time and the cosmos, the cosmos just kind of followed these cycles that repeated over and over again ad infinitum, not going anywhere, right, not necessarily aimed at anything. Whereas they will say, Judaism and Christianity, biblical religion argues that there is a beginning to time and history and space and the universe and an ending. And they will say therefore—now we're going to quit, we're going to interrogate this a little—but they will say therefore, they will say this is linear time, that time, space, the universe, everyone and everything in it are going from point A to point B. They're on a journey from point A to point B. And therefore there is this teleology. Right? And so then if you hold to that kind of view of history, then the idea of progress is a natural outgrowth to it because history, time, everything has this destination point it's headed toward. If you're moving toward that destination, that's progress.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 16:53:77](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=16:53:77) Right? Yeah, otherwise it's regress, right? If you're headed in the other direction, right? Away from it. Um, now it is true, it is true that in order to have a sense of teleology like this, you do kind of need to have, it's difficult to have it without having a beginning and an end.
+**[[Fr. Stephen De Young]]:** [Listen from [16:53:77](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=16:53:77) Right? Yeah, otherwise it's regress, right? If you're headed in the other direction, right? Away from it. Um, now it is true, it is true that in order to have a sense of teleology like this, you do kind of need to have, it's difficult to have it without having a beginning and an end.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, of course.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:21:73](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=17:21:73) Right? If time is a flat circle, then, right, it's very hard to argue that it's progressing towards something.
+**[[Fr. Stephen De Young]]:** [Listen from [17:21:73](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=17:21:73) Right? If time is a flat circle, then, right, it's very hard to argue that it's progressing towards something.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:29:40](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=17:29:40) Other than just going around in a circle, right? Um, but the fact that you have a beginning and an end—this is what we're going to be exploring more here now—is, the fact that there is a beginning to time and to this universe and this world and this life, and that there's an end to our life in this world and to this world itself and this age, right? That does not necessarily mean that it is progressing toward a particular point.
+**[[Fr. Stephen De Young]]:** [Listen from [17:29:40](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=17:29:40) Other than just going around in a circle, right? Um, but the fact that you have a beginning and an end—this is what we're going to be exploring more here now—is, the fact that there is a beginning to time and to this universe and this world and this life, and that there's an end to our life in this world and to this world itself and this age, right? That does not necessarily mean that it is progressing toward a particular point.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 18:02:40](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=18:02:40) Yeah, I mean, like the piece of paper in my hand has a beginning and an end, but that doesn't mean anything. It's just...
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [18:02:40](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=18:02:40) Yeah, I mean, like the piece of paper in my hand has a beginning and an end, but that doesn't mean anything. It's just...
 
 **[[Fr. Stephen De Young]]:** Yeah.
 
 **[[Fr. Andrew Stephen Damick]]:** That's a fact about it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 18:11:47](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=18:11:47) Right. Right. Um, so it can mean, right, like a book, if it's a decent book, right, doesn't just start at some random point and end at some random point, right? There is a... there is a teleology to a book. There's a story that's being told, the narrative is progressing from point A to point B, right? Or if it's a non-fiction book, right, whatever it's describing, whatever it's laying out, right, you start at point A and you move to point B in terms of laying out the whole case or the whole all of the information in an orderly way, right? Um, but a rock, right, is finite, right? But it does not in and of itself, the rock does not in and of itself, right, there's not a purpose signified by the fact that this rock is three inches in diameter and this other rock is four inches in diameter. Right? Um, so you can have a view of time in this world that is not cyclical, but that also isn't sort of moment by moment, day by day, step by step making advances toward some end point. We're going to get into more what that means here now. Um, now it may be a hard sell, like you may be hearing me say that and be going, "What? Like, of course it does." Right? Like...
+**[[Fr. Stephen De Young]]:** [Listen from [18:11:47](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=18:11:47) Right. Right. Um, so it can mean, right, like a book, if it's a decent book, right, doesn't just start at some random point and end at some random point, right? There is a... there is a teleology to a book. There's a story that's being told, the narrative is progressing from point A to point B, right? Or if it's a non-fiction book, right, whatever it's describing, whatever it's laying out, right, you start at point A and you move to point B in terms of laying out the whole case or the whole all of the information in an orderly way, right? Um, but a rock, right, is finite, right? But it does not in and of itself, the rock does not in and of itself, right, there's not a purpose signified by the fact that this rock is three inches in diameter and this other rock is four inches in diameter. Right? Um, so you can have a view of time in this world that is not cyclical, but that also isn't sort of moment by moment, day by day, step by step making advances toward some end point. We're going to get into more what that means here now. Um, now it may be a hard sell, like you may be hearing me say that and be going, "What? Like, of course it does." Right? Like...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 19:55:76](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=19:55:76) We experience time in one direction, right? Like...
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [19:55:76](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=19:55:76) We experience time in one direction, right? Like...
 
-**[[Fr. Stephen De Young]]:** [Listen from 20:00:81](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:00:81) Not in all directions. Right? Like obviously, you know, like today I did X, Y, Z, that represents progress toward this goal I have, right? And...
+**[[Fr. Stephen De Young]]:** [Listen from [20:00:81](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:00:81) Not in all directions. Right? Like obviously, you know, like today I did X, Y, Z, that represents progress toward this goal I have, right? And...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 20:13:69](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:13:69) Right. Well, and even like even in scripture, you've got, for instance, the sense of progress towards the coming of the [[Messiah]]. Right? There's all these things that are kind of pointing, you know, in that direction. And then finally you get there.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [20:13:69](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:13:69) Right. Well, and even like even in scripture, you've got, for instance, the sense of progress towards the coming of the [[Messiah]]. Right? There's all these things that are kind of pointing, you know, in that direction. And then finally you get there.
 
-**[[Fr. Stephen De Young]]:** [Listen from 20:28:13](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:28:13) Right, but see, well, even there. That's a good example.
+**[[Fr. Stephen De Young]]:** [Listen from [20:28:13](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:28:13) Right, but see, well, even there. That's a good example.
 
 **[[Fr. Andrew Stephen Damick]]:** Okay. Yeah, yeah. I'm just throwing it out, right? It's like, that's what...
 
-**[[Fr. Stephen De Young]]:** [Listen from 20:37:61](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:37:61) See, that's a that's a good that's a good example because there is a certain... So, when you've been around Christianity for a while...
+**[[Fr. Stephen De Young]]:** [Listen from [20:37:61](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:37:61) See, that's a that's a good that's a good example because there is a certain... So, when you've been around Christianity for a while...
 
 **[[Fr. Andrew Stephen Damick]]:** Like the fullness of time, is that what that means?
 
-**[[Fr. Stephen De Young]]:** [Listen from 20:47:75](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:47:75) We'll interpret that fullness of time to mean like, and you'll get lists of things sometimes. Well, there was the Roman roads, and there's, you know, the Greek language was spread all over the place, and yada yada yada, right? There'll be a list of things. And it'll be like, okay, well, each of these things, right? And and if you if you really, like, dig into that, and what that entails, that entails, for example, that [[Alexander the Great]] conquering most of the known world was like a step toward what was necessary for [[Jesus]] the [[Messiah]] to be born.
+**[[Fr. Stephen De Young]]:** [Listen from [20:47:75](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=20:47:75) We'll interpret that fullness of time to mean like, and you'll get lists of things sometimes. Well, there was the Roman roads, and there's, you know, the Greek language was spread all over the place, and yada yada yada, right? There'll be a list of things. And it'll be like, okay, well, each of these things, right? And and if you if you really, like, dig into that, and what that entails, that entails, for example, that [[Alexander the Great]] conquering most of the known world was like a step toward what was necessary for [[Jesus]] the [[Messiah]] to be born.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:29:43](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=21:29:43) and into those things, right? But I know I've said this before on the show, I would interrogate that a little bit, right?
+**[[Fr. Stephen De Young]]:** [Listen from [21:29:43](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=21:29:43) and into those things, right? But I know I've said this before on the show, I would interrogate that a little bit, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Okay, yeah, yeah. I'm just throwing that out as the kind of thing that that someone might say, "Well, what about this? I mean, that's pretty straightforward, isn't it?"
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:50:35](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=21:50:35) Right, like the but, you know, that that's kind of an *a posteriori* thing.
+**[[Fr. Stephen De Young]]:** [Listen from [21:50:35](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=21:50:35) Right, like the but, you know, that that's kind of an *a posteriori* thing.
 
 **[[Fr. Andrew Stephen Damick]]:** Okay.
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:55:69](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=21:55:69) You're assuming, so you're assuming there were a bunch of things that had to fall into place in order for the [[Messiah]] to be born. And then you're looking at when the [[Messiah]] was actually born and trying to figure out what those things are based on that, right? But like, sure, Roman roads allowed for travel. But if you'd waited another couple hundred years, you would have had better boat technology.
+**[[Fr. Stephen De Young]]:** [Listen from [21:55:69](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=21:55:69) You're assuming, so you're assuming there were a bunch of things that had to fall into place in order for the [[Messiah]] to be born. And then you're looking at when the [[Messiah]] was actually born and trying to figure out what those things are based on that, right? But like, sure, Roman roads allowed for travel. But if you'd waited another couple hundred years, you would have had better boat technology.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
 **[[Fr. Stephen De Young]]:** Right? If you'd waited a couple thousand more years, you'd have the internet.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 22:28:65](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:28:65) Well, I don't know how well that's going, but...
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [22:28:65](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:28:65) Well, I don't know how well that's going, but...
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:32:38](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:32:38) Right, but you know what I mean, right?
+**[[Fr. Stephen De Young]]:** [Listen from [22:32:38](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:32:38) Right, but you know what I mean, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, of course. Of course, right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:34:67](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:34:67) Like, it's we need this technology, we need the Greek language so that the gospel could be spread. It's like, well, you know, you could have waited for Duolingo. Translate stuff out of Greek. Like, you could have...
+**[[Fr. Stephen De Young]]:** [Listen from [22:34:67](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:34:67) Like, it's we need this technology, we need the Greek language so that the gospel could be spread. It's like, well, you know, you could have waited for Duolingo. Translate stuff out of Greek. Like, you could have...
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:47:31](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:47:31) right, like, like, it sort of begs the question of like, well, but wait, could there haven't there been things later that were even better at doing that, right? Um, arguably before the Bronze Age collapse, right? Like. Um, so, yeah, when it talks about the fullness of time, when it says when the time was right, basically means when the time was right.
+**[[Fr. Stephen De Young]]:** [Listen from [22:47:31](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=22:47:31) right, like, like, it sort of begs the question of like, well, but wait, could there haven't there been things later that were even better at doing that, right? Um, arguably before the Bronze Age collapse, right? Like. Um, so, yeah, when it talks about the fullness of time, when it says when the time was right, basically means when the time was right.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:15:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=23:15:37) And then we're trying to sort of come in and read God's mind about why was that when the time was right, you know? Um, but yeah, so that's not necessarily the case, right? That could be the moment [[Christ]] chose to become incarnate. Um, and it also, see, it also implies then that if you take that view that if if any of those things had gone differently, that somehow [[Christ]] couldn't have been born.
+**[[Fr. Stephen De Young]]:** [Listen from [23:15:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=23:15:37) And then we're trying to sort of come in and read God's mind about why was that when the time was right, you know? Um, but yeah, so that's not necessarily the case, right? That could be the moment [[Christ]] chose to become incarnate. Um, and it also, see, it also implies then that if you take that view that if if any of those things had gone differently, that somehow [[Christ]] couldn't have been born.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:51:19](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=23:51:19) And then our Calvinist friends come creeping back in over the horizon like, "Yes, see? So God had to control everything."
+**[[Fr. Stephen De Young]]:** [Listen from [23:51:19](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=23:51:19) And then our Calvinist friends come creeping back in over the horizon like, "Yes, see? So God had to control everything."
 
 **[[Fr. Andrew Stephen Damick]]:** They rub their hands together, twisting their mustaches.
 
@@ -233,53 +233,53 @@ And tonight, I scarcely have any idea what monological dronings on [[Father Step
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:16:11](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=24:16:11) And and we and our parents and our children and animals and plants, right, are sort of born and then grow to maturity. Or sprout and grow to maturity. Right? And so, and this is getting at what Aristotle was talking about when he talked about a final cause, right? The final cause of the acorn is the oak tree, right? Like it's...
+**[[Fr. Stephen De Young]]:** [Listen from [24:16:11](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=24:16:11) And and we and our parents and our children and animals and plants, right, are sort of born and then grow to maturity. Or sprout and grow to maturity. Right? And so, and this is getting at what Aristotle was talking about when he talked about a final cause, right? The final cause of the acorn is the oak tree, right? Like it's...
 
 **[[Fr. Andrew Stephen Damick]]:** This is what the will is all about.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:43:99](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=24:43:99) It's yeah, it's what it grows into, right? Now, of course, then you also have to take into account Aristotle then had, uh, you know, it's on generation and corruption, right? That after things reached that goal, it then withered and died because, of course, he had kind of a cyclical view of everything, right? Like it's this cycle. You grow to maturity and then you decay. Um, but maturity, the kind of maturity we're talking about, right, is not necessarily the same thing as we're talking about like biological maturity, right? Um, that's not the same thing as purpose. So if if you run into a 15-year-old somewhere who thinks, you know, life is meaningless and everything stinks, they're struggling to find a sense of purpose. And you say to them, "Well, no, you're growing and your body is maturing, and someday you'll be 30." That's not going to answer their fundamental questions.
+**[[Fr. Stephen De Young]]:** [Listen from [24:43:99](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=24:43:99) It's yeah, it's what it grows into, right? Now, of course, then you also have to take into account Aristotle then had, uh, you know, it's on generation and corruption, right? That after things reached that goal, it then withered and died because, of course, he had kind of a cyclical view of everything, right? Like it's this cycle. You grow to maturity and then you decay. Um, but maturity, the kind of maturity we're talking about, right, is not necessarily the same thing as we're talking about like biological maturity, right? Um, that's not the same thing as purpose. So if if you run into a 15-year-old somewhere who thinks, you know, life is meaningless and everything stinks, they're struggling to find a sense of purpose. And you say to them, "Well, no, you're growing and your body is maturing, and someday you'll be 30." That's not going to answer their fundamental questions.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 25:51:86](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=25:51:86) about the world, right? They're going to ignore you and go back to listening to Silversun Pickups and crying softly to themselves or whatever they do now. Um, I'm old. Um, but it's it's so you could kind of strip away the divine, or you could you could go full Hegel, right? You can collapse the divine into the creation, right? into this world and this creation. Yeah. So that God is sort of, it's not that God is completely separate from it, it's that he's completely in it all the time and sort of he's developing too, right? Yeah. Um, and the the two are coming together, right? Um, so the question sort of comes down to, this is where we're kind of going to end this first half, right? If you're going to say that there is an end of history, right? In the sense of purpose, what do you, what do you mean by that? Right? Or what is that purpose? What do what would you do you posit that that is? And there are some, there have been some suggestions, right? So there's a book, *The End of History*, by Francis Fukuyama, that's kind of famous/infamous, um, where he argued that history ended when, um, communism collapsed. Hmm. When the Soviet bloc collapsed, essentially. Um, because he is was a Hegelian of a type. I would say he was a dialectical materialist of a sort. You know, I don't want to, I'm not saying he's a full-blown Marxist, but, um, but so his idea was that what causes history to progress and the world to progress and change is this sort of thesis-antithesis thing, right, which is not Hegel, but a lot of Hegelian types have views that roughly work that way. And so for him, for example, what was causing 20th-century history to progress in the world, he's talking about world history, and move forward was this dialectical relationship between Western capitalism and Eastern Bloc communism, right? That they presented these two in some ways opposed alternatives, them bashing against each other was what was moving things forward. Soviet Bloc collapses, pretty much the whole world becomes, you know, late capitalist, neoliberal paradise or hellscape, depending on your point of view. Um, and so history's over. There's nowhere to go anymore. Nobody can think of any alternatives. This is just it, right? So most, most folks, I would wager, who are listeners to this show, would not propose that because that's not their view of history. They're not into the whole dialectical thing. Um, what the kind that comes into Christianity is more the idea that this world, this creation, history is going to achieve some kind of final form. Right? This isn't even its final form, but there is one. Um, and that could take a wide range, right? That could be like a post-millennialist, that could be like the kingdom of God on Earth. Um, a, uh, and some forms of religious Judaism, that's essentially their end game, right? They think the [[Messiah]] comes into this world and basically just this world is transformed and becomes really cool. Um, that's sort of process-wise. Um, but this could also be completely atheistic. I mean, this could be technocratic, right? This could be like, "Oh, well, we use AI and computers to like recreate everyone who's ever lived into the great computer at the end of the, you know, things," or you can go all kinds of weird...
+**[[Fr. Stephen De Young]]:** [Listen from [25:51:86](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=25:51:86) about the world, right? They're going to ignore you and go back to listening to Silversun Pickups and crying softly to themselves or whatever they do now. Um, I'm old. Um, but it's it's so you could kind of strip away the divine, or you could you could go full Hegel, right? You can collapse the divine into the creation, right? into this world and this creation. Yeah. So that God is sort of, it's not that God is completely separate from it, it's that he's completely in it all the time and sort of he's developing too, right? Yeah. Um, and the the two are coming together, right? Um, so the question sort of comes down to, this is where we're kind of going to end this first half, right? If you're going to say that there is an end of history, right? In the sense of purpose, what do you, what do you mean by that? Right? Or what is that purpose? What do what would you do you posit that that is? And there are some, there have been some suggestions, right? So there's a book, *The End of History*, by Francis Fukuyama, that's kind of famous/infamous, um, where he argued that history ended when, um, communism collapsed. Hmm. When the Soviet bloc collapsed, essentially. Um, because he is was a Hegelian of a type. I would say he was a dialectical materialist of a sort. You know, I don't want to, I'm not saying he's a full-blown Marxist, but, um, but so his idea was that what causes history to progress and the world to progress and change is this sort of thesis-antithesis thing, right, which is not Hegel, but a lot of Hegelian types have views that roughly work that way. And so for him, for example, what was causing 20th-century history to progress in the world, he's talking about world history, and move forward was this dialectical relationship between Western capitalism and Eastern Bloc communism, right? That they presented these two in some ways opposed alternatives, them bashing against each other was what was moving things forward. Soviet Bloc collapses, pretty much the whole world becomes, you know, late capitalist, neoliberal paradise or hellscape, depending on your point of view. Um, and so history's over. There's nowhere to go anymore. Nobody can think of any alternatives. This is just it, right? So most, most folks, I would wager, who are listeners to this show, would not propose that because that's not their view of history. They're not into the whole dialectical thing. Um, what the kind that comes into Christianity is more the idea that this world, this creation, history is going to achieve some kind of final form. Right? This isn't even its final form, but there is one. Um, and that could take a wide range, right? That could be like a post-millennialist, that could be like the kingdom of God on Earth. Um, a, uh, and some forms of religious Judaism, that's essentially their end game, right? They think the [[Messiah]] comes into this world and basically just this world is transformed and becomes really cool. Um, that's sort of process-wise. Um, but this could also be completely atheistic. I mean, this could be technocratic, right? This could be like, "Oh, well, we use AI and computers to like recreate everyone who's ever lived into the great computer at the end of the, you know, things," or you can go all kinds of weird...
 
 **[[Fr. Andrew Stephen Damick]]:** Robotic police force now. Everything will be great.
 
-**[[Fr. Stephen De Young]]:** [Listen from 38:50:15](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=38:50:15) Yeah, technocratic simulation theory stuff, you could do that. You can just in general say, "Hey, you know, just be a straight like progressive liberal type and just be like, hey, you know, more and more every day, people are realizing, you know, the brotherhood of all of humanity and, you know, we just need to finish stripping away these trappings of of religion and and nationalism and all these things, and someday the whole world will be one and hold hands and buy each other a Coke and live in perfect harmony."
+**[[Fr. Stephen De Young]]:** [Listen from [38:50:15](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=38:50:15) Yeah, technocratic simulation theory stuff, you could do that. You can just in general say, "Hey, you know, just be a straight like progressive liberal type and just be like, hey, you know, more and more every day, people are realizing, you know, the brotherhood of all of humanity and, you know, we just need to finish stripping away these trappings of of religion and and nationalism and all these things, and someday the whole world will be one and hold hands and buy each other a Coke and live in perfect harmony."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:27:14](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=39:27:14) I didn't think we were going there, but here we are.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:27:14](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=39:27:14) I didn't think we were going there, but here we are.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:29:66](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=39:29:66) Yeah. And apparently you still have neoliberal capitalism because you still have to buy the Coke. Um, yes. But but it's all that there's going to be this sort of final, but that final form, it's this is different than the idea what we talk about in in the church in the Nicene Creed where we talk about the world to come.
+**[[Fr. Stephen De Young]]:** [Listen from [39:29:66](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=39:29:66) Yeah. And apparently you still have neoliberal capitalism because you still have to buy the Coke. Um, yes. But but it's all that there's going to be this sort of final, but that final form, it's this is different than the idea what we talk about in in the church in the Nicene Creed where we talk about the world to come.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, age to come.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:00:26](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:00:26) Okay, because this is, the world to come is just this world after having achieved certain things. Yeah. And that we make concrete progress day by day in changing this into that. Yeah, it it graduates. Um, as opposed to what is actually the traditional Christian view, and which was the view of the coming of the [[Messiah]] in [[Second Temple]] Judaism, by and large, which is that, for us [[Christ]]'s return, where we stand now, is going to be an intrusion. It's going to be an interruption.
+**[[Fr. Stephen De Young]]:** [Listen from [40:00:26](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:00:26) Okay, because this is, the world to come is just this world after having achieved certain things. Yeah. And that we make concrete progress day by day in changing this into that. Yeah, it it graduates. Um, as opposed to what is actually the traditional Christian view, and which was the view of the coming of the [[Messiah]] in [[Second Temple]] Judaism, by and large, which is that, for us [[Christ]]'s return, where we stand now, is going to be an intrusion. It's going to be an interruption.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 40:44:60](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:44:60) Like a thief in the night.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [40:44:60](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:44:60) Like a thief in the night.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:46:81](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:46:81) Like a thief in the night, or as in the days of [[Noah]].
+**[[Fr. Stephen De Young]]:** [Listen from [40:46:81](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:46:81) Like a thief in the night, or as in the days of [[Noah]].
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:51:17](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:51:17) People will be being married and given in marriage, right?
+**[[Fr. Stephen De Young]]:** [Listen from [40:51:17](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:51:17) People will be being married and given in marriage, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Right. Bam.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:54:92](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:54:92) Focus on what that means, right? In the days of [[Noah]], there was someone who got married the day before the rain started.
+**[[Fr. Stephen De Young]]:** [Listen from [40:54:92](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=40:54:92) Focus on what that means, right? In the days of [[Noah]], there was someone who got married the day before the rain started.
 
 **[[Fr. Andrew Stephen Damick]]:** Yep.
 
-**[[Fr. Stephen De Young]]:** [Listen from 41:05:43](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=41:05:43) There's someone who had a baby, a new baby, a day before the rain started. Right? That and then there is this interruption, and then that can come at any time, right? That's the traditional... that's the traditional Christian view.
+**[[Fr. Stephen De Young]]:** [Listen from [41:05:43](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=41:05:43) There's someone who had a baby, a new baby, a day before the rain started. Right? That and then there is this interruption, and then that can come at any time, right? That's the traditional... that's the traditional Christian view.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 41:21:65](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=41:21:65) It's not something that humanity achieves; it's something that God visits upon us.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [41:21:65](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=41:21:65) It's not something that humanity achieves; it's something that God visits upon us.
 
-**[[Fr. Stephen De Young]]:** [Listen from 41:26:22](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=41:26:22) Right. And that's why, and we've talked about this a little bit before on the show, but that's why this idea that like, uh, the the the apostles all thought [[Jesus]] was going to come in their lifetimes, and then they had to sort of rearrange all their theology when he didn't, right? This is where that falls apart because they thought it was going to be an interruption. Yeah. Right? They didn't think there were some set number of things that needed to happen and then boom.
+**[[Fr. Stephen De Young]]:** [Listen from [41:26:22](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=41:26:22) Right. And that's why, and we've talked about this a little bit before on the show, but that's why this idea that like, uh, the the the apostles all thought [[Jesus]] was going to come in their lifetimes, and then they had to sort of rearrange all their theology when he didn't, right? This is where that falls apart because they thought it was going to be an interruption. Yeah. Right? They didn't think there were some set number of things that needed to happen and then boom.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. After all, no man knows the day or the hour.
 
 **[[Fr. Stephen De Young]]:** Right. Yeah. Or the month or the year. We have to specify because of wild people out there. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 42:08:79](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=42:08:79) All right. Well, that's the first half of this episode of the [[Lord of Spirits]] podcast. We'll be right back.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [42:08:79](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=42:08:79) All right. Well, that's the first half of this episode of the [[Lord of Spirits]] podcast. We'll be right back.
 
 **Voice of Steve:** [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young will be back in a moment to take your calls on the next part of the [[Lord of Spirits]]. Give them a call at 855-237-2346. That's 855-AF-Radio.
 
@@ -287,59 +287,59 @@ The centuries after the [[Protestant]] Reformation brought about a radical reint
 
 We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young. If you have a question, call now at 855-237-2346. That's 855-AF-Radio.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 43:49:55](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=43:49:55) Thanks, Voice of Steve. Welcome back, everybody. Second half of this episode of the [[Lord of Spirits]] podcast where we're talking about time, once again. Kind of, it just we keep cycling back to it because after all, this podcast isn't leading to anywhere in particular. It's just going to someday be interrupted. That's right. It's just going to suddenly end. We like to leave people on edge, on the edge of your seats, as to when exactly this podcast is going to end. We may not announce it, you know. We might announce it like suddenly and you will everyone will be talking about it and you will not have listened to the episode yet.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [43:49:55](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=43:49:55) Thanks, Voice of Steve. Welcome back, everybody. Second half of this episode of the [[Lord of Spirits]] podcast where we're talking about time, once again. Kind of, it just we keep cycling back to it because after all, this podcast isn't leading to anywhere in particular. It's just going to someday be interrupted. That's right. It's just going to suddenly end. We like to leave people on edge, on the edge of your seats, as to when exactly this podcast is going to end. We may not announce it, you know. We might announce it like suddenly and you will everyone will be talking about it and you will not have listened to the episode yet.
 
-**[[Fr. Stephen De Young]]:** [Listen from 44:24:26](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:24:26) We may announce it after the fact. We may announce it retroactively. We may say three episodes ago was the last episode just to confuse you.
+**[[Fr. Stephen De Young]]:** [Listen from [44:24:26](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:24:26) We may announce it after the fact. We may announce it retroactively. We may say three episodes ago was the last episode just to confuse you.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 44:31:73](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:31:73) And then finally I will get a lot of hate mail.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [44:31:73](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:31:73) And then finally I will get a lot of hate mail.
 
 **[[Fr. Stephen De Young]]:** Now you just get a little.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 44:37:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:37:37) I get a decent amount.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [44:37:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:37:37) I get a decent amount.
 
-**[[Fr. Stephen De Young]]:** [Listen from 44:38:64](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:38:64) They had the commercial for my book, by the way. And, uh, I have to say that that book is now, uh, battle-tested.
+**[[Fr. Stephen De Young]]:** [Listen from [44:38:64](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:38:64) They had the commercial for my book, by the way. And, uh, I have to say that that book is now, uh, battle-tested.
 
 **[[Fr. Andrew Stephen Damick]]:** Oh, yeah?
 
-**[[Fr. Stephen De Young]]:** [Listen from 44:47:64](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:47:64) Because, uh, when was it? Two nights ago in the middle of the night, I spent three hours arguing with, uh, intelligent Jewish people about [[St. Paul]].
+**[[Fr. Stephen De Young]]:** [Listen from [44:47:64](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=44:47:64) Because, uh, when was it? Two nights ago in the middle of the night, I spent three hours arguing with, uh, intelligent Jewish people about [[St. Paul]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:01:21](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:01:21) I thought you were going to say like in the middle of the night you picked up your your author copy and had to smash a spider with it or something like that.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:01:21](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:01:21) I thought you were going to say like in the middle of the night you picked up your your author copy and had to smash a spider with it or something like that.
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:07:98](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:07:98) No. No, it was like 11 p.m. to 2 a.m.
+**[[Fr. Stephen De Young]]:** [Listen from [45:07:98](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:07:98) No. No, it was like 11 p.m. to 2 a.m.
 
 **[[Fr. Andrew Stephen Damick]]:** Is this on the YouTube? Was this a three-hour session with...
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:15:93](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:15:93) It was on a live stream in the middle of the night.
+**[[Fr. Stephen De Young]]:** [Listen from [45:15:93](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:15:93) It was on a live stream in the middle of the night.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. I know.
 
 **[[Fr. Stephen De Young]]:** So, uh, the things you childless people do. It was a good time for me. I don't know about anybody else, but...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:28:61](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:28:61) All right. So, since we're not going full Hegel, but you know, thesis...
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:28:61](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=45:28:61) All right. So, since we're not going full Hegel, but you know, thesis...
 
 **[[Fr. Stephen De Young]]:** Antithesis. Synthesis. No. No. Well, no. So, so where we went in the in the first half was the idea that, right, um, the end... there there is an end, right, in the sense of ending, right, there is an end of this world and then there's the world to come. Um, but that that is an interruption. Right? That is not a goal toward which things are progressing or being accomplished in order to bring it about. And since that's not a goal toward which things are progressing or which we're doing things to bring it about, um, that means that there can't be progress toward it. Right? So if you think that all of history is going to some final form and you think that final form is, you know, liberal utopia, then, you know, you could be doing things now to help bring that about, right? Um, if you're a post-millennialist, right, you could be doing things to try to bring that about. If you're, um, um, a technocratic type and you, you know, you could be working on the AI that's going to someday return everyone to life in the giant mainframe of the future. Um, right, you can you could work toward that, all those things, and and you could have a sense of, "Well, there's progress toward that and then there's other things that are regressive because they're leading away from that," right? But if [[Christ]]'s return is an interruption, then you don't have a sense of, "Well, we're progressing toward..." Or not, I mean, we're progressing in the sense that, like, it's a minute closer now than it was a minute ago, like de facto, right? But that's not how we usually use the term "progress," right?
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 47:28:38](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=47:28:38) Um, not progress toward it as a goal. Well, so that said, right, someone can come to us and say, "Well, okay, yeah, I agree. You're right, there's no progress. Right? There's no sense of progress. The world began at a certain point, it's going to end at a certain point. That's going to be an interruption. There's no progress. In fact, you know what? I've read me some [[Ecclesiastes]], uh, because I don't like being happy. Um, I've been listening to Silversun Pickups. Um, so and so, you know, I I uh there is as it says that there's nothing new under the sun. It's just the same old stuff, right?
+**[[Fr. Stephen De Young]]:** [Listen from [47:28:38](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=47:28:38) Um, not progress toward it as a goal. Well, so that said, right, someone can come to us and say, "Well, okay, yeah, I agree. You're right, there's no progress. Right? There's no sense of progress. The world began at a certain point, it's going to end at a certain point. That's going to be an interruption. There's no progress. In fact, you know what? I've read me some [[Ecclesiastes]], uh, because I don't like being happy. Um, I've been listening to Silversun Pickups. Um, so and so, you know, I I uh there is as it says that there's nothing new under the sun. It's just the same old stuff, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Vanity of vanities.
 
-**[[Fr. Stephen De Young]]:** [Listen from 48:16:71](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=48:16:71) Yeah, same old stuff. And uh, you know, there's no new ideas, there's no new thoughts that haven't been thought, there's nothing new, right? And this has produced, this kind of idea or reactions against what we could call progressivism—and I'm not using progressivism here just in the political sense.
+**[[Fr. Stephen De Young]]:** [Listen from [48:16:71](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=48:16:71) Yeah, same old stuff. And uh, you know, there's no new ideas, there's no new thoughts that haven't been thought, there's nothing new, right? And this has produced, this kind of idea or reactions against what we could call progressivism—and I'm not using progressivism here just in the political sense.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 48:43:95](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=48:43:95) Political progressivism is a kind of this. Uh, but, you know, Hegelianism is a kind of this, right? Any view that says that things are progressing toward a goal, reaction against that has typically been, uh, fallen into kinds of presentism. And the what we mean here in this case by these kinds of presentism are the idea that basically the world has always been the way it is now.
+**[[Fr. Stephen De Young]]:** [Listen from [48:43:95](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=48:43:95) Political progressivism is a kind of this. Uh, but, you know, Hegelianism is a kind of this, right? Any view that says that things are progressing toward a goal, reaction against that has typically been, uh, fallen into kinds of presentism. And the what we mean here in this case by these kinds of presentism are the idea that basically the world has always been the way it is now.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 49:15:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=49:15:37) Yeah, I mean, and people say this. Obviously, most people don't say that in the sense of like, you know, we have the same technology we've always had, but but often that, you know, well, people have always been this way, things are not getting worse, you know, kids have always disrespected their parents, you know, every generation thinks that the next generation is more degenerate, you know, all that kind of stuff.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [49:15:37](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=49:15:37) Yeah, I mean, and people say this. Obviously, most people don't say that in the sense of like, you know, we have the same technology we've always had, but but often that, you know, well, people have always been this way, things are not getting worse, you know, kids have always disrespected their parents, you know, every generation thinks that the next generation is more degenerate, you know, all that kind of stuff.
 
-**[[Fr. Stephen De Young]]:** [Listen from 49:37:74](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=49:37:74) Basically see the world the same way, we basically the old caveman and the old hunter-gatherer, we basically... Right.
+**[[Fr. Stephen De Young]]:** [Listen from [49:37:74](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=49:37:74) Basically see the world the same way, we basically the old caveman and the old hunter-gatherer, we basically... Right.
 
 **[[Fr. Andrew Stephen Damick]]:** Right, right, right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 49:46:16](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=49:46:16) And, you know, while obviously [[Father Andrew]] and I can sit here and phrase it in ways that no sane person would agree to, right? Um, but let's give some examples, at least one of which is is uh not super popular amongst portions of the audience, but sorry. Um, you get instances of things like Young Earth Creationism.
+**[[Fr. Stephen De Young]]:** [Listen from [49:46:16](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=49:46:16) And, you know, while obviously [[Father Andrew]] and I can sit here and phrase it in ways that no sane person would agree to, right? Um, but let's give some examples, at least one of which is is uh not super popular amongst portions of the audience, but sorry. Um, you get instances of things like Young Earth Creationism.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 50:14:48](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=50:14:48) I feel like Ken Ham should be a friend of the show.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [50:14:48](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=50:14:48) I feel like Ken Ham should be a friend of the show.
 
 **[[Fr. Stephen De Young]]:** No.
 
@@ -357,7 +357,7 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Andrew Stephen Damick]]:** Maybe I'm thinking of the Rest of His History again, where most of the friends of the show are dead.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:27:10](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=50:27:10) Yeah, no. Bart Ehrman's the only friend of the show because he's the only one who has the e-ticket. He calls in, he gets on the show anytime.
+**[[Fr. Stephen De Young]]:** [Listen from [50:27:10](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=50:27:10) Yeah, no. Bart Ehrman's the only friend of the show because he's the only one who has the e-ticket. He calls in, he gets on the show anytime.
 
 **[[Fr. Andrew Stephen Damick]]:** All right.
 
@@ -369,7 +369,7 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Andrew Stephen Damick]]:** We're the purpose of history.
 
-**[[Fr. Stephen De Young]]:** [Listen from 52:16:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=52:16:34) Which is a certain irony, Yes. right? Because the folks who hold to this are trying to get away from the idea of progress. Yeah. But have been kind of taken captive by the same idea. Um, and of course, there's a, there's an extension of this, right? Which is the argument that we commonly get from atheists and skeptics and and those kind of folks who will say like, "The Bible should have abolished slavery."
+**[[Fr. Stephen De Young]]:** [Listen from [52:16:34](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=52:16:34) Which is a certain irony, Yes. right? Because the folks who hold to this are trying to get away from the idea of progress. Yeah. But have been kind of taken captive by the same idea. Um, and of course, there's a, there's an extension of this, right? Which is the argument that we commonly get from atheists and skeptics and and those kind of folks who will say like, "The Bible should have abolished slavery."
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
@@ -377,9 +377,9 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Andrew Stephen Damick]]:** Pepperidge Farm remembers.
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:25:27](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:25:27) But nowadays, you know, your usual panoply of whatever the gender and sexuality nonsense is for this week. Um, I'm looking at you, Gen Alpha, bunch of gender accelerationists.
+**[[Fr. Stephen De Young]]:** [Listen from [55:25:27](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:25:27) But nowadays, you know, your usual panoply of whatever the gender and sexuality nonsense is for this week. Um, I'm looking at you, Gen Alpha, bunch of gender accelerationists.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:39:41](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:39:41) Have you heard there is now Gen Beta? Like apparently that exists now.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:39:41](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:39:41) Have you heard there is now Gen Beta? Like apparently that exists now.
 
 **[[Fr. Stephen De Young]]:** Well, that's sad, man.
 
@@ -387,17 +387,17 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Stephen De Young]]:** Does that imply that they're like Gen Alpha is like the dominant one?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:51:24](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:51:24) I know. Right. I don't know. I can't keep up.
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:51:24](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:51:24) I know. Right. I don't know. I can't keep up.
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:57:38](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:57:38) We'll have to see how that all pans out. Um, Yeah, there'll be a lot of us shaking our fists and going, "Kids these days." Um, right. But somehow because we now know, we know today that X, Y, and Z is right.
+**[[Fr. Stephen De Young]]:** [Listen from [55:57:38](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=55:57:38) We'll have to see how that all pans out. Um, Yeah, there'll be a lot of us shaking our fists and going, "Kids these days." Um, right. But somehow because we now know, we know today that X, Y, and Z is right.
 
 **[[Fr. Andrew Stephen Damick]]:** It's current year.
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:14:81](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=56:14:81) Yeah. And and we're right, of course, and so that means if Bible's really from God, then Bible should have taught this.
+**[[Fr. Stephen De Young]]:** [Listen from [56:14:81](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=56:14:81) Yeah. And and we're right, of course, and so that means if Bible's really from God, then Bible should have taught this.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:28:44](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=56:28:44) Right? Now, at least one of those is valid, right? Like abolishing slavery, good thing.
+**[[Fr. Stephen De Young]]:** [Listen from [56:28:44](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=56:28:44) Right? Now, at least one of those is valid, right? Like abolishing slavery, good thing.
 
 **[[Fr. Andrew Stephen Damick]]:** Yes.
 
@@ -405,7 +405,7 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, treating women like they're actual persons.
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:43:84](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=56:43:84) Yes. Right. How that's all worked out. Also, Yes. can be a good thing. It can be taken in some other weird directions too, but... Um, right? But the fact that that there's a valid point there doesn't mean that these are ideas that were thinkable at the time that these biblical texts were written.
+**[[Fr. Stephen De Young]]:** [Listen from [56:43:84](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=56:43:84) Yes. Right. How that's all worked out. Also, Yes. can be a good thing. It can be taken in some other weird directions too, but... Um, right? But the fact that that there's a valid point there doesn't mean that these are ideas that were thinkable at the time that these biblical texts were written.
 
 **[[Fr. Andrew Stephen Damick]]:** [Listen from 57:5:80](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=57:05:80) Yeah, I mean, as we would put it now, those were not a thing.
 
@@ -413,11 +413,11 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Andrew Stephen Damick]]:** You know, there wasn't a way to refer to that. You know, it just wasn't, it wasn't on the table.
 
-**[[Fr. Stephen De Young]]:** [Listen from 57:18:94](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=57:18:94) Right. It's not like they were walking around going, "Slavery is great. This is the best." It's slavery was everywhere, slavery was ubiquitous. No one had had an idea of another way to structure a labor economy without slavery that would function.
+**[[Fr. Stephen De Young]]:** [Listen from [57:18:94](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=57:18:94) Right. It's not like they were walking around going, "Slavery is great. This is the best." It's slavery was everywhere, slavery was ubiquitous. No one had had an idea of another way to structure a labor economy without slavery that would function.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 57:37:76](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=57:37:76) Because it's not just a question of, well, we need slave labor. It's also a question of how do you handle debt?
+**[[Fr. Stephen De Young]]:** [Listen from [57:37:76](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=57:37:76) Because it's not just a question of, well, we need slave labor. It's also a question of how do you handle debt?
 
 **[[Fr. Andrew Stephen Damick]]:** Right, because a lot of slavery was about debt.
 
@@ -425,7 +425,7 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, it's it's a divine-human... you know, project.
 
-**[[Fr. Stephen De Young]]:** [Listen from 58:52:16](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=58:52:16) Humans wrote the Bible. Humans wrote it, and the [[Holy Spirit]] guided and inspired what they wrote. That's what the Church has always taught, basically because that's what [[St. Peter]] says. Yeah. Um, so it's not that, you know, Fourth [[Ezra]] aside, it's not that, you know, [[St. Paul]] went into a trance or, you know, lost 45 minutes of time and when he came to in front of him was the original copy of the epistle to the Romans. Right? We've never thought that's what happened. Right? We've never thought... Now I I think I've mentioned on the show before, um, and I know and because the reason I'm bringing this up is not to make fun of the person I'm talking about at all, um, but just to to to point out how people from a certain background this idea rubs them really badly the wrong way. When I was first studying Greek in in my undergrad and first reading the Greek [[New Testament]], um, I had a friend of mine who was from what we would now call—it wasn't really called that at the time because this was again long ago and far away—um, what we would now call an IFB, Independent Fundamentalist Baptist, kind of background.
+**[[Fr. Stephen De Young]]:** [Listen from [58:52:16](https://media.ancientfaith.com/lordofspirits/los_2023-03-23.mp3#t=58:52:16) Humans wrote the Bible. Humans wrote it, and the [[Holy Spirit]] guided and inspired what they wrote. That's what the Church has always taught, basically because that's what [[St. Peter]] says. Yeah. Um, so it's not that, you know, Fourth [[Ezra]] aside, it's not that, you know, [[St. Paul]] went into a trance or, you know, lost 45 minutes of time and when he came to in front of him was the original copy of the epistle to the Romans. Right? We've never thought that's what happened. Right? We've never thought... Now I I think I've mentioned on the show before, um, and I know and because the reason I'm bringing this up is not to make fun of the person I'm talking about at all, um, but just to to to point out how people from a certain background this idea rubs them really badly the wrong way. When I was first studying Greek in in my undergrad and first reading the Greek [[New Testament]], um, I had a friend of mine who was from what we would now call—it wasn't really called that at the time because this was again long ago and far away—um, what we would now call an IFB, Independent Fundamentalist Baptist, kind of background.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. King [[James]] only.
 

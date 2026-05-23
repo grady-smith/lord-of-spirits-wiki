@@ -16,14 +16,14 @@ What did ancient pagan "mystery cults" actually teach and practice, and what, if
 
 [In this pre-recorded Thanksgiving episode](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=02:16), following up on a previous discussion of Mithraism, [[Fr. Andrew]] and [[Fr. Stephen]] dive into the broader topic of ancient mystery cults.
 
-[Fr. Andrew issues a parental advisory](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=02:48), noting that the subject matter is often disturbing. [[Fr. Stephen]] adds that "it turns out that ancient mystery cults are gross in a lot of really disturbing ways." [Listen from 02:57](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=02:57). The purpose of the discussion is not for lurid details but to understand the religious context of the ancient world and its relationship to the Bible and Christianity.
+[Fr. Andrew issues a parental advisory](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=02:48), noting that the subject matter is often disturbing. [[Fr. Stephen]] adds that "it turns out that ancient mystery cults are gross in a lot of really disturbing ways." [Listen from [02:57](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=02:57). The purpose of the discussion is not for lurid details but to understand the religious context of the ancient world and its relationship to the Bible and Christianity.
 
 ## Defining "Cult" vs. "Mystery Cult"
 
 The hosts begin by clarifying the term "cult."
 
 *   **Popular Definition:** [In modern popular usage, a "cult" is often dismissively defined as "a religion that I think is weird," frequently centered around a charismatic and controlling leader](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=05:21).
-*   **Sociological Definition:** In the sociology of religion, a "cult" is a group with a poor relationship with wider society that does *not* see itself as exclusively true. A "sect" has a poor relationship with society but *does* claim exclusive truth [Listen from 05:51](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=05:51).
+*   **Sociological Definition:** In the sociology of religion, a "cult" is a group with a poor relationship with wider society that does *not* see itself as exclusively true. A "sect" has a poor relationship with society but *does* claim exclusive truth [Listen from [05:51](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=05:51).
 *   **Scholarly/Historical Definition:** [In scholarly contexts, "cult" is a neutral term for a worshipping community, essentially a synonym for "religion."](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=08:03). It can also refer to the specific veneration of a saint (e.g., "the cult of [[St. Paul]]"). "Cultic practices" simply refers to religious rituals.
 
 [A "mystery cult" is distinguished from the broad, public, civic pagan worship of a god](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=09:47). While a city might have a public harvest festival for the goddess Demeter that everyone attends, a mystery cult related to Demeter would be a private, separate observance for a select group of initiates.
@@ -33,8 +33,8 @@ The hosts begin by clarifying the term "cult."
 [[Fr. Stephen]] outlines the key features that define mystery cults in contrast to public paganism:
 1.  **Private vs. Public:** [The rites were private and limited to initiates who met certain prerequisites, unlike public festivals open to all](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=12:39).
 2.  **Individual vs. Collective:** [The focus was on an individual's personal experience and achievement, not on strengthening communal bonds. It was something you did for yourself](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=14:02).
-3.  **Experience-Oriented:** The ultimate goal was to induce a profound, often ecstatic or terrifying, personal experience—not to form a person within a community. [[Fr. Stephen]] describes this as an inversion of how ritual normally works to shape perception over time [Listen from 18:18](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=18:18).
-4.  **Chthonic ([[Underworld]]) Element:** Nearly all mystery cults involved a simulated journey into the underworld, a near-death experience, to produce a personal transformation. The goal was to "induce that kind of experience in a person" [Listen from 28:43](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=28:43).
+3.  **Experience-Oriented:** The ultimate goal was to induce a profound, often ecstatic or terrifying, personal experience—not to form a person within a community. [[Fr. Stephen]] describes this as an inversion of how ritual normally works to shape perception over time [Listen from [18:18](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=18:18).
+4.  **Chthonic ([[Underworld]]) Element:** Nearly all mystery cults involved a simulated journey into the underworld, a near-death experience, to produce a personal transformation. The goal was to "induce that kind of experience in a person" [Listen from [28:43](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=28:43).
 
 ## Examples of Ancient [[Mystery Cults]]
 
@@ -50,7 +50,7 @@ The initiation involved:
 *   [A preliminary initiation in mid-winter with piglet sacrifices](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:00:34).
 *   [The main initiation at harvest time, where initiates were brought into absolute darkness](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:00:27). They were led to the edge of pits and precipices, inducing terror.
 *   Consumption of a drink called **Kaikeon**, which was likely drugged.
-*   The climax was the **"display of an ear of corn,"** or more accurately, feeling an ear of grain in a basket filled with phallic objects, symbolizing the connection between death, sexuality, and agricultural fertility [Listen from 1:03:36](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:03:36).
+*   The climax was the **"display of an ear of corn,"** or more accurately, feeling an ear of grain in a basket filled with phallic objects, symbolizing the connection between death, sexuality, and agricultural fertility [Listen from 1:[03:36](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:03:36).
 
 [[Fr. Stephen]] connects this to the story of Jephthah's daughter in [[Judges]], where a festival of women searching for the missing daughter with torches mirrors the search for Persephone.
 
@@ -59,7 +59,7 @@ The initiation involved:
 *   They involved inducing an altered state of consciousness through alcohol and opium (from poppies).
 *   Participants engaged in flagellation with whips and scourges to release endorphins.
 *   A droning noise from "bullroarers" was used to create a frenzied atmosphere.
-*   The rites included group sex and culminated in **omophagia**: the tearing apart and eating of a live animal, usually a rabbit [Listen from 1:03:26](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:03:26).
+*   The rites included group sex and culminated in **omophagia**: the tearing apart and eating of a live animal, usually a rabbit [Listen from 1:[03:26](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:03:26).
 
 This was a re-enactment of the myth of Dionysus being torn to pieces, boiled in milk, and eaten. The participants believed they were being possessed by spirits called the Bacchae.
 
@@ -67,7 +67,7 @@ This was a re-enactment of the myth of Dionysus being torn to pieces, boiled in 
 [Created by the Emperor Hadrian for his deceased lover (his "favorite"), a teenage boy named Antinous](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:06:30). After Antinous died, Hadrian deified him and established a mystery cult.
 *   Hadrian built the city of Antinoöpolis in Egypt as a cultic center.
 *   Antinous was syncretized with Osiris, Hermes, and Dionysus.
-*   This cult was widely denounced by both pagans and Christians. Even the pagan critic Celsus condemned it, saying that making a god out of a dead man was "Christian Mumbo Jumbo" [Listen from 1:13:13](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:13:13), ironically showing how Christianity was changing the religious landscape.
+*   This cult was widely denounced by both pagans and Christians. Even the pagan critic Celsus condemned it, saying that making a god out of a dead man was "Christian Mumbo Jumbo" [Listen from 1:[13:13](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:13:13), ironically showing how Christianity was changing the religious landscape.
 
 ## Christianity and [[Mystery Cults]]: The Contrast
 
@@ -82,7 +82,7 @@ The hosts conclude by refuting the idea that Christianity is derived from myster
 **Fundamental Differences:**
 1.  **Experience is Epiphenomenal, Not the Goal:** [In Christianity, spiritual experiences can happen, but they are not the point. The sacraments are objective realities that work regardless of one's feelings. Fr. Stephen states, "If you are baptized... you may have some kind of profound spiritual experience... If you don't, that doesn't mean it didn't happen."](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:26:38) The practice of infant baptism and [[Chrismation]] makes this clear.
 2.  **Community Over the Individual:** [Mystery cults were about an individual's achievement. Christianity initiates a person into a living, ongoing community—the Church. It is not an individual quest but a communal life](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:31:47). The titles "brother" and "sister" reflect this familial, communal reality.
-3.  **Public Proclamation Over Secret Knowledge:** The "mysteries" of Christianity were hidden things that are *now revealed* to the entire world. The Gospel is an open proclamation, not a secret for an elite few [Listen from 1:38:03](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:38:03).
+3.  **Public Proclamation Over Secret Knowledge:** The "mysteries" of Christianity were hidden things that are *now revealed* to the entire world. The Gospel is an open proclamation, not a secret for an elite few [Listen from 1:[38:03](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:38:03).
 4.  **Engagement with the World Over Escape from It:** [Mystery cults represented a flight from the ugliness of reality. Christianity is a calling to engage with the world, to fulfill the original mandate to "fill the earth and subdue it" (Genesis 1:28). This involves finding what is good, beautiful, and pure in every person and every created thing, and nurturing it to bring it forth](https://media.ancientfaith.com/lordofspirits/los_2025-12-02.mp3#t=1:50:05).
 
 The Christian calling is not to escape the trouble of this world but to embrace a life of faithfulness within it, a life that gradually transforms us into the saints [[God]] created us to be.

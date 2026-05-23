@@ -5,18 +5,18 @@ tags: [lordofspirits]
 ---
 ## Transcript
 
-**Introductory Voiceover:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:00:00)
+**Introductory Voiceover:** [Listen from [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:00:00)
 He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. ([[1 Enoch]], chapter 48, verses 4 through 5)
 
-**Introductory Voiceover:** [Listen from 00:22:15](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:22:15)
+**Introductory Voiceover:** [Listen from [00:22:15](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:22:15)
 The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests Father Andrew Stephen Damick and Father Stephen De Young host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:07:33](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:07:33)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:07:33](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:07:33)
 Good evening, everyone. Welcome to the [[Lord of Spirits]] podcast. My co-host, Father Stephen De Young, is with me from Lafayette, Louisiana, and I am Father Andrew Stephen Damick in Emmaus, Pennsylvania. And if you're listening to us live, you can call in at 855-AF-RADIO. That's 855-237-2346, and Matushka Trudi will be taking your calls tonight. But we're going to get to your calls in the second part of today's show.
 
 So [[Lord of Spirits]] is brought to you by our listeners. That's you, with help from St. Athanasius Academy of Orthodox Theology. St. Athanasius is an online academy for K through 12, offering live classrooms in core subjects, foreign languages, various electives, and Orthodox studies. To learn more about St. Athanasius Academy, please visit at www.saaot.edu.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:02:18](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:02:18)
+**[[Fr. Stephen De Young]]:** [Listen from [02:02:18](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:02:18)
 And, uh, I I talked to, uh, Deacon Adam again.
 
 **[[Fr. Andrew]]:** [Listen from 02:05:788](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:05:788)
@@ -35,7 +35,7 @@ I could tell. I could tell. You're a deficit hawk. I know. So.
 I oh yeah, big time. Yeah.
 
 **[[Fr. Andrew]]:** [Listen from 02:38:118](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:38:118)
-So, you know, one of the more difficult practices to become accustomed to for those who look into the Orthodox Christian faith, and even for some lifelong members, is the keeping and the veneration of relics. Relics can present a jarring conundrum. On the one hand, you're being confronted with the body parts of dead people. But on the other, there are miracles associated with them. We can think of the bones of the prophet Elisha bringing a dead man back to life in [2 Kingdoms (2 Kings) 13:21](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:06:178). Or we can think of relics like the hand of St. Mary Magdalene, which I myself venerated in 2018 at Simonopetra monastery on Mount Athos, and can confirm is actually warm, just as the living hand of a human being is warm.
+So, you know, one of the more difficult practices to become accustomed to for those who look into the Orthodox Christian faith, and even for some lifelong members, is the keeping and the veneration of relics. Relics can present a jarring conundrum. On the one hand, you're being confronted with the body parts of dead people. But on the other, there are miracles associated with them. We can think of the bones of the prophet Elisha bringing a dead man back to life in [2 Kingdoms (2 Kings) [13:21](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:06:178). Or we can think of relics like the hand of St. Mary Magdalene, which I myself venerated in 2018 at Simonopetra monastery on Mount Athos, and can confirm is actually warm, just as the living hand of a human being is warm.
 
 Do we as Orthodox Christians just point to the miracles and the history and tell people just tough it out and accept it? Or is there actually a biblical, theological reason for this? So, Father Stephen, is there?
 
@@ -123,7 +123,7 @@ Yes, right.
 **[[Fr. Stephen]]:** [Listen from 10:46:278](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=10:46:278)
 That an object has.
 
-**[[Fr. Andrew]]:** [Listen from 10:48:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=10:48:38)
+**[[Fr. Andrew]]:** [Listen from [10:48:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=10:48:38)
 Right. So if you have, if you have human nature, then you have all the abilities that a human has. You know, you you can do the things, you know, and and that's going to include the material body, but it's also going to include things like your soul, which is not material.
 
 **[[Fr. Stephen]]:** [Listen from 11:04:368](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=11:04:368)
@@ -144,7 +144,7 @@ So, um, so that's, that's nature. And then, and then the idea of the will in the
 **[[Fr. Andrew]]:** [Listen from 13:44:178](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=13:44:178)
 Yeah, so will is not the way that we tend to think of it. Like, like, what will I have for dinner? I will have the lasagna. I will have ice cream. Um, yeah, it's not, that's not what will is. That's...
 
-**[[Fr. Stephen]]:** [Listen from 14:00:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=14:00:28)
+**[[Fr. Stephen]]:** [Listen from [14:00:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=14:00:28)
 Right. It's not choosing to go left or right.
 
 **[[Fr. Andrew]]:** [Listen from 14:03:778](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=14:03:778)
@@ -168,7 +168,7 @@ Right? It and that nature is expressed in the acorn almost entirely as potential
 **[[Fr. Andrew]]:** [Listen from 16:55:658](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:55:658)
 Right, or Western philosophy means. Make a decision.
 
-**[[Fr. Stephen]]:** [Listen from 16:59:48](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:59:48)
+**[[Fr. Stephen]]:** [Listen from [16:59:48](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:59:48)
 You're right. You're able to choose between contrary opposites, right? You're able to go left or to go right. You're able to uh steal the candy bar or pay for the candy bar, right?
 
 **[[Fr. Andrew]]:** [Listen from 17:09:618](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:09:618)
@@ -195,13 +195,13 @@ Right. Yeah.
 **[[Fr. Stephen]]:** [Listen from 17:53:358](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:53:358)
 We will be free from sin and so we will be free to eternally develop and draw closer to [[God]], um, for all eternity because there'll be nothing obstructing us from achieving that human, that purpose of human nature as it was created by [[God]] anymore. Um, and so then finally the term energy, which, you know, we hear energy as as modern people who have studied science and we think mwah, mwah, mwah, you know. Um...
 
-**[[Fr. Andrew]]:** [Listen from 18:27:18](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:27:18)
+**[[Fr. Andrew]]:** [Listen from [18:27:18](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:27:18)
 Or or ray guns or gamma rays or something. Um...
 
-**[[Fr. Stephen]]:** [Listen from 18:31:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:31:38)
+**[[Fr. Stephen]]:** [Listen from [18:31:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:31:38)
 But this is just working in the world. So this is just the will actualizing itself, meaning producing action in the world. Yeah. Um, the externalizing of the internal, the internal will.
 
-**[[Fr. Andrew]]:** [Listen from 18:48:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:48:28)
+**[[Fr. Andrew]]:** [Listen from [18:48:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:48:28)
 Yeah, the the will expressing itself.
 
 **[[Fr. Stephen]]:** [Listen from 18:50:528](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:50:528)
@@ -210,10 +210,10 @@ Right. And all of that is kind of kind it is to a greater or lesser extent conta
 **[[Fr. Andrew]]:** [Listen from 19:01:458](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:01:458)
 Right. This is just kind of breaking it down in very precise terms.
 
-**[[Fr. Stephen]]:** [Listen from 19:06:98](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:06:98)
+**[[Fr. Stephen]]:** [Listen from [19:06:98](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:06:98)
 Right. It gets disambiguated because it needs to be to explain the problems with bad theology, right, that starts arising uh in the early church and to really clarify who [[Christ]] is and and how this all works.
 
-**[[Fr. Andrew]]:** [Listen from 19:21:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:21:28)
+**[[Fr. Andrew]]:** [Listen from [19:21:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:21:28)
 Yeah, I mean the the classic example of of this kind of narrative playing out is, like in scripture it says the Lord your [[God]], the Lord is one, right? Um, and but then Nicaea says that the son of [[God]] is homoousios of one essence with the Father, which at the time was uh an, you know, an innovative word in in theological terms. And a lot of people opposed it precisely because it wasn't in the Bible. And yet the the fathers determined that this was the word that was needed in order to lay out precisely how it is that [[God]] is one, uh, you know, the oneness between the Father and the Son in order to counter Arianism. So this is just another example of that kind of thing.
 
 **[[Fr. Stephen]]:** [Listen from 20:10:808](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=20:10:808)
@@ -255,7 +255,7 @@ Yeah.
 **[[Fr. Stephen]]:** [Listen from 23:26:678](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:26:678)
 Or even the way a mantis shrimp sees things, right? There's a there's a qualitative difference in addition to a sure quantitative difference. But it is also a true statement. And this is the problem with saying it's just a metaphor, is if it's just a metaphor, then it's not really a true statement.
 
-**[[Fr. Andrew]]:** [Listen from 23:44:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:44:28)
+**[[Fr. Andrew]]:** [Listen from [23:44:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:44:28)
 Right. It's just something that's that just something that stands for something else.
 
 **[[Fr. Stephen]]:** [Listen from 23:48:408](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:48:408)
@@ -267,7 +267,7 @@ Right. Right. Exactly. Exactly.
 **[[Fr. Andrew]]:** [Listen from 24:39:188](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:39:188)
 So okay, so these are kind of recaps and clarifications from some of the things that we talked about in our our episodes on bodies. Uh, so let's head to the the mountain of [[God]] and boat of Theseus episode where we started talking about sacred geography and we're going to talk now, uh, again, recap, what does it mean for a thing to be a thing? And what does that have to do with the material the material world? Right?
 
-**[[Fr. Stephen]]:** [Listen from 25:05:88](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:05:88)
+**[[Fr. Stephen]]:** [Listen from [25:05:88](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:05:88)
 Right. And I was of course being meta by changing ship to boat and changing one element and asking if it was the same thought experiment. Right.
 
 **[[Fr. Andrew]]:** [Listen from 25:12:158](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:12:158)
@@ -279,7 +279,7 @@ Um, but, uh, yeah, so the whole idea of the ship of Theseus, remember, is this, 
 **[[Fr. Andrew]]:** [Listen from 26:36:268](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:36:268)
 David Hume said you have no good reason to not think that, right? But...
 
-**[[Fr. Stephen]]:** [Listen from 26:41:48](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:41:48)
+**[[Fr. Stephen]]:** [Listen from [26:41:48](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:41:48)
 It seems like a lot of work on someone's part to do that. That would be my good reason.
 
 **[[Fr. Andrew]]:** [Listen from 26:45:988](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:45:988)
@@ -288,7 +288,7 @@ Yeah, to imagine that that's a possibility.
 **[[Fr. Stephen]]:** [Listen from 26:48:468](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:48:468)
 But, um, the argument from laziness.
 
-**[[Fr. Andrew]]:** [Listen from 26:51:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:51:28)
+**[[Fr. Andrew]]:** [Listen from [26:51:28](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:51:28)
 If they're going to break into my house, that's not the thing they're going to do.
 
 **[[Fr. Stephen]]:** [Listen from 26:54:688](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:54:688)
@@ -330,13 +330,13 @@ I prefer to measure myself with stone because there's a lot fewer of them by com
 **[[Fr. Stephen]]:** [Listen from 31:03:758](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:03:758)
 But that's weight, not mass.
 
-**[[Fr. Andrew]]:** [Listen from 31:05:48](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:05:48)
+**[[Fr. Andrew]]:** [Listen from [31:05:48](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:05:48)
 Yes, that's true. That's right. That's true. So we need to be precise here.
 
 **[[Fr. Stephen]]:** [Listen from 31:09:478](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:09:478)
 We don't want physicists, I'm actuallying us after this. Right.
 
-**[[Fr. Stephen]]:** [Listen from 31:14:18](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:14:18)
+**[[Fr. Stephen]]:** [Listen from [31:14:18](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:14:18)
 Right. So, but and that's true for me and for uh my heathen dogs and for uh the window pane and the lamp post and right and everything else, right? There's matter that's being those things and it's not the same matter all the time. Right? It's it's shifting around. And so we talked about in in the previous episode we talked about how is or being is actually an active verb, that it's it's doing something, it's actively being that thing.
 
 **[[Fr. Andrew]]:** [Listen from 31:58:558](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:58:558)
@@ -399,7 +399,7 @@ Right, because it it rips those things apart. And that's why the body then crumb
 **[[Fr. Andrew]]:** [Listen from 36:15:388](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:15:388)
 Normally.
 
-**[[Fr. Stephen]]:** [Listen from 36:17:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:17:38)
+**[[Fr. Stephen]]:** [Listen from [36:17:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:17:38)
 Um, yeah. As um, right, so that's that's an unnatural thing that has to be repaired and restored.
 
 **[[Fr. Andrew]]:** [Listen from 36:24:348](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:24:348)
@@ -414,7 +414,7 @@ Yeah, right.
 **[[Fr. Stephen]]:** [Listen from 36:51:258](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:51:258)
 Your body makes it sound like a possession, a thing you have that belongs to you. It's you. And it doesn't stop being you.
 
-**[[Fr. Andrew]]:** [Listen from 36:58:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:58:38)
+**[[Fr. Andrew]]:** [Listen from [36:58:38](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:58:38)
 It's not. Yeah, it is being you. Right. Right. That's a key, key concept for everything we're about to discuss. Okay, well we're going to come back just after break and we'll start taking your calls. So we'll be right back.
 
 **Voice of Steve:** [Listen from 37:11:479](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:11:479)

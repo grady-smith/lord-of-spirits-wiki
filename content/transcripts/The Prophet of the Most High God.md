@@ -39,7 +39,7 @@ His successor, [[Elisha]], asks for a "double portion" of his spirit. [This isn'
 
 The episode addresses the apparent contradiction where [[Jesus]] identifies [[John]] as [[Elijah]], but [[John]] himself denies it. [[Fr. Stephen]] explains:
 > "[John] will go before him in the spirit and power of [[Elijah]]. Where have we seen that kind of language before? Well, at the transition from Saint Elias, from [[Elijah]] to [[Elisha]], where he wants a double portion of his, of [[Elijah]]'s spirit. Right. And so what this is setting up is the idea that in the same way [[Elisha]] continued to have this relationship with his friend and mentor who had now been exalted to the heavenly places, in the same way, now St. [[John]] has a relationship with St. Elias, who has been exalted to the heavenly places and is part of the [[Divine Council]]. And so, would have been one of those beings who he was growing up among."
-> [Listen from 01:13:30](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:13:30)
+> [Listen from [01:13:30](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:13:30)
 
 [[John]] isn't [[Elijah]] reincarnated, but he continues his mission, guided by [[Elijah]] from the [[Divine Council]].
 
@@ -49,7 +49,7 @@ The traditional account of [[John]]'s childhood is that after his father [[Zecha
 
 [[St. John the Baptist]]'s role extends into the heavenly reality of the [[Divine Council - Unseen Realm]]. This is most clearly depicted in the Deisis icon.
 > **[[Fr. Stephen]]:** "On the Deisis icon, you have [[Christ]] enthroned at the center, and then on his right hand, you have his mother, the [[Theotokos]]. And on his left hand, you have St. [[John]] the Forerunner... We've talked about how the royal court of [[David]] in particular was an icon of the [[Divine Council]], the heavenly council. And so in the same way that we see the queen mother at the right hand of [[David]], at the left hand of [[David]] is the prophet of the Lord who is there in the court."
-> [Listen from 01:17:21](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:17:21)
+> [Listen from [01:17:21](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:17:21)
 
 St. [[John]] occupies the place of the court prophet, the chief advisor and messenger. In the iconography and hymnography of the Church, [St. [[John]]'s role in the [[Divine Council]] is seen as replacing that of Satan](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:19:10). The devil, once a cherub or seraph and a throne guardian, fell from his position. St. [[John]], by preparing the way for [[Christ]] and calling people to repentance to approach God's holiness, now fulfills that role of guarding the throne of God.
 
@@ -57,6 +57,6 @@ The angel wings often depicted on icons of St. [[John]] are not literal. [They s
 
 This relationship between a great saint in the council ([[Elijah]]) and a person on earth ([[John]]) serves as the model for the concept of patron saints.
 > **[[Fr. Andrew]]:** "That person does not get between you and God. That person is there to lead you to God. They are a guide in salvation, a guide in the [[Divine Council]]. They're not a, you know, someone who stands between you and God. That's ridiculous, and they would never see themselves that way."
-> [Listen from 01:44:27](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:44:27)
+> [Listen from [01:44:27](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:44:27)
 
 Patron saints are not intermediaries in a transactional sense, but guides and fellow members of the community of God, leading us into a deeper relationship with Him. The entire work of God is communal, aimed at gathering His people, His remnant, together. [[Salvation]] is not an individualistic project but a journey into this divine community.

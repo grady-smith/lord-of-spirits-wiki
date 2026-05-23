@@ -4,693 +4,693 @@ tags: [lordofspirits]
 ---
 ## Transcript
 
-**Intro:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:00:00)
+**Intro:** [Listen from [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:00:00)
 > He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]].
 >
 > — [[1 Enoch]], chapter 48, verses 4 through 5.
 >
 > The modern world doesn't acknowledge, but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Fr. Andrew Stephen Damick]] and [[Fr. Stephen De Young]], host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by God, and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:05:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:05:00)
 Hey, greetings, giant-killers, dragon-slayers. You're listening to the 127th episode of the [[Lord of Spirits]] podcast. We're in our sixth year. Nevertheless, I'm still [[Fr. Andrew Stephen Damick]], and with me is still the only Ancient Faith Radio podcaster ever to have declared a blood feud against [[James]] Earl Jones, [[Fr. Stephen De Young]]. And we're live.
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:27:00)
+**[[Fr. Stephen De Young]]:** [Listen from [01:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:27:00)
 Other people have declared other blood feuds, but my war against [[James]] Earl Jones is one that I fought alone and victoriously. He's dead. I'm alive.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:37:00)
 Starting in the second half of the show, if you're joining us as live as [[Fr. Stephen]] is, you can call us at 855-237-2346. And if you make it past the gatekeeper, Mike Taroman DeGan, with your mostly on-topic question, we might even talk back to you. So you could lie. Here we are. It's November.
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:58:00)
+**[[Fr. Stephen De Young]]:** [Listen from [01:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:58:00)
 You were saying, [[Father]]?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:59:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:59:00)
 I was saying...
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:59:00)
+**[[Fr. Stephen De Young]]:** [Listen from [01:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=01:59:00)
 Oh, I was saying they could lie when they do the call screener to get on the air.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:03:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:03:00)
 People are liars these days. But on the Christmas thing...
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:07:00)
+**[[Fr. Stephen De Young]]:** [Listen from [02:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:07:00)
 Yeah, I was about to talk about Christmas.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:08:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:08:00)
 Yes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:09:00)
+**[[Fr. Stephen De Young]]:** [Listen from [02:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:09:00)
 You're saying it's November, we're getting towards the season. I mean, I feel like we have to address the elephant in the room. Once again, I need to make some polarizing comments.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:17:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:17:00)
 Oh, I'll sit back and listen to this.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:21:00)
+**[[Fr. Stephen De Young]]:** [Listen from [02:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:21:00)
 And that is that brethren, we are now called to the heights of asceticism because once again, as we prepare to begin the Nativity Fast, the evil benighted fools at the McDonald's Corporation have brought back the McRib.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:37:00)
 Again?
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:38:00)
+**[[Fr. Stephen De Young]]:** [Listen from [02:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:38:00)
 It is not, well, arguably, it is not technically meat, but it does contain animal products.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:46:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:46:00)
 It's malicious. The timing is malicious.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:48:00)
+**[[Fr. Stephen De Young]]:** [Listen from [02:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:48:00)
 Making it off-limits. Never have so many been called to give up so much.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:54:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=02:54:00)
 I'm going to watch the McRib Girl YouTube video again just for old time's sake.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:00:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:00:00)
 Now, I know you reject the McRib out of disdain, and so for you, this has no ascetic value.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:05:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:05:00)
 No, no, I like the McRib. Actually, I know. I know, a bunch of, I was just canceled by a bunch of people for saying that, like, "What?" No, I do, I kind of like the McRib. I don't know what to say.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:17:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:17:00)
 It's a bold admission on your part.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:19:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:19:00)
 I mean, yeah, I mean.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:21:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:21:00)
 Will your wife let you eat one?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:23:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:23:00)
 Not in her presence.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:25:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:25:00)
 Okay. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:27:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:27:00)
 So now, now it's doubly surreptitious, right? You could have to like sneak off tomorrow before the fast begins and get yourself like a small horde of McRibs. It's Friday. Yeah, it's Friday though, so yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:39:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:39:00)
 That's true. Before midnight tonight.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:43:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=03:43:00)
 On your way home. Is there a McDonald's between the studio and your house? No, there isn't. There is not. But speaking of Christmas though, it's on a lot of people's minds and everybody knows what that means. The season of meme history and theology is upon us. That's right, kids. Soon you'll be seeing nonstop memes explaining how the birth of [[Jesus]] is really just one or another ancient pagan god dressed up in new clothes to oppress you and enslave you with brutal Christian ideas like forgiveness, loving your enemies, and the inherent God-given value of every human being. Among all of these pagan figures who somehow are all more [[Jesus]] than [[Jesus]], one rises above them all and that is Mithras. Some have compared Mithraists to the Freemasons, such as me when devising this episode.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:29:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:29:00)
 Yeah, I was going to say, for the, for the YouTube version of this.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:32:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:32:00)
 Probably some other people too, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:33:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:33:00)
 Well, also notably Tom Holland on The Rest is History podcast. There you go. There you go. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:37:00)
 Okay, I didn't make this up. Yes, men gathering with their buddies in their lodges, being initiated into successively secret degrees of mysteries. But the meme makers, they know better. So how about it, [[Fr. Stephen]]? Have you, much like the people in Carrboro, England, have got a Mithraeum in your backyard? Any Mithraeum archaeology going on in Louisiana?
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:57:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=04:57:00)
 No. You know what the water table is like in Southern Louisiana?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:03:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:03:00)
 That's true. Everything had better be completely above ground. Yes. Except for New Orleans, which, as we know, isn't.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:11:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:11:00)
 Is in a bowl. What could go wrong?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:14:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:14:00)
 Yeah, literally lower than sea level. That should be their secondary motto. God bless them.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:19:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:19:00)
 So yeah, not happening around here. Basements and bomb shelters. Right. No basements. Someone in the chat said they had an Andouille sausage today. So there you go.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:33:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:33:00)
 Well, that's something. That connects you to Louisiana. They're going to play Gambit in Marvel Rivals when he releases tomorrow. He's even a Cajun, so you know. That's right. So what are we talking about? Oh yeah. Okay. Mithraism.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:48:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:48:00)
 Mithraism, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:49:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:49:00)
 Yes. Mithraism, if you want to be. Yes. And just to clarify for folks, this episode is actually about Mithraism.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:57:00)
 Yes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:58:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=05:58:00)
 The previous live episode was not about Zoroastrianism.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:02:00)
 No, it was about Cyrus.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:04:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:04:00)
 How dare you not cover Zoroastrianism thoroughly in an episode that wasn't about Zoroastrianism?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:09:00)
 Yes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:09:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:09:00)
 In an academic way with verbal footnotes.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:12:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:12:00)
 Verbal footnotes. Footnote. I feel like I'm in audiobook narration mode now suddenly.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:18:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:18:00)
 Oh yeah, there was one of those where I forgot to do it, and so at the end, no, they just had me record me going "footnote" and "footnote," "footnote" and "footnote."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:29:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:29:00)
 We've all been there, father. We've all been there.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:30:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:30:00)
 "And footnote." So I did a lot of reads, I did a lot of inflections, I gave them a lot of samples to work with, and they peppered them through. But yeah, we're not doing that on this show. Much to a few people's chagrin and everyone else's rejoicing. So yeah, Mithras. So, Mithraism proper, we're talking about a cult in the Roman world.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:53:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:53:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=06:54:00)
 But he isn't a god that's like invented for that cult in the Roman world.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:00:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:00:00)
 He's an import.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:01:00)
+**[[Fr. Stephen De Young]]:** [Listen from [07:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:01:00)
 Right. And pretty much all of the central figures in the mystery cults of the Roman world were pre-existing gods and goddesses that just became associated with particular mystery rites in particular places. They weren't sort of invented whole cloth. People weren't like, "Hey guys, I invented a new religion."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:24:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:24:00)
 I mean, isn't it funny? I you get the sense sometimes that sort of the ultra secular historians of the ancient world seem to think that that's how it works, that religions are invented, that they're like the result of a conspiracy or something like this.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:38:00)
+**[[Fr. Stephen De Young]]:** [Listen from [07:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:38:00)
 Well, I mean, to be fair, a lot of our Protestant friends think that's how Christianity worked.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:44:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:44:00)
 Oh man. Now begins the hot spicy take.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:47:00)
+**[[Fr. Stephen De Young]]:** [Listen from [07:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=07:47:00)
 Just dropped out of the sky and had no relation to preceding Judaism. But so, Mithras. What do we know about his preceding existence before the Mithraism proper that is our subject proper tonight, which we will get to later on as is our want. So the first appearance, the first still extant appearance of [[Mithra]], which is the original or more original form of his name, the first surviving appearance is from a Hittite suzerainty treaty.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:27:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:27:00)
 I love a good Hittite suzerainty treaty.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:30:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:30:00)
 Yes, which these have come up on the show before.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:34:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:34:00)
 Yes. What other podcast do you listen to, dear listener, in which Hittite suzerainty treaties come up more than once?
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:40:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=08:40:00)
 And on different topics, different unrelated topics, because the previous place we talked about it was unrelated to Mithraism. So, these are this is the treaty, the treaties that we found involving the Hittites and the Luvians in Asia Minor, that the format of these suzerain vassal treaties from the mid 2nd millennium, we're talking about like 16th century BC, that format is the format that biblical covenants generally follow. And we've talked about this in the past, we used the Ten Commandments and the book of [[Deuteronomy]] as a whole as examples of this. But finding these treaties that are not directly related in any way to the Bible sort of showed us, "Oh, this is a format that was present in the ancient world." And if you want to read about the suzerainty treaties of **Shuppiluliuma** in great detail and their connection to the Bible, you can get Meredith Klein's *Treaty of the Great King*.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 09:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:47:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [09:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:47:00)
 Say that again five times fast. Shuppi... Yes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 09:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:50:00)
+**[[Fr. Stephen De Young]]:** [Listen from [09:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:50:00)
 Shuppiluliuma. Also not one to name your kids after. I mean, what do you call him? Shupe?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 09:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [09:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:56:00)
 He was, yeah, Shoopy-doop.
 
-**[[Fr. Stephen De Young]]:** [Listen from 09:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:57:00)
+**[[Fr. Stephen De Young]]:** [Listen from [09:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=09:57:00)
 I don't know. He was an abject heathen. So yes, not a baptismal name. Right. But so, in the context of that, we talked about the general, real broad strokes format, and you can see this, we're not going to go through all this again, but you can see this in the Ten Commandments, you can see this in the book of [[Deuteronomy]] as a whole. It begins with an introduction saying, here's who the person is who is issuing the treaty. In the case of these Hittite documents, Shuppiluliuma. In the case of the Ten Commandments, "I am the Lord your God, I am [[Yahweh]] your God who brought you out of the land of Egypt." Right. Who the person is and what they have done for the vassal. And then there are a series of stipulations that outline what the suzerain, the great king expects from the vassal king, the lesser king. And then there is a listing of blessings that the great king will bestow upon the vassal if he keeps to those stipulations. And various consequences that will come upon the vassal if he fails to keep those stipulations. And then there are divine figures called as witnesses. In the case of, you know, if you're familiar with your Bible, in the case of [[Deuteronomy]], right, God calls the heavens and the earth as witnesses, because there's nothing greater than himself by which to swear. And then a copy was put at the feet of the idol of the god who was a witness in the temple, and another copy was kept by the vassal king, by the king himself. And so in the case of the [[Torah]] covenant, both copies are put in the Ark of the Covenant, because that is both the footstool of God's throne, him being God, and him being king. But so these follow that format. But in the case of these Hittite treaties, the actual Hittite treaties themselves that follow this format, they call a series of divine witnesses, a series of gods, essentially, to bear witness. And the gods who they call upon, most of them are actually old Indo-Aryan or Indo-Persian gods. So this is a an Indo-European people group that has migrated to Asia Minor by this point in the second millennium BC, in the Bronze Age. And so the otherwise known Indo-Persian gods who are called upon are, number one, [[Mithra]], who we're talking about tonight, and then **Varuna**, **Indra**, and two of the **Nasatya**.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=12:40:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=12:40:00)
 And why don't you tell everybody what the Nasatya are?
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=12:43:00)
+**[[Fr. Stephen De Young]]:** [Listen from [12:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=12:43:00)
 They're lesser deities who are called upon. But they're otherwise known from Indian paganism and early Persian paganism. So, we're focusing tonight on [[Mithra]]. The next major place where he shows up is in the Rig Veda. So now we're getting into Vedic Hinduism and early Persian paganism. In the Rig Veda at 3:59, he shows up with Varuna again, like that same pairing. And there's a reason why those two are paired together. So, [[Mithra]]'s name, like his literal name, is the word for a covenant or a treaty or an agreement. So, it kind of makes sense if you were making a covenant or treaty or agreement, he would be the deity in particular who some who a pagan would call upon to be a witness, right? That's his shtick. That's his whole bag. And Varuna, Varuna's name means something like a true statement, a true word...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=13:53:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=13:53:00)
 Yeah, but there also seems to be... speaking truth. There also seems to be an etymology related to the notion of binding, which, I mean, obviously these things are all kind of connected. Well, I wasn't trying to make a pun, but yeah, I mean, binding, truth, all this kind of stuff together.
 
-**[[Fr. Stephen De Young]]:** [Listen from 14:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=14:12:00)
+**[[Fr. Stephen De Young]]:** [Listen from [14:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=14:12:00)
 Right. So, you've got an agreement, you want it to be binding, you want the person to be true to their word, and so these two being paired together and being invoked for a covenant agreement makes a whole ton of sense. The other major Indo-Persian source that mentions [[Mithra]] and gives some more information is Avesta 10. So the Avesta are basically ancient hymns to these gods. And what comes out of Avesta 10 about [[Mithra]] in particular is it's talking about [[Mithra]] in terms of him enforcing sort of covenant stipulations, him enforcing agreements. Meaning if someone is sort of true to their word and fulfills their duty and their responsibilities, he's the one who sends the blessings of rain and crops and good health, right, for people and animals. And if someone is not, on the other hand, then [[Mithra]] goes to war against them in his chariot. So you can see there again, once you understand that covenant structure, you can understand how that relates, right? The idea is that he's called as a witness and then he sort of enforces it as a pagan deity.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 15:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:29:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [15:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:29:00)
 These are the rules.
 
-**[[Fr. Stephen De Young]]:** [Listen from 15:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:30:00)
+**[[Fr. Stephen De Young]]:** [Listen from [15:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:30:00)
 And I mean it's important to note of course that these covenants are not like contracts in our own day where two parties get together and they agree on what's going to bind them. It's "I'm the big guy, you're the small guy, you're going to do what I say, and this is the way that I expect you to do it, and this is what's going to happen to you if you do it, what's going to happen to you if you don't do it because I'm the big guy."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 15:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:50:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [15:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:50:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 15:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:51:00)
+**[[Fr. Stephen De Young]]:** [Listen from [15:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:51:00)
 Yeah, it's more like an employer-employee employment contract, except instead of getting fired, you get killed.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 15:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [15:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=15:57:00)
 Right. Hey, this is the ancient world. Getting killed is probably the least of the bad things that could happen.
 
-**[[Fr. Stephen De Young]]:** [Listen from 16:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:04:00)
+**[[Fr. Stephen De Young]]:** [Listen from [16:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:04:00)
 Not the worst thing that can happen to you by far. In cases. So, between this, so now we're all the way back in the high mid to late Bronze Age here in what we're talking about. There's a good thousand years before we get to Mithraism in the Roman world, before there's a Roman empire around. And so we see him pop up in various ways, mostly in Persian religion and Persian cultural practice, as we come into sort of pre-imperial Persian life.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 16:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:47:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [16:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:47:00)
 Yeah, this is earlier Persian paganism before [[Zoroastrianism]].
 
-**[[Fr. Stephen De Young]]:** [Listen from 16:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:49:00)
+**[[Fr. Stephen De Young]]:** [Listen from [16:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=16:49:00)
 Some of this will continue into the imperial period, some of the things we're about to talk about, even as the worship of Mithras as a standard pagan deity kind of recedes in the face of Zoroastrianism. But so he's, because of everything we said, he has this role as a sort of mediator of covenants and treaties and agreements where he is the one who sort of comes in between and enforces them. And because of that sort of idea of him as mediator, in the Persian calendar, the old Persian calendar, the seventh month was named after him.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 17:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:30:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [17:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:30:00)
 Yeah, so that would be like right in the middle of the year.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:32:00)
+**[[Fr. Stephen De Young]]:** [Listen from [17:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:32:00)
 Yeah. And the 16th day of the month was the day on which he was celebrated.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 17:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:41:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [17:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:41:00)
 Which is also right in the middle of the month.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:42:00)
+**[[Fr. Stephen De Young]]:** [Listen from [17:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=17:42:00)
 Right. The middle of the middle. Yeah. And so he was the one who watched between the heavens and the underworld. Right. So remember we've got the three layers in ancient Near Eastern cosmology. Right. There's the heavens, the earth, and the regions under the earth. And so he's keeping an eye on all the stuff going on on the earth in the middle, in the middle tier, right, because he's got to enforce all these agreements that he's been called as a witness to. So he's got to kind of keep track of what everybody's doing. And this idea of him being in the middle, right, has led a lot of people to arguing, this is not conclusive, that *mesites* in Greek, that means mediator, and the whole set of cognate words in Latin, like *media*, *median*, *mediate*, are actually derived from his name. From [[Mithra]]. It's not 100%, but people argue it. That there's an etymological relationship. But the concept, obviously, is related either way. So, as we talked about last time when we were talking about Persia, as Cyrus begins the Persian Empire, the Persian Empire comes.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 18:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [18:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=18:57:00)
 I'll have to say all the kids at home, from their point of view, it's not last time, it was two episodes ago.
 
-**[[Fr. Stephen De Young]]:** [Listen from 19:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:03:00)
+**[[Fr. Stephen De Young]]:** [Listen from [19:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:03:00)
 Yeah, but you know, time and space don't exist for you, everybody. That's what I... Right. Time and space don't exist, so it's all relative. I didn't say last time I, what? I didn't say last time, you know.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 19:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:13:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [19:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:13:00)
 What year is it where you are, [[Fr. Stephen]]?
 
-**[[Fr. Stephen De Young]]:** [Listen from 19:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:16:00)
+**[[Fr. Stephen De Young]]:** [Listen from [19:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=19:16:00)
 It is AD 178, and that's how I like it. Anyway, uh... As there comes to be a Persian Empire, as this becomes a thing, under Cyrus, of course, we talked a little bit last time about, you know, Zoroastrianism becomes a thing and becomes sort of the imperial religion that sort of shapes the religious identity of the newborn empire, rather than the old paganism. And there's a little bit of a need for that. There's a need for that in that the old Indo-Persian paganism is something they shared with their neighbors, with scattered Indo-European peoples in other places, at different levels. Right. So this is a shared thing. It's hard to form your identity around something you share with all of your neighbors.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 20:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=20:15:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [20:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=20:15:00)
 Sure, I want to be different, just like all the different people.
 
-**[[Fr. Stephen De Young]]:** [Listen from 20:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=20:18:00)
+**[[Fr. Stephen De Young]]:** [Listen from [20:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=20:18:00)
 So there's that, right? Yeah, I want to be unique and different like everyone else. But also, remember, and this is another episode, it all weaves together, we talked about the Axial Age. And as we come into the Persian Empire, we're coming into the Axial Age, meaning there are religious shifts happening everywhere. And we didn't go into a ton of detail on Zoroastrianism, but we did talk about the fact, we did mention the fact that especially early on, there were a lot of forms of Zoroastrianism that didn't just do away with the earlier paganism. They sort of incorporated it in a transitional way by making the old Indo-pagan gods sort of lesser divinities, right, sort of demoting them under Ahura Mazda, rather than just, you know, rejecting them outright. And so the shift to Zoroastrianism was part of a shift all over the place, right, literally all over the world, in that period from the earlier paganism to kind of a paganism 2.0. And we talked about that in that episode in terms of pretty much everybody, but including like this is where Greek philosophy starts to emerge, as a more refined form in certain ways of the previous Greek paganism. So it's part of that general trend. But so that new Indo-Persian religion 2.0 that emerges in the Persian Empire is also new in the sense that it is a phenomenon that happens within the newborn empire, making it well-suited to becoming a religion around that will form the identity, in part, of that empire going forward. That said, even as that happens, right, and sort of the royal cult and the official cult and everything transitions to Zoroastrianism in the Persian Empire, there are a lot of scattered tribal groups here and there that are still basically doing the old-school pagan thing.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 22:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=22:33:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [22:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=22:33:00)
 Yeah, I mean, this is this is how it works when a new sort of religious, so to speak, sheriff comes to town is the people kind of out in the countryside are often still doing the old thing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=22:45:00)
+**[[Fr. Stephen De Young]]:** [Listen from [22:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=22:45:00)
 Yeah. And I mean, this is true even, I mean, this is this is the story in medieval Europe, right? Medieval Europe becomes officially, you know, Christian Europe, but you go out in the countryside and all of those countries, there's people doing folk magic and all kinds of holdover ritual stuff from old European paganism.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 23:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:06:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [23:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:06:00)
 Yeah, or or even like when the Muslims took over southern Spain, there's Christians and Jews in Spain, but eventually, like the cities are not as Christian or Jewish and it's more kind of, you know, out in the countryside that people are practicing those religions.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:24:00)
+**[[Fr. Stephen De Young]]:** [Listen from [23:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:24:00)
 Yeah. So, and one example in this particular case is that there's pretty solid evidence that there were different Kurdish tribal groups still worshiping [[Mithra]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 23:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:36:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [23:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:36:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:37:00)
+**[[Fr. Stephen De Young]]:** [Listen from [23:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:37:00)
 During the period of the Persian Empire, including the Yazidis.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 23:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:42:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [23:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:42:00)
 Wow. We will not be doing an episode of the Yazidis.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:45:00)
+**[[Fr. Stephen De Young]]:** [Listen from [23:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:45:00)
 But their religion is quite different now, but I'm sure probably. It's too on topic for us. But they've always been kind of religious minorities. They've always been sort of doing their own thing.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 23:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [23:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=23:56:00)
 They are mentioned in the 2017 edition of *[[Orthodoxy]] and Heterodoxy*. Just had to put that out.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:02:00)
+**[[Fr. Stephen De Young]]:** [Listen from [24:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:02:00)
 Well, there you go. Sell that book. There you go. I think everyone owns a copy now though, so you're gonna have to do like a third edition.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 24:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:10:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [24:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:10:00)
 Oh no, to resell it again. What religions should I add everybody? Sound off in the chat. Let's let's find out.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:16:00)
+**[[Fr. Stephen De Young]]:** [Listen from [24:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:16:00)
 Well, you got to account for all the ones that have changed and warped and fallen apart since 2017. COVID did a number on some of these things.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 24:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:25:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [24:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:25:00)
 I'm told there's a religion and heresy called Covidism since you mentioned that, so maybe I could put that in there.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:32:00)
+**[[Fr. Stephen De Young]]:** [Listen from [24:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:32:00)
 Yeah, I was amazed that you didn't, you know, spend a whole chapter on ecumenism, the pan-heresy. So...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 24:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [24:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:37:00)
 The pan-heresy. The pan-heresy of ecumenism.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:39:00)
+**[[Fr. Stephen De Young]]:** [Listen from [24:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=24:39:00)
 You could have just covered that and not talked about anything else, right? You could have just focused on that. Because it's everything, you wouldn't need anything else. Yes. And so, it's not that, because of course the Persian Empire is going to be conquered by Alexander. But the worship of [[Mithra]] never totally goes away. There are strains of it. And so, when Mithraism in the Roman Empire rises, right, there is this connection back into the past. But, let's talk about that for a second. Yeah, yeah, yeah. Because, how do you decide when something started? Religiously? Or a religious phenomenon?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 25:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:26:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [25:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:26:00)
 Yeah, I mean there's usually no one there recording it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 25:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:30:00)
+**[[Fr. Stephen De Young]]:** [Listen from [25:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:30:00)
 Right. Well, and how do you decide what is part of the same phenomenon and what isn't?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 25:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:35:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [25:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:35:00)
 Yeah, when is it a new religion? When is it? You know, unfortunately it's not neat and tidy where you get, you know, like Scientology in the 1950s or whatever, where there literally is a guy who says, "I invented a new religion."
 
-**[[Fr. Stephen De Young]]:** [Listen from 25:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:47:00)
+**[[Fr. Stephen De Young]]:** [Listen from [25:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=25:47:00)
 Yeah. And for example, famously, or used to be famously, I don't know if anybody knows about this anymore, Dermot McCulloch, when he put out his one volume history of Christianity, it's called *Christianity: The First 3,000 Years*.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 26:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [26:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:02:00)
 Yes, yes. Oh you sly dog.
 
-**[[Fr. Stephen De Young]]:** [Listen from 26:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:06:00)
+**[[Fr. Stephen De Young]]:** [Listen from [26:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=26:06:00)
 Because the threads, right, the theological and religious threads that become Christianity start during the reign of King David, essentially, he argues. And so you've got to start there and trace those threads up to and through [[Jesus]] of Nazareth in order to get the whole history of Christianity. But there was nothing called Christianity in the first millennium BC. So, we're gonna spend basically most of the rest of tonight talking about Roman Mithraism. Mithraism in the Roman Empire, which is an AD phenomenon. But you will see people talking about it who will say, "Oh, this is far more ancient than Christianity." "This starts in 1000 BC or 1500 BC."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 27:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=27:03:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [27:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=27:03:00)
 Because that's where somebody's worshiping [[Mithra]]. Yeah, I mean there is [[Mithra]] worship, but probably doesn't look like the Roman version at all. Yeah. It's probably much more like most other paganism. You know, where it's community cult, public sacrifices, all the usual stuff, idolatry, all the usual stuff.
 
-**[[Fr. Stephen De Young]]:** [Listen from 27:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=27:27:00)
+**[[Fr. Stephen De Young]]:** [Listen from [27:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=27:27:00)
 Right. Like we would all say Islam starts with Muhammad, but of course Muslims would say it starts with Abraham. Or Adam. Like or even Adam, yeah. Yeah. So, these things can be slippery, but the Mithraism we're going to be talking about, the Mithraism that people try to compare to Christianity, the Mithraism that is Mithraism, not just the worship of a God [[Mithra]] from whom in a distant way Mithraism is derived, is an AD phenomenon. Okay, we're just giving you here some pre-history so you know where this came from. Just as a spoiler, our next episode that's going to come out on Thanksgiving and it's going to be pre-recorded because [[Fr. Andrew]], again, loves his family more than you, the listener. You can decide whether that's appropriate or not.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 28:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [28:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:20:00)
 I love them more than you, [[Fr. Stephen]].
 
-**[[Fr. Stephen De Young]]:** [Listen from 28:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:22:00)
+**[[Fr. Stephen De Young]]:** [Listen from [28:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:22:00)
 I know. It's hard to believe, given what a delight I am. But them's facts. Yeah, so it's going to be pre-recorded. But we're going to be talking about other mystery cults in the Roman world. So for example, there's the mysteries of Demeter. Well, where do the mysteries of Demeter begin? Do they begin the first time somebody tells the story of Demeter and Persephone?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 28:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:49:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [28:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:49:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 28:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:50:00)
+**[[Fr. Stephen De Young]]:** [Listen from [28:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=28:50:00)
 Did they begin the first time someone worships a goddess named Demeter? Well, no, not really. The mysteries of Demeter begin the first time the mysteries of Demeter are celebrated.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 29:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=29:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [29:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=29:02:00)
 Yeah, the particular actual practices.
 
-**[[Fr. Stephen De Young]]:** [Listen from 29:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=29:05:00)
+**[[Fr. Stephen De Young]]:** [Listen from [29:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=29:05:00)
 Yes. So, name of the figure aside, the Mithraism we're going to be focusing on is a particular form of worship of this god. The fact that there was a god with that name and some similar features preceding that does not mean that the religious phenomenon preceded that, right? But before we move to Roman Mithraism proper, a last note. So there are two places in the Bible, one if you're a Protestant, where the name [[Mithra]] occurs. Both of them are just somebody's name. It's a theophoric name of a Persian official in the Persian Empire. So the first place, which even our Protestant friends have, is in [[Ezra]] chapter 1, verse 8, and chapter 4, verse 7, where there is a dude named Mithridates, who is Cyrus' treasurer. And then, if you've got a little bit beefier Old Testament, then in 1 Esdras...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 30:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:15:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [30:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:15:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 30:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:16:00)
+**[[Fr. Stephen De Young]]:** [Listen from [30:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:16:00)
 Yeah. 1 Esdras chapter 2, verses 8 and 12, there's another Mithridates, spelled slightly differently in Greek, but basically the same name, because they're both being transliterated from Persian-Aramaic, who is a court official for Artaxerxes, for a later Persian emperor. Either spelling, the name means "gift of [[Mithra]]." That may be the result of like the parents having taken an oath, right, something if they were given a child to [[Mithra]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 30:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:48:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [30:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:48:00)
 Well, and also, like a ridiculously popular name in a number of dynasties related to, you know, that region. So...
 
-**[[Fr. Stephen De Young]]:** [Listen from 30:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:58:00)
+**[[Fr. Stephen De Young]]:** [Listen from [30:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=30:58:00)
 Yeah, so that's what I'm saying. I'm saying that may it may have been a custom to name your kid "gift of [[Mithra]]" if you made some kind of made some kind of vow to [[Mithra]] to have a child, you know what I mean? Yeah, or you might just be naming your kid after the emperor, you know.
 
-**[[Fr. Stephen De Young]]:** [Listen from 31:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:08:00)
+**[[Fr. Stephen De Young]]:** [Listen from [31:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:08:00)
 Since he's the guy who enforces that sort of thing. And then if you had the child, you better, you know, do your thing. Or you might just be naming your kid after the emperor, you know. Well, that too. Yeah, that becomes popular too. There's a lot of those figures with that name who, yeah, have people named after them.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 31:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:27:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [31:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:27:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 31:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:28:00)
+**[[Fr. Stephen De Young]]:** [Listen from [31:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=31:28:00)
 So yeah, those are two places. 1 Esdras, by the way, is a fascinating book because it is a separate book in the Greek tradition and it gets translated by St. Jerome into Latin. And it is a chunk of [[Ezra]] and a chunk of 2 [[Chronicles]] kind of smushed and edited together. It's one of the weirder conundrums. So I know how the Protestant-Roman Catholic debates, because Orthodox people usually don't engage in this, but the Protestant-Roman Catholic debates about "quote unquote" "the [[Apocrypha]]," by which they're referring to...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:09:00)
 In the case of the Latin canon, the seven. Yeah, the seven extra books and the extension and the added bits of [[Daniel]] and [[Esther]], you know, it's all about like Protestants saying [[Josephus]] was in errant and Roman Catholics saying, "No, the Council of Trent is in errant."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:28:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:28:00)
 Yeah, that was kind of a cheap shot at Protestants, but all of a sudden [[Josephus]] is right about everything when it comes to the canon.
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:34:00)
+**[[Fr. Stephen De Young]]:** [Listen from [32:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:34:00)
 He's like this kind of semi-canonical figure.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:38:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:38:00)
 A non-Christian Jew.
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:40:00)
+**[[Fr. Stephen De Young]]:** [Listen from [32:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:40:00)
 Not the Church Fathers, but [[Josephus]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:42:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:42:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:43:00)
+**[[Fr. Stephen De Young]]:** [Listen from [32:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:43:00)
 Yes. And one of the most treacherous Pharisees to ever live, since he was a Roman sympathizer and collaborator.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:50:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:50:00)
 I know. But he knew the canon, darn it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:53:00)
+**[[Fr. Stephen De Young]]:** [Listen from [32:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=32:53:00)
 But anyway, so it's all about, you know, who has the authority to decide the canon list, right? And that's boring. The more interesting discussion is discussing the actual texts themselves.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 33:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=33:08:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [33:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=33:08:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 33:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=33:08:00)
+**[[Fr. Stephen De Young]]:** [Listen from [33:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=33:08:00)
 And some of them being utilized in the New Testament, for example, and what's going on in the text. And this is a good example, I think 1 Esdras is a good example, because it's like, okay, you're going to say this isn't canonical, but like pretty much all the contents under the Protestant canon are canonical, just not in this form. Right? Because if you say 2 [[Chronicles]] and [[Ezra]] are both canonical, that's like 97% of the content of 1 Esdras. The other 3% are a few added details and stuff joining them together, right, linking things together. But the content's pretty much the same. So, you kind of have to argue that the content is canonical, but the text into which that content has been put or this particular arrangement of that content is non-canonical. And then what does that even mean? That an arrangement of text is uncanonical?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:04:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:04:00)
 Just means they don't want to put it in their Bible.
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:06:00)
+**[[Fr. Stephen De Young]]:** [Listen from [34:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:06:00)
 It becomes errant if you rearrange it? That's going to cause you some big [[Jeremiah]] problems.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:12:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:12:00)
 That'll be the name of my next side project for a band, Big [[Jeremiah]] Problems.
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:16:00)
+**[[Fr. Stephen De Young]]:** [Listen from [34:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:16:00)
 Big [[Jeremiah]] Problems. Yeah. Okay. I think it's a better album title. Good band title.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:25:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:25:00)
 Well, as a band, it's kind of like an indie band, you know?
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:28:00)
+**[[Fr. Stephen De Young]]:** [Listen from [34:28:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:28:00)
 I think. In the vein of Better Than [[Ezra]]. Yeah. We're we're Big [[Jeremiah]] Problems.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:35:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:35:00)
 Okay, fair enough. Fair enough. I'll give you that one. But so, now, finally, we will touch on, begin to touch on the actual topic of tonight's show, which is Roman Mithraism. And as you were just saying, at some length, Roman Mithraism, the religious phenomenon we're actually talking about here, postdates Christianity.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:57:00)
 Yeah, the Roman form. Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:59:00)
+**[[Fr. Stephen De Young]]:** [Listen from [34:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=34:59:00)
 Yeah, not by a ton, not by a ton, but by a little. So, our best guess is that Roman Mithraism as we know it and as we're going to talk about it, emerges roughly in the time of Nero, not because we have material talking about it from the time of Nero, we don't. We have material talking about it for the first time like a Dio Cassius at the end of the first century AD, but that material at the end of the first century AD talks about it beginning during the time of Nero. So that's, you know, 30, 35 years after Nero, they're saying it emerged in the time of Nero. The time of Nero is when we have the earliest mentions of Christianity, by the way, and Christianity, like [[Christ]] died and rose again about 30 years before that, so checks out, right? And you may be saying, "Well, okay, so Mithraism doesn't only post-dates Christianity by what? 30 years or so." And I say, you know, friend of the show Bart Ehrman thinks 30 years in terms of the writing of the gospels is this huge chasm, so.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:03:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:03:00)
 Yeah, "It was 30 years before they wrote any of this down." I'm like, "Um, Dr. Ehrman, you just need to check out the entire pre- Yeah, pretty much anything before like, I don't know, the Renaissance because..."
 
-**[[Fr. Stephen De Young]]:** [Listen from 36:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:19:00)
+**[[Fr. Stephen De Young]]:** [Listen from [36:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:19:00)
 Well, no, and people have given him pushback on this. I've seen people give him pushback on this. Right, where they point out like just from talking to people, you could put together a pretty good and pretty reliable oral history of the first Iraq War right now.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:33:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:33:00)
 Yeah, absolutely. I mean, and I Which was like 35 years right now, talking to people who were involved, veterans and stuff. If you tried to do that with the Korean War right now, you're going to have a really hard time. Or World War II. If you're going to do it just by talking to still living humans.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:51:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=36:51:00)
 You and I are 50, [[Father]]. We could easily write stories about stuff that was 30 years ago and be very accurate. "I remember it." Like, yeah, right? As do I.
 
-**[[Fr. Stephen De Young]]:** [Listen from 37:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:01:00)
+**[[Fr. Stephen De Young]]:** [Listen from [37:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:01:00)
 No, it's a great chasm, [[Father]]. It's like an age.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 37:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:06:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [37:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:06:00)
 Yes. Way back when you could walk all the way to the gate with your loved ones as they got on a plane. Oh, man, I remember that. That wasn't even 30 years ago.
 
-**[[Fr. Stephen De Young]]:** [Listen from 37:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:17:00)
+**[[Fr. Stephen De Young]]:** [Listen from [37:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=37:17:00)
 I'm joyful that finally 24 years after some idiot lit his shoes on fire, I now no longer have to take off my shoes at an airport. I am grateful for that. The only thing I'm grateful for about flying, and that's more like I'm happy they stopped abusing me, but still. But so, we're talking about a mid-to-late first century AD thing that really becomes a phenomenon, again, not that there weren't people out in their closets, you know, and people out in the hinterlands worshiping [[Mithra]], they're sure were. And there may have even been in the 40s or even 30s AD people coming up with forming the first little groups to practice what became Roman Mithraism. But as a sort of semi-even semi-organized phenomenon that anybody noticed and had any kind of following, we're talking about Nero's time and later. So we're talking about, you know, AD 65 and later. And it really becomes popular, it really becomes popular and widespread in the second and third centuries. So, primarily as a phenomenon, Mithraism is in the second and third centuries AD. By the time you get to St. Constantine, it takes a massive hit from St. Constantine, because as we're going to talk about in a minute, Roman Mithraism was primarily a religion practiced within the Roman military.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 38:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=38:46:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [38:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=38:46:00)
 Yeah, it was like a military religion.
 
-**[[Fr. Stephen De Young]]:** [Listen from 38:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=38:48:00)
+**[[Fr. Stephen De Young]]:** [Listen from [38:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=38:48:00)
 And St. Constantine, remember, go see our episode on St. Constantine if you want more about this, one of the things he did was he removed all of the pagan rights from the Roman military. Including even stuff like sacrifices before going into battle and replaced them with priests serving the [[Eucharist]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:09:00)
 Yeah, he basically creates Christian chaplaincy.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:12:00)
+**[[Fr. Stephen De Young]]:** [Listen from [39:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:12:00)
 Yes. And then in general, by the time you get to St. Theodosius, he pretty much abolishes paganism as such, including Mithraism, as Roman Emperor at the end of the fourth century. Okay. So, second and third century is sort of the apex, and then they have a really rough fourth century and don't make it out of the fourth century.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:36:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:36:00)
 Yeah, so at best, it exists as a religion for maybe 350 years, plus or minus.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:42:00)
+**[[Fr. Stephen De Young]]:** [Listen from [39:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:42:00)
 Exists at all, yeah. And really you're talking about more like 250 where it was ascendant and popular. So, but it was very popular during that period in certain circles because we have a lot, archaeologically, we have a lot of Mithraea.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:58:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=39:58:00)
 Yeah, and we'll explain what the way Mithraea work, whatever, but basically for now all you need to know is a **mithraeum** is a physical location where the rituals of Mithraism are practiced.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:10:00)
+**[[Fr. Stephen De Young]]:** [Listen from [40:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:10:00)
 Right. And for reasons we'll talk about in our second half, they are recognizable. There are distinguishing features that let you know, "Oh, this is a mithraeum." But yeah, mithraeum is the singular, **mithraea** is the plural. And we've found Mithraea from Syria to Britain and everywhere in between.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 40:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:31:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [40:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:31:00)
 Yeah, just about everywhere the Roman Empire was.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:34:00)
+**[[Fr. Stephen De Young]]:** [Listen from [40:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:34:00)
 Like the two frontiers. That's the eastern frontier and the northwestern frontier. I think the greatest number of them is like in Germany. Which is another frontier.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 40:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:43:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [40:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=40:43:00)
 Yeah, there's two in... no, sorry, there's four that are known in the UK. And um, I uh, just a couple weeks ago, I was actually quite near one of them at Hadrian's Wall. I didn't actually get to see it. I didn't get out that far, but I was, I don't know, it's probably within 10 miles of it or so.
 
-**[[Fr. Stephen De Young]]:** [Listen from 41:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:03:00)
+**[[Fr. Stephen De Young]]:** [Listen from [41:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:03:00)
 I bet it, I bet it was that guy you were with, Decon Saram, Mont Baton, Windsor, if that is his real name. Wow. He probably had some kind of gastrointestinal discomfort and wouldn't let you go to the Mithraeum and something like that.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 41:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:17:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [41:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:17:00)
 Now it's very, very spicy. I'm surprised you would make such spicy jokes about people who are in the UK, although actually the UK is a great place to get curries, but.
 
-**[[Fr. Stephen De Young]]:** [Listen from 41:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:27:00)
+**[[Fr. Stephen De Young]]:** [Listen from [41:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:27:00)
 But that's not exactly native. Right. So and so the reason, the reason you find them concentrated in places like Syria, Britain, Germany, out at the frontiers is, as we mentioned, its main center of popularity was within the Roman military.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 41:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:45:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [41:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:45:00)
 Yeah, it was like a military religion.
 
-**[[Fr. Stephen De Young]]:** [Listen from 41:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:46:00)
+**[[Fr. Stephen De Young]]:** [Listen from [41:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:46:00)
 And where is the Roman military garrisoned? Out on the frontiers of the empire.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 41:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:50:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [41:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:50:00)
 That's right. So that's where the army is, so that's where these religious practices are.
 
-**[[Fr. Stephen De Young]]:** [Listen from 41:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [41:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=41:54:00)
 Yes, at these Roman fortifications. And so that's where you find Mithraea, that's who it's really popular with. Now, in addition to being very popular within the Roman military, only men could participate in Roman Mithraism.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 42:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [42:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:09:00)
 Yeah, there's no, you know, order of the Eastern Star for Mithraists.
 
-**[[Fr. Stephen De Young]]:** [Listen from 42:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:15:00)
+**[[Fr. Stephen De Young]]:** [Listen from [42:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:15:00)
 He-Man Woman-Haters Club, no girls allowed.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 42:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:19:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [42:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:19:00)
 Right. I mean, we don't make up the rules. This is the way that it is.
 
-**[[Fr. Stephen De Young]]:** [Listen from 42:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:22:00)
+**[[Fr. Stephen De Young]]:** [Listen from [42:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:22:00)
 And this is unlike other Roman paganism, right, because there's no like women as shrine prostitutes or anything, right? Like there's no women involved at all.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 42:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:35:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [42:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:35:00)
 This is a purely male religion.
 
-**[[Fr. Stephen De Young]]:** [Listen from 42:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:37:00)
+**[[Fr. Stephen De Young]]:** [Listen from [42:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=42:37:00)
 And you got to factor this into account, right? We've talked about this on the show before, that when you're talking about like especially second century Christianity, its primary converts are primarily women and slaves. And we know that from several places, including the fact that the pagans look down on Christians in part because it was a religion of women and slaves. But Christianity treated them as human beings.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 43:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:05:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [43:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:05:00)
 Which is crazy. Go figure.
 
-**[[Fr. Stephen De Young]]:** [Listen from 43:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:07:00)
+**[[Fr. Stephen De Young]]:** [Listen from [43:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:07:00)
 It was a religion that they could fully participate in, whereas they can't even get near a mithraeum. So not an option for anybody except Roman freemen, many of whom were in the military. So in our next half, we'll talk about what they got up to in the mithraeum.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 43:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:27:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [43:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:27:00)
 All right. Well, we've begun our dive into Mithraism here on this episode of [[Lord of Spirits]] podcast. We're going to take a quick break and we'll be right back with the second half.
 
-**Break:** [Listen from 43:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:37:00)
+**Break:** [Listen from [43:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=43:37:00)
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:21:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:21:00)
 Hey, welcome back everybody. Second half of this episode of the [[Lord of Spirits]] podcast, and already we have a caller who's calling in who wants us to discuss the spicy remarks, father, that you made about the pan-heresy of ecumenism. Are you ready, father?
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:36:00)
+**[[Fr. Stephen De Young]]:** [Listen from [45:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:36:00)
 The pro-pan-heresy.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:38:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:38:00)
 I don't know. I don't know. We'll find out. So Jordan, welcome to the [[Lord of Spirits]] podcast.
 
-**Jordan:** [Listen from 45:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:44:00)
+**Jordan:** [Listen from [45:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:44:00)
 Hi, fathers, blessed.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:46:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:46:00)
 God bless you. So what's on your mind?
 
-**Jordan:** [Listen from 45:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:49:00)
+**Jordan:** [Listen from [45:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=45:49:00)
 So, I actually, I lied about my question, so I'm sorry. I am interested to hear what [[Father Stephen]] meant. I haven't heard a negative take on ecumenism, at least not to that extent. But I'm a catechumen and I've been reading a bunch of stuff and the concept of the [[Trinity]] really bothers me. And I've asked some priests about it and I just can't conceptualize when we say that the [[Holy Trinity]] is one mind. I don't see how that doesn't become a modalism or the [[Father]], Son, and [[Holy Spirit]] being different forms of the one God. And I was hoping that maybe you guys would be able to just conceptualize that. And I know it's a mystery, you know, at some extent and we can't fully comprehend, but I mean, the only way that I've been able to to make sense of it is there must be some type of mind that is the one mind and then a different mind that we would say is that correlates to the personhood.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 46:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=46:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [46:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=46:57:00)
 One mind? That's not... What, yeah, that's not a thing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 46:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=46:59:00)
+**[[Fr. Stephen De Young]]:** [Listen from [46:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=46:59:00)
 Yeah, that's not one of the...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 47:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [47:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:02:00)
 I was going to say, where are you getting that language, Jordan? I mean, I'm racking my brain, I'm like, I don't remember actually coming across that phrase in any of our liturgical texts talking about the [[Holy Trinity]]. I mean, maybe one of the church fathers uses that phrase.
 
-**Jordan:** [Listen from 47:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:15:00)
+**Jordan:** [Listen from [47:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:15:00)
 I got it from Divine Energy, the book Divine Energy by, I think, Braun.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 47:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [47:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:20:00)
 [[Father]] Thomas Braun. So I've read that book but it's been a long time. I would have to look and see what he meant by that. Maybe what he means is something like one will.
 
-**[[Fr. Stephen De Young]]:** [Listen from 47:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:32:00)
+**[[Fr. Stephen De Young]]:** [Listen from [47:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=47:32:00)
 Yeah, because that's the so the Orthodox doctrine of the [[Trinity]], right, is that you have the [[Father]] and the Son and the [[Holy Spirit]], who are not the same person. They are three persons. And then they are one in a series of ways. One of those is that they are one in essence, meaning they're the same thing. That's what *homoousios* means. It means the same thing. Yeah. Meaning one of them isn't sort of more God than the others, including the [[Father]]. They're all the same thing. One of those is that now this is the sort of upward direction, they receive one worship because the Son and the Spirit are the exact image of the [[Father]] and so the worship received by the Son and the Spirit passes to the prototype. This is where [[St. Basil the Great]] first uses that principle. And so they are worshipped as one by us.
 
 And then, more directly related to your question, the three persons, and this is in a descending way, are one in nature, will, and energy. And those three things are related ideas. So nature is a sort of directedness of being. Basically, the three persons are not oriented in different directions. They are oriented in the same direction. And then will, the concept of will, will is a function of nature. Will is a sort of internal drive or force or push in the direction of nature. This is a crude analogy, but pointed in the same direction and moving in the same direction. And then energy, *energeia*, in-working, their activity is one in that they then, because they're oriented in the same direction, moving in the same direction, then their activity, and that activity is generally we're talking about activity experienced in creation, that is all one. So those are the ways in which the three persons are one. The [[Holy Trinity]] is not in the Orthodox understanding, three and one in the same sense. They are three in some senses and one in other senses.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 49:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=49:59:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [49:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=49:59:00)
 Yeah, it's not just pure contradiction.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:02:00)
+**[[Fr. Stephen De Young]]:** [Listen from [50:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:02:00)
 Yeah, that one mind, when you use that one mind phrase, Jordan, I mean that just immediately, obviously it struck both of us is like, what? Because it's not it's not the usual language for sure.
 
-**Jordan:** [Listen from 50:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:11:00)
+**Jordan:** [Listen from [50:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:11:00)
 Yeah. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:13:00)
+**[[Fr. Stephen De Young]]:** [Listen from [50:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:13:00)
 And and it's not even clear what that would signify. Like as you said, that sounds like you're saying there's one consciousness, and that sounds an awful lot like one person.
 
-**Jordan:** [Listen from 50:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:22:00)
+**Jordan:** [Listen from [50:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:22:00)
 Yeah, exactly.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:25:00)
+**[[Fr. Stephen De Young]]:** [Listen from [50:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:25:00)
 Yeah, so I think that's, I'll say this, out of, I'll try to be charitable, which is rare for me, and just say, I think that way of expressing it is not helpful and causes confusion.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 50:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [50:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:37:00)
 Yep. I I always say, look, it's just best to stick with the language that one finds particularly in the liturgical services because it's it's pretty conventional at this point, you know, the kinds of ways that we talk about God's oneness and threeness in the hymns that we sing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [50:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=50:54:00)
 Yeah, you can also if you want a primary source on this, you can read [[St. Gregory of Nyssa]]'s "Why There Are Not Three Gods."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 51:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:00:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [51:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:00:00)
 Well, I hope that helps, Jordan.
 
-**Jordan:** [Listen from 51:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:03:00)
+**Jordan:** [Listen from [51:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:03:00)
 Yeah, thank you very much.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 51:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:04:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [51:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:04:00)
 You're welcome. You're welcome. All right, well, rolling right along.
 
-**[[Fr. Stephen De Young]]:** [Listen from 51:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:10:00)
+**[[Fr. Stephen De Young]]:** [Listen from [51:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:10:00)
 Rebellion against the shackles of call screening continues.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 51:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:15:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [51:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:15:00)
 Now that he's done that, people are going to be left and right telling Mike all kinds of things and then we'll have... "Cut them off, cut them off, Mike!" So yeah, I mean is there's like a big, you know, boy scout manual somewhere that someone's uploaded to the internet telling all the secret rituals of Mithraism that we can all read?
 
-**[[Fr. Stephen De Young]]:** [Listen from 51:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:37:00)
+**[[Fr. Stephen De Young]]:** [Listen from [51:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:37:00)
 No.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 51:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:38:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [51:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:38:00)
 No? So how do we know?
 
-**[[Fr. Stephen De Young]]:** [Listen from 51:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:40:00)
+**[[Fr. Stephen De Young]]:** [Listen from [51:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:40:00)
 Yeah, there is no Mithraist Joseph Smith to spill the beans on Freemasonry.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 51:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:45:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [51:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:45:00)
 I want to trigger some more Masons. I mean, come on, and anti-Masons, too.
 
-**[[Fr. Stephen De Young]]:** [Listen from 51:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:50:00)
+**[[Fr. Stephen De Young]]:** [Listen from [51:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=51:50:00)
 Well, I just triggered Masons and Mormons all at once. That's right. Yeah. So, what are our sources for knowing about Roman Mithraism? Well, we don't have a lot. We've got some things, but we don't have the things we'd like to have, we'll put it that way. In that we have no primary texts. We have no texts from Mithraists, we have none of the texts that they might have used amongst themselves, we have nobody spilling the beans, which we do, next episode when we're talking about other mystery cults, a bunch of the other Greek and Roman mystery cults, there are people who spilled the bean, there are people who are like, "Yeah, I went through that and here's what they do."
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 52:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=52:32:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [52:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=52:32:00)
 So there's no like texts to read from the ancient world, no primary.
 
-**[[Fr. Stephen De Young]]:** [Listen from 52:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=52:37:00)
+**[[Fr. Stephen De Young]]:** [Listen from [52:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=52:37:00)
 And there's a lot of possible reasons why this is the case. The two biggest ones probably are, number one, history destroys texts. Like the majority of texts written in the ancient world are gone forever. The vast majority. It's so sad, it's just the way that it is. And the other thing, of course, this is a secretive cult. So like they have a vested interest in not reviewing what it is that they're doing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 53:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:02:00)
+**[[Fr. Stephen De Young]]:** [Listen from [53:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:02:00)
 Yes, you're not supposed to spill the beans.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:04:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:04:00)
 So that would also limit the fact that it might get written down somewhere or whatever. They weren't making lots of copies of whatever texts they had. And yeah, history destroys texts and, you know, having your cult get outlawed destroys texts.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:17:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:17:00)
 That'll do it too. Either actively, and this doesn't always mean, I know there's these images fostered by internet atheists that Christians were just running around burning all these texts. That was actually fairly rare. It's just if nobody's copying them, they deteriorate and they go away.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:35:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:35:00)
 That's the biggest thing is is it's not like there's some big data dump somewhere that they've burned down. It's that if you don't copy it, then it just goes away.
 
-**[[Fr. Stephen De Young]]:** [Listen from 53:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:44:00)
+**[[Fr. Stephen De Young]]:** [Listen from [53:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=53:44:00)
 And people, people, the library of Alexandria did not burn down. It never happened. It did not burn down. So if you hear someone say, "Christians burned it down," you know they're doubly stupid.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=54:01:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=54:01:00)
 Yeah, actually, I this will be the second time I mentioned this show in this episode, but The Rest is History podcast has a great episode on the library of Alexandria and what it wasn't, largely.
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=54:12:00)
+**[[Fr. Stephen De Young]]:** [Listen from [54:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=54:12:00)
 Yes. Part of where that myth comes from is there was a fire there at a certain point, but it did not destroy the whole library. It was like a small little bit. Yep. It was not set by Christians either. So if anyone comes to you and says Christians burned down the library of Alexandria, you know they're stupid because number one, it didn't burn down, so nobody burned it down. But they're not only confidently telling you that something that never happened happened, they're telling you who did the thing that never happened.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=54:41:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=54:41:00)
 Yeah. I mean the reality is, since we're on this little discursus about Christianity and texts, of all the religious traditions that have ever existed in the world, the most text-generating, text-saving, text-copying, text-loving religion ever is Christianity. In many cases, literacy came to cultures because Christianity showed up.
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:01:00)
+**[[Fr. Stephen De Young]]:** [Listen from [55:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:01:00)
 Yes. Long before sola scriptura was an idea in anyone's mind.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:07:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:07:00)
 Yeah. By the way, and they were copying texts other than the Bible to prove it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:10:00)
+**[[Fr. Stephen De Young]]:** [Listen from [55:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:10:00)
 Right. Yeah. Well, well, hey, while we're ranting, all those Greek philosophical texts were preserved in the Muslim world by Greek monks.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:20:00)
 That's true.
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:21:00)
+**[[Fr. Stephen De Young]]:** [Listen from [55:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:21:00)
 Okay. Or even Greek mythological texts. Yes. And one last note, because I used the term stupid, and I know, and some of our...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:31:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:31:00)
 How dare you? How dare you say someone is stupid? They're gonna get mad.
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:36:00)
+**[[Fr. Stephen De Young]]:** [Listen from [55:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=55:36:00)
 I'm causing emotional harm to people with my words. I know. But I use the word "stupid" as a technical term. Someone who is ignorant about things is not stupid. We're all ignorant. I am ignorant about more things than I know about. If you listed all the possible topics someone could know about, I am ignorant of way more than 51% of them. So being ignorant does not make you stupid. What makes someone stupid, in the way I use it, is they don't know anything about a topic and they're speaking very confidently about that topic. Someone who doesn't know what they don't know is a stupid person. Okay? So I don't feel bad about saying that because that's bad behavior that should be avoided. If you don't know anything about a topic, I'll even let you comment on it as long as you're not super self-assured. Right? As long as you say, "I don't know a lot about this, but I think," I'll be nice about it, right? But you come to me and say something like, "Christians burned down the library of Alexandria," I will laugh at you and do more emotional harm with my words. I will hurt your feelings and not feel bad about it. Okay, back to our topic. And send your angry emails about that to fr.andrew@ancientfaith.com. About what a mean, horrible person I am. So, we don't have the texts. What we do have, the biggest thing we have is the archaeology of the Mithraea themselves. So we've got a lot of data from that. The problem with archaeology as a source is all that data has to be interpreted. And normally we would use things like texts to guide our interpretation, but we don't have the texts. So there's not really a solid guide for our interpretation of the archaeological data. And so you get a lot of theories when you read literature about Mithraism. There's this one guy, Cumont, who was the guy for most of the 20th century, and then in the 1970s, everybody decided all of his reconstructions were all wet, and now nobody really accepts them. So now you've got just everybody has their own ways of putting the data together and their own theories. And the good ones present it as, "Well, here's my theory and here's why I think this theory is better than other theories," but until and unless we find some actual texts or something from the original Mithraists, we're not going to know for sure who's reconstructing it the right way. So, lots of data, but how certain we can be about the interpretation of that data, very limited. The other source we have is we have comments and brief descriptions of different things about Mithraism in the church fathers of the second and third century. Now, I love the church fathers, the church fathers are great, but it's not like they talk about Mithraism a lot. It's not like we have a lot of writings of church fathers from those centuries in the first place. So we've got relatively few writings from church fathers in the second and third centuries. Most of those are not talking about Mithraism, right? So we've got these little bits and pieces in their texts. And when they do mention Mithraism, they're like attacking Mithraism. So, they're not setting out to, "Here, let me explain Roman Mithraism to you, and then I will offer a detailed critique." It's an offhand reference to the demonic wickedness of Mithraism in doing X. So, it's not unhelpful, it's not irrelevant. There are some details that we get about Mithraism that we wouldn't know otherwise this way, so it is helpful, but it's not enough and it's not the kind of thing where we can really get some kind of full-orbed picture of what Mithraism looked like in the Roman Empire. So, as we go through the rest of this half of the program, we're going to be trying to give you the data we have and some possible interpretations based on that data. Anything that falls into the realm of interpretation, we can't be sure of.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 59:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=59:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [59:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=59:57:00)
 Yeah, I mean with archaeology, you got a bunch of stuff. And you look at that stuff and you have to try to figure out what it was used for, what it might have meant to the people who used it. But if you have no one there to explain it and no text to describe what's going on, at best you've got guesses. You can do context clues, you can compare it against other things, you know, but still like it's still a bunch of stuff. You know, you might not know what it's for, you might not know what a particular symbol means, you can just you can guess. So that's that's, you know, these are educated guesses.
 
 **[[Fr. Stephen De Young]]:** [Listen from 1:00:33:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_127.mp3#t=1:00:33:00)

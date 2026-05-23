@@ -6,707 +6,707 @@ tags: [lordofspirits]
 
 ## Transcript
 
-**Intro:** [Listen from 00:00:01](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=00:00:01)
+**Intro:** [Listen from [00:00:01](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=00:00:01)
 > He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. (1 [[Enoch]] 48:4-5)
 
-**Intro:** [Listen from 00:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=00:22:00)
+**Intro:** [Listen from [00:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=00:22:00)
 > The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests [[Fr. Andrew Stephen Damick]] and [[Fr. Stephen De Young]] host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by God and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=01:07:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=01:07:00)
 Good evening, giant-killers and dragon-slayers. You are listening to the [[Lord of Spirits]] podcast. My co-host, [[Fr. Stephen De Young]] is with me from Lafayette, Louisiana, and I'm [[Fr. Andrew Stephen Damick]] in Emmaus, Pennsylvania. We are recording live, but we're actually not going to be taking phone calls tonight. That said, if you leave a question on our Facebook or Ancient Faith YouTube streams and we spot it, there is a chance that we could take it and respond. Anyway, let's dive in. So are you ready, [[Fr. Stephen]]?
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=01:47:00)
+**[[Fr. Stephen De Young]]:** [Listen from [01:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=01:47:00)
 Yes.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 01:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=01:48:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [01:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=01:48:00)
 All right. Yes, this is going to be an all-Q&A episode, everybody. Um, so we got piles and piles of questions from you. Um, lots were sent by email, but then also some were a lot were sent by voicemail. And since we got plenty of the voicemail variety, we're favoring that. Number one, because we love to hear your wonderful voices. But number two, it just makes for better radio, actually. But, uh, so don't be discouraged, though. Uh, we we still want to hear from you from by email. You're you're welcome to uh, to send that in. But we we, like I said, you know, voicemail is better. So here we are. Um, lots and lots of questions today. So I'm just going to start us off with the first one. This one comes from actually my old seminary classmate, Father Christopher.
 
-**Fr. Christopher:** [Listen from 02:32:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=02:32:00)
+**Fr. Christopher:** [Listen from [02:32:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=02:32:00)
 [[Leviticus]] chapter 18 deals with various and sundry forms of sexual immorality that the Lord commands the children of [[Israel]] not to do according to the way of life in the land of [[Egypt]] and [[Canaan]], because this way of life vexes the land itself. But one verse in this chapter stands out as very different and on first reading, it doesn't look like it's dealing with sexual immorality, and that's verse 21. "Furthermore, you shall not give your offspring to worship a ruler, nor shall you defile my holy name. I am the Lord." My question is, is this verse actually talking about the [[Nephilim]] ritual? Thank you, fathers.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:25:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:25:00)
 There we go, right out of the gate with a giant question. Yay. I don't, you know, my—
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:31:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:31:00)
 I didn't think the question was that long.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:33:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:33:00)
 Oh, wait, you meant the other way.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:35:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:35:00)
 Whoa.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:37:00)
 All right. Well, a good pun- pun to start off with. Yeah, I—
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:41:00)
+**[[Fr. Stephen De Young]]:** [Listen from [03:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:41:00)
 The punishment continues.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:42:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:42:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:42:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=03:42:00)
 As it will. It will continue, no matter what how morale does. Um, I mean, I, like my read on where he says not give your offspring, uh, to worship a ruler. I mean, ruler there, right, that's that's referring to gods, right? Is that the idea? It's not talking about—
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:00:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:00:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:00:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:00:00)
 Well, of course, you know, you're local— you're local God-king is a god, right? It's it's kind of a mistranslation, actually.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:07:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:07:00)
 Oh, all right. Take us in.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:09:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:09:00)
 Yeah. Well, because it's Molech.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:12:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:12:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:12:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:12:00)
 Oh, is that what it says literally? Is Molech?
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:13:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:13:00)
 Yeah, and and someone read Molech as Melech, which means king.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:19:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:19:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:19:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:19:00)
 Oh, wow. All right. Is that, uh, I mean, I don't have my Sep-, you know, my [[Septuagint]] in front of me. Is that the [[Septuagint]] reading? Is that they have a king? Oh, got it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:28:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:28:00)
 Yeah, yeah, yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:30:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:30:00)
 So don't give your kids to Molech who is the notorious—
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:34:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:34:00)
 It's just referring to a specific demon. Right.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:37:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:39:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:39:00)
+**[[Fr. Stephen De Young]]:** [Listen from [04:39:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:39:00)
 But his name is derived, it's it's derived from the same root. Right? The same way that like [[Baal]], right, Ba'al means master or lord, right? Like Molech kind of means ruler. So it's so it kind of is a mistranslation. And then it's not translated as a proper noun.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=04:57:00)
 Yeah, and and, you know, notoriously, Molech is the one associated with child sacrifice in in the [[Old Testament]], right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:05:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:05:00)
 Right. Yeah. Right.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:07:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:07:00)
 So probably not referencing the [[Nephilim - Giants]] ritual, but really talking about sacrificing children to this demon.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:17:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:17:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:17:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:17:00)
 Right. Right. And the the connection to the sexual immorality element is that, um, this is related to fertility, right, the practice. Hmm. So people would sacrifice a child to Molech, the idea being that would guarantee fertility and you'd have a bunch more children.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:41:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:41:00)
 Oh, wow. Counter-intuitive, I know. I mean, there's a weird parallel there to the whole prosperity gospel seed faith thing. You know, pay this money and you'll get a lot more money later. Yeah. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:57:00)
+**[[Fr. Stephen De Young]]:** [Listen from [05:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:57:00)
 This is a little darker.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:58:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=05:58:00)
 Yes. Wait, yeah. Yeah, like I don't think Rod Parsley's sacrificing any babies, but um, good old Rod.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:07:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:07:00)
 If you have information I don't, let the police know. But um, I don't know, I'm pretty sure he's not. Um, so but yeah, that so that that's the connection, right? That's the connection.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:20:00)
 And a lot of the commandments there in [[Leviticus 18]] are bluntly talking about non-reproductive sex.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:30:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:30:00)
 Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:31:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:31:00)
 All sterile kinds of things that are against the basic commandment of be fruitful.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:36:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:36:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:36:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:36:00)
 Right. And so this is related this is related to that. And they're all directed toward men because of course, women at that time did not have the right of consent. So it was men making the decisions about these things.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:48:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:48:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:49:00)
+**[[Fr. Stephen De Young]]:** [Listen from [06:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=06:49:00)
 And so it's restricting male sexuality from these various outlets. Right. Um, because men, for some reason, in the past, uh, wanted to have a lot of sex without having a lot of children they'd have to be responsible for.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:08:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:08:00)
 Huh. Yeah, go figure. Yeah. Yeah. Um, and and then also, I mean, you know, the the pairing of idolatry and sexual immorality is ubiquitous in the Bible, right? I mean, it's everywhere.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:24:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:24:00)
+**[[Fr. Stephen De Young]]:** [Listen from [07:24:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:24:00)
 Right. Yeah. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:28:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:28:00)
 All right. Well, moving on to our next question for this first half. This one is from [[Noah]].
 
-**[[Noah]]:** [Listen from 07:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:35:00)
+**[[Noah]]:** [Listen from [07:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:35:00)
 Hello, fathers. I was wondering what is the most theological significance of the fact that in [[John]]'s gospel, [[Jesus]] doesn't exercise any demons, even though he's seen doing this in the other three? Thanks.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 07:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:49:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [07:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=07:49:00)
 Yes. So, I mean, there's I mean, number one, there's a lot of differences between [[John]]'s [[John]]'s gospel and the synoptic gospels, [[Matthew]], [[Mark]] and [[Luke]]. Um, why is this? I I it's funny actually. I had never noticed this before, but then when we got this question, I kind of looked it up. I was like, oh, hey, that's that's right. I don't I can't remember any exorcisms in [[John]]'s gospel and I can't find any. Is that true? Are are there not any, um, and if not, why why do you think that would not be in the picture there?
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:17:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:17:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:17:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:17:00)
 So I have said that there aren't any in your presence before. So apparently.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:20:00)
 Oh, really? I can't remember every...
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:22:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:22:00)
 You tuned me out a lot of the time.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:23:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:23:00)
 I believe it. Everything you say... you say a lot of things.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:27:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:27:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:27:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:27:00)
 It's true. But I also repeat myself a lot.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:29:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:29:00)
 That's true too. On the on the flip side. On the flip side.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:32:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:32:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:32:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:32:00)
 I say the same things over and over again a lot of the time.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:35:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:35:00)
 Um.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:37:00)
+**[[Fr. Stephen De Young]]:** [Listen from [08:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=08:37:00)
 But it is true that there are no exorcisms in St. [[John]]'s gospel. I mean, on on one hand, this is kind of an unanswerable question in that we'd have to get into St. [[John]]'s head and say, hey, why didn't you put in any exorcism? But I'm not just going to say that. Right. Um, but I I hold to, uh, and I think there's good warrant for this. I mean, as an Orthodox Christian, the the iconography of St. [[John]] composing his gospel with a scribe always depicts him as an elderly man. Um, for example, um, and so, uh, based on sort of everything the father say, all the traditions of the church, uh, rather than my own conjecture, uh, I'll leave that. Um, that St. [[John]]'s gospel was written last.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 09:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=09:30:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [09:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=09:30:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 09:32:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=09:32:00)
+**[[Fr. Stephen De Young]]:** [Listen from [09:32:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=09:32:00)
 Um, and there's been some good, um, scholarly work published in the last several years, um, in Johannine studies that makes a really good case that not only is St. [[John]]'s gospel written after the synoptic gospels, the other three, but that it is aware of the other three.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 09:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=09:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [09:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=09:56:00)
 Yeah. Right. So he's like, well, look, you guys got this covered. So I'm going to focus on this over here.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:04:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:04:00)
+**[[Fr. Stephen De Young]]:** [Listen from [10:04:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:04:00)
 Right. And there are places where he seems to be deliberately filling in gaps.
 
 **[[Fr. Andrew Stephen Damick]]:** [Listen from 10:09:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spiri
 ts_2022-06-23.mp3#t=10:09:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:10:00)
+**[[Fr. Stephen De Young]]:** [Listen from [10:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:10:00)
 Right. So for example, talking about the raising of [[Lazarus]] and it's direct connection to [[Christ]]'s triumphal entry on Palm Sunday.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 10:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:18:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [10:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:18:00)
 Yeah, a big example because I mean the raising of [[Lazarus]] isn't even in the other three, right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:23:00)
+**[[Fr. Stephen De Young]]:** [Listen from [10:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:23:00)
 Right. We just see all these people excited to see [[Jesus]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 10:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:26:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [10:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:26:00)
 Right. We just like, yeah, it comes out of the blue. Like, oh, here he is. Welcome. You know, big crowds and palm branches and like, wait, who is this guy again? I mean, it doesn't quite make sense in the in those gospels. But if you, you know, if word has gotten out that he raised this guy four days dead out of the tomb, people are going to turn out for that. You know, they're they're going to want to see this guy who can do that because no one's ever even heard of that before.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:52:00)
+**[[Fr. Stephen De Young]]:** [Listen from [10:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=10:52:00)
 Right. Right. And and so there are there are a bunch of other examples besides the exorcism, also. For example, uh, St. [[John]]'s gospel doesn't have the institution of the [[Eucharist]] in it.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 11:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:03:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [11:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:03:00)
 Yeah, right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:05:00)
+**[[Fr. Stephen De Young]]:** [Listen from [11:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:05:00)
 Um, it has the foot washing and then it sort of skips, right? It has the foot washing that that the other gospels don't. Hm. Right. And then it has a much more elaborated sort of final discourse of [[Christ]] to his disciples, right? After after the mystical supper. But it doesn't describe the institution of the [[Eucharist]]. Rather, you have [[John 6]]. Hm. Which isn't that whole discourse is not in the other gospels. And you have that talking about the [[Eucharist]], but you don't have the actual institution. The the weirdest one of these though is that technically, [[Jesus]] doesn't get baptized in uh, in St. [[John]]'s gospel.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 11:46:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:46:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [11:46:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:46:00)
 Oh, interesting.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:47:00)
+**[[Fr. Stephen De Young]]:** [Listen from [11:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:47:00)
 Because it describes him coming to St. [[John]] the Forerunner, and then it skips to when he came up out of the water.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 11:55:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:55:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [11:55:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:55:00)
 Huh. Yeah. Like it skips the actual baptism part.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:58:00)
+**[[Fr. Stephen De Young]]:** [Listen from [11:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=11:58:00)
 The same way it skips the institution of the [[Eucharist]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:02:00)
 So in a lot of ways, [[John]]'s gospel functions as a kind of theological supplement to the other three.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:08:00)
+**[[Fr. Stephen De Young]]:** [Listen from [12:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:08:00)
 Right.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:09:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:11:00)
+**[[Fr. Stephen De Young]]:** [Listen from [12:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:11:00)
 Right. And so it it takes for granted, like in those cases literally takes for granted that you're aware of the contents of the others.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:20:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:22:00)
+**[[Fr. Stephen De Young]]:** [Listen from [12:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:22:00)
 And so he can fill things in, he can talk about things that maybe he was privy to that other gospel writers weren't, right? Um, and sort of expand on some of those things without having to just go through the same material again.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:38:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:38:00)
 And then the other three, I mean, you know, without getting into the weeds of of whether, you know, one of them is used as a source for the others or whatever.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:50:00)
+**[[Fr. Stephen De Young]]:** [Listen from [12:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:50:00)
 You're just picking fights today.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:52:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=12:52:00)
 I'm just letting you know I'm aware of that. Uh, okay. Um, they don't they don't function this way. There's not like a, well, you know, look, [[Mark]] had this covered, so I don't really need to include like there there's they seem to...
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:06:00)
+**[[Fr. Stephen De Young]]:** [Listen from [13:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:06:00)
 Right, they don't reference each other.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:07:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:07:00)
 Yeah, they seem to function as units on their own on some, you know, like they're they're they're, you know, they're they're trying to be complete according to that particular author's vision for what a complete gospel looks like, you know?
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:24:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:24:00)
+**[[Fr. Stephen De Young]]:** [Listen from [13:24:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:24:00)
 Right. I mean, St. [[Luke]] at the beginning of his gospel makes the reference to a bunch of people having written things before.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:31:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:31:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:33:00)
+**[[Fr. Stephen De Young]]:** [Listen from [13:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:33:00)
 Um, but other than that, right, he makes that sort of general reference to the fact that I'm using source material. Right. But other than that, there's no specific, like, I got this from this person, I got this from that person.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:44:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:44:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:45:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:45:00)
+**[[Fr. Stephen De Young]]:** [Listen from [13:45:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=13:45:00)
 There are some hints at that in St. [[Luke]]'s gospel in that he will sometimes name the people for like no particular reason. Hm. He'll say this was so and so, you know, the son of so and so or so and so the brother of so and so. Right? Which kind of implies that may be who he talked to.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 14:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:03:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [14:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:03:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 14:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:05:00)
+**[[Fr. Stephen De Young]]:** [Listen from [14:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:05:00)
 Um, and he just sort of assumes that the people who are his original readers at least will know who that is or be able to ask them something or whatever, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 14:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:13:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [14:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:13:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 14:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:15:00)
+**[[Fr. Stephen De Young]]:** [Listen from [14:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:15:00)
 But yeah, beyond that, there aren't like, he doesn't say like, as St. [[Mark]] wrote...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 14:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [14:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:20:00)
 Right. Right, exactly. And, you know, and you know, of course, when you're talking about the two of them in particular, they were not present for the vast majority of what they're writing about. So they're all getting that from other sources, you know? They're talking to people and maybe there's some other stuff written down that we don't have.
 
-**[[Fr. Stephen De Young]]:** [Listen from 14:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:38:00)
+**[[Fr. Stephen De Young]]:** [Listen from [14:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:38:00)
 But, St. [[Mark]] is getting it traditionally from [[St. Peter]]. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 14:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:41:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [14:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:41:00)
 Yeah, right. Right. Very interesting. All right. Well, so, uh, the answer [[Noah]] is we don't really quite know exactly why there aren't any exorcisms in [[John]]'s gospel, but but maybe he figured that had been taken care of already, you know, by the other ones.
 
-**[[Fr. Stephen De Young]]:** [Listen from 14:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [14:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=14:54:00)
 Yeah. But good good catch. But yeah, I mean, it's so prominent in the other three that he may have felt that that was covered.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 15:00:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=15:00:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [15:00:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=15:00:00)
 Sure. Right. Yeah, exactly. Okay. All right. We got one from Jesse who has a question about [[Holy Spirit]] procession.
 
-**Jesse:** [Listen from 15:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=15:11:00)
+**Jesse:** [Listen from [15:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=15:11:00)
 Hello, fathers. This is Jesse Crosby. I have a question about prophecy. Um, as I've been listening to [[Lord of Spirits]] and my understanding of what prophecy is and the role that it plays in scripture and in our lives has been expanded, um, I'm a little confused about certain areas of scripture where it talks about the [[Holy Spirit]] coming upon someone and they begin to prophesy. Um, almost in an uncontrolled way. I mean, probably the most obvious example would be [[Saul]] when the [[Holy Spirit]] comes on him when he's coming to attack [[David]], and he begins prophesying and takes all of his clothes off, and it's almost like he's acting as if he has no control and is a madman, um, which seems to be something that we would associate with demonic possession, not the not the [[Holy Spirit]]. Um, and we're never really told what they say. So I'm wondering what does prophecy in this sense look like? What are they saying? What are, what are what exactly are they are they just praising God? Are they speaking about something that's going to happen? Like, I'm trying to understand how to read these portions of scripture. Thank you so much.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 16:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=16:29:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [16:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=16:29:00)
 It's a cool question. Um, I mean, it's it's notable and you've pointed this out before that there are it's not just like with [[Saul]] suddenly, you know, jerking around on the ground, you know, uh, but like there are other cases where it seems like the [[Holy Spirit]] sort of takes hold of someone and kind of on some level makes them do something, right? I mean, what are the conditions? Why why would he do that? I mean, obviously, we cannot know the mind of God. But you know what I'm saying? Like there are there are clearly times when prophecy seems to be a much more kind of, um, you know, uh, uh, synergistic thing, you know? Like, I I I heard the word of the Lord, or I saw him and he said this to me and now I'm passing this on to you. Like, it doesn't seem like, you know, there there's no point where the [[Holy Spirit]] functions as a kind of, you know, functions through someone in a kind of oracular way that I can recall. Am I, am I forgetting something? But there are moments that he grabs hold of people and and does things with them.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=17:31:00)
+**[[Fr. Stephen De Young]]:** [Listen from [17:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=17:31:00)
 Right. Yeah. Most of the time when you see the phenomenon of [[Holy Spirit]] possession, whoever gets sort of possessed kills a whole lot of people. I'll just, even problematize it even more. Like in judges and in [[Joshua]], that's like, that literally happens. Like the [[Holy Spirit]] came upon somebody like Samson. People love when I talk about Samson. And, you know, he kills hundreds of people, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 17:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=17:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [17:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=17:56:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=17:57:00)
+**[[Fr. Stephen De Young]]:** [Listen from [17:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=17:57:00)
 And I've noticed that the language seems to be different. Like, it he came, the spirit comes upon versus someone is filled with the [[Holy Spirit]]. Is that a real distinction?
 
-**[[Fr. Stephen De Young]]:** [Listen from 18:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:08:00)
+**[[Fr. Stephen De Young]]:** [Listen from [18:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:08:00)
 Right. Right. Comes upon and then departs. Hm. Right. Whereas when we, when, you know, uh, St. Stephen, when he's about to be martyred, you know, is said to be filled with the [[Holy Spirit]] and then he speaks.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 18:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:21:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [18:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:21:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 18:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:23:00)
+**[[Fr. Stephen De Young]]:** [Listen from [18:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:23:00)
 Right, where that's sort of a quality of him, right? That he's been filled with the spirit. Whereas in like with the Samson case or what of the other judges case, it's the [[Holy Spirit]] just comes upon him, sort of seizes him, does this and then departs, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 18:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:40:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [18:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:40:00)
 We don't get the idea that the [[Holy Spirit]] sort of rushed upon St. Stephen and then left.
 
-**[[Fr. Stephen De Young]]:** [Listen from 18:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:47:00)
+**[[Fr. Stephen De Young]]:** [Listen from [18:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:47:00)
 Yeah. Right. Quite the opposite. Right.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 18:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:49:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [18:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:49:00)
 Right. He's filled with the [[Holy Spirit]]. I mean, this is who he is, you know? But this is a kind of a a peaking, so to speak, right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 18:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:58:00)
+**[[Fr. Stephen De Young]]:** [Listen from [18:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=18:58:00)
 Yeah. Right. Right. And and yes, prophecy is usually, as you said, kind of synergistic, right? Because we see prophets who sort of cooperate and we see like [[Jonah]] who kind of doesn't cooperate.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 19:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=19:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [19:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=19:09:00)
 Right. Right. For most of the book. Yeah. Although in in you know, in in his case, still, like the [[Holy Spirit]] doesn't grab hold of him. He just is given so many opportunities for repentance.
 
-**[[Fr. Stephen De Young]]:** [Listen from 19:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=19:21:00)
+**[[Fr. Stephen De Young]]:** [Listen from [19:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=19:21:00)
 Yeah. Finally does. Yeah. And then he finally sort of cooperates and then is bitter about it. Yeah. Um, but so, so yeah, so we have to remember that the [[Holy Spirit]], the way the [[Holy Spirit]] is talked about, and this is especially clear in the [[Old Testament]], this is part of why we sometimes miss it, is as like the presence of God who's filling the [[Tabernacle]] and the temple, right? So it's the presence of God himself because the [[Holy Spirit]] is God, right? But and sort of feeling and that presence very much has this ambivalent nature, right? In the sense that this is a blessing for [[Israel]], right, that God has come to dwell with them. It's also dangerous. Right? You have the whole death by holiness thing. Right? That that is a potential there, right? And so the way that that goes, whether it goes one way or the other in terms of the presence of God, is based on, you know, the holiness or the corruption, the purity or impurity of the person encountering the presence of God in the spirit, right? And so a person who has repented, who's been made clean, right? That's why, right, [[Isaiah]], look at the calling of [[Isaiah]]. Right? [[Isaiah]] comes into the presence of God, immediately like, woe is me, we'll say. Right? I think [[James]] is like, woe is me and is undone. Right? It's the equivalent of cursing. Right? He's like, I'm done. Right? Um, because of his own sinfulness. And then there's the symbolic purification with the coal.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 21:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:05:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [21:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:05:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:07:00)
+**[[Fr. Stephen De Young]]:** [Listen from [21:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:07:00)
 Right? And then after the purification, he's then able to receive and and go on this mission, right? Um, so the the negative reaction, when you see a negative reaction like [[Saul]], right? [[Saul]] at this point has an unclean spirit dwelling within him.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 21:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:28:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [21:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:28:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:29:00)
+**[[Fr. Stephen De Young]]:** [Listen from [21:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:29:00)
 Right? And is out for murder out of his own jealousy, right? And anger. And so when he comes into the presence of God, that's not a good experience.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 21:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:40:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [21:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:40:00)
 Right. It's it's not death exactly by holiness, but getting there, right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:45:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:45:00)
+**[[Fr. Stephen De Young]]:** [Listen from [21:45:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:45:00)
 It's sort of torture by holiness. Right? Madness as a result of it.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 21:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:49:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [21:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:49:00)
 Yeah. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:52:00)
+**[[Fr. Stephen De Young]]:** [Listen from [21:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=21:52:00)
 And so we don't obviously know the exact words that were coming out of his mouth. Right? But, you know, we should think about, for example, when, you know, we're told that ultimately every knee will bow in heaven and on earth and under the earth, right? So including the devil and confess that [[Jesus Christ]] is Lord. That's not going to be a pleasurable experience, right? For the devil to speak speak that truth, right? Right. So even prophecy is not necessarily right, like a pleasurable experience, right? And usually when you see somebody getting seized by the [[Holy Spirit]] and the [[Holy Spirit]] departing like that, it's because that person themselves has not been sort of purified. Like God is doing his will through them, right? But the [[Holy Spirit]] can't abide there because he hasn't been purified. And so that's as we come up, as we were record this, we're coming up on [[Pentecost]]. Um, so this this chain that St. [[Luke]] makes between the purification of the world and of humanity by [[Christ]]'s blood on the cross, then allows the [[Holy Spirit]] to come and dwell within people, right, continually. Right? That that connection is there. Otherwise the [[Holy Spirit]] couldn't because it would kill us.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 23:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=23:18:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [23:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=23:18:00)
 Yeah. Right. Right. You know, the other takeaway I have from this is that just because God makes use of someone doesn't mean that they are a saint, that they have to be obeyed or whatever. Uh, you know, there there's that whole like within certain sectors of Christianity, that whole touch not the Lord's anointed kind of thing, which is basically a way for allowing abusive church leaders to continue to not face any consequences. You know, like look at his success. How can you possibly criticize him? You know, like, well, actually. Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=23:52:00)
+**[[Fr. Stephen De Young]]:** [Listen from [23:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=23:52:00)
 So you can apply that literally. I mean, you shouldn't go around killing those people.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 23:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=23:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [23:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=23:56:00)
 Yes. Right. That's what it meant. That was [[David]] refusing to actually murder [[Saul]].
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:02:00)
+**[[Fr. Stephen De Young]]:** [Listen from [24:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:02:00)
 Usurp the the monarchy. Yes, but you should not do that. Even the worst pastor, you should not murder them and take over the church.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 24:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:10:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [24:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:10:00)
 Yes, exactly. Usurping a kingdom, killing a pastor is is not the same thing as criticizing him for bad things he's done or holding him accountable.
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:18:00)
+**[[Fr. Stephen De Young]]:** [Listen from [24:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:18:00)
 Bad behavior.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 24:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:18:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [24:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:18:00)
 Exactly. All right. Okay. Well, we've got another one. This one is from Travis who has a question about sin.
 
-**Travis:** [Listen from 24:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:26:00)
+**Travis:** [Listen from [24:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=24:26:00)
 Greetings, podfathers. I have a question about sin. What is it? And how did it come into existence? In the past, you've mentioned that sin is a spiritual being that seeks to dominate and master people like it did Cain. How did that spiritual being come into existence? Also, in a sense, is sin a form of mistimed goodness? My understanding of creation is that God made everything good. I've also heard Fr. [[Seraphim]] Rose quote multiple saints saying that in the garden of Eden, God eventually intended [[Adam]] and [[Eve]] to partake of the fruit of the tree of the knowledge of good and evil. The problem was not eating of the fruit of the tree, but eating of the tree at the wrong time when God told them not to. As I have thought about this more, I have come to the conclusion that all sin on some level could be thought of as doing the right action at the wrong time. To commit adultery is to have sex, a good thing, at the wrong time, not with our spouse. To commit idolatry is to worship, a good thing, we were made to worship. But it's done at the wrong time. It's not directed towards God. Does this view of sin as a sort of mistiming, a sort of lack of Kairos timing, make sense and fit into the spiritual understanding of sin outlined in the [[Lord of Spirits]]? Thank you, fathers. Have a blessed rest of your day.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 25:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=25:52:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [25:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=25:52:00)
 Okay, so it's two parts, right? The first is like, where does sin as a spiritual force come from? But then also, you know, how does that connect with this idea of I mean, I mean, like this second part, we see this kind of language in some of the monastic fathers, especially who talk about passions as being when they become sinful is because they're misdirected, not so much like a change in time maybe, but I mean, a misdirection in time is a misdirection too, right? Like, you know, I could stand outside in my backyard and turn in circles and swing my arms around, but if one of my children comes within arm's reach, I should stop that. Right? Because I could hit them in the face. And I do not wish to hit them in the face. Um, so, I don't know. I mean, it's it's a good question. I mean, I I I feel like I I have some sense of both. Um, that sinfulness as a spirit, malevolent spiritual presence comes because of demonic rebellion, right? That it's a force of actual an actual personal force in the world that is fallen angelic nature, right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 26:59:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=26:59:00)
+**[[Fr. Stephen De Young]]:** [Listen from [26:59:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=26:59:00)
 Right. Yeah. And it, um, so but, you know, the the imagery that's used of sin starting with [[Genesis 4]] is of this demonic being. But we shouldn't think that there is like this one demonic being sin. Right. And this other one, the devil, and this other one, right. Um, but the the idea is very much and this is not only [[Genesis]] 4, but this is how the [[New Testament]] especially the Johannine literature treats it is that, um, and this goes into the monastic literature, even before the monastic literature, I was I was recently doing some work in the [[Shepherd of Hermas]] and it's spelled out there too. Um, that, um, this is a question of a a demonic entity sort of working through you. Right? So and this is what in like 1 [[John]] is referred to as the works of the devil, um, yeah. This goes all the all the way back. So demonic entities aren't able to produce things in the world independently. Hm. Right. So sin is when one of these spirits sort of seizes control of a person and that person brings those works into existence in the world.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 28:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=28:28:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [28:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=28:28:00)
 Yeah, now it's not necessarily, you use the phrase, seizes control, but it's not necessarily like true possession in the sense of like you can't help it or whatever, although, right, there that does exist, right? But but is, you know, I've voluntarily I'm participating in the works of a demon, and so therefore the demon works through me. I become his agent.
 
-**[[Fr. Stephen De Young]]:** [Listen from 28:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=28:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [28:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=28:54:00)
 Yeah, well, let me, let me freak everybody out a little more. Um, all right. In that there's more of a continuum between sinning and demonic possession than than them being two different things. Hm. Um, because if you think about sin and you think about sin in the way the fathers talk about it is the passions. Right? They're called passions because they make you passive. Right. So, rage takes control of you. Right? And and leaves you passive. Right? Or if you think about it in terms of addiction as an analogy, right, there's a point in say alcoholism where you're not consciously choosing to take the next drink anymore.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 29:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=29:38:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [29:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=29:38:00)
 Yeah, no, it just becomes automatic.
 
-**[[Fr. Stephen De Young]]:** [Listen from 29:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=29:41:00)
+**[[Fr. Stephen De Young]]:** [Listen from [29:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=29:41:00)
 Yeah. And so there's not so much a line between like one of the demon possessed people we see in the Gospels and me quote unquote committing a sin, as there is sort of this range of continuum. But that's sort of where the road leads if you continue on it.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 30:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=30:05:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [30:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=30:05:00)
 A difference of magnitude more than of type.
 
-**[[Fr. Stephen De Young]]:** [Listen from 30:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=30:11:00)
+**[[Fr. Stephen De Young]]:** [Listen from [30:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=30:11:00)
 Right. And so anytime we yield to the passions, we're yielding control of ourselves and and our lives to to a uh, to essentially a demonic being, a spirit of evil, right, is what we're manifesting and what we're and so that produces these works, right, which are themselves dangerous and destructive. Yeah. Right, in the world. Yeah. And which [[Christ]] came to destroy according to 1 [[John]]. And and the reverse is also true. This is how the fruits of the spirit work. Right? When we're following [[Christ]] and when we're keeping his commandments and doing good, we're manifesting the [[Holy Spirit]], God himself. We're participating with God himself.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 30:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=30:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [30:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=30:56:00)
 Yeah, and you become gradually more, it doesn't become automatic, exactly, but it becomes a kind of second nature to...
 
-**[[Fr. Stephen De Young]]:** [Listen from 31:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=31:03:00)
+**[[Fr. Stephen De Young]]:** [Listen from [31:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=31:03:00)
 Right, because our nature is changed. Our nature is transformed. Yeah. Right? Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 31:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=31:08:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [31:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=31:08:00)
 And, yeah, the thing I would say about this question of is sin just sort of goodness mistimed? I I I I see where where Travis is going with that. And I I think that there's some truth to that, but I think that the the problem with that image is that it sounds like like the way when someone conceives of how they they perform an action, right? They think about their motives, they think about the process of beginning it and and so on and so forth. Um, but if it's, I'm just doing this at the wrong time, then that suggests that all that kind of led up to that action is is the same. It's just it's, oh, whoops, it's at the wrong moment, you know? But but the truth is is that the the kind of movement of sin is a different movement, right, than than the movement of holiness. Even if the action itself taken as a separate isolated sort of datum may not be evil, right? It's not an evil thing to eat a steak, right? But then the whole motivation that goes into putting that meat in front of an idol and praying to that God and having the desire and intention to share a meal with that God, that whole action is idolatry. It's not just the eating. Right? So it's not it's not just kind of mistimed. It's uh an inappropriateness in a lot of ways. you know? Um, so, so I I like I said, I I I think it's it's an okay image, but I I think it could be a lot fuller, you know? That that's my sort of take on that. What do you what do you think about that?
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:53:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=32:53:00)
+**[[Fr. Stephen De Young]]:** [Listen from [32:53:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=32:53:00)
 Yeah, well yeah, and and you have to take into account the distinction that the fathers make between there are blameworthy passions and there are blameless passions.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 33:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [33:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:02:00)
 Yeah, sure.
 
-**[[Fr. Stephen De Young]]:** [Listen from 33:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:03:00)
+**[[Fr. Stephen De Young]]:** [Listen from [33:03:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:03:00)
 Right? So as humans, right? Like, we get tired. Right. Right? We don't voluntarily get tired. Right? We we get tired, we get hungry, you know, we we we have the drive to reproduce. None of which are blameworthy in and of themselves. Right. It's when they're indulged to excess, right, and in the wrong way. Right. So there is in there is there is something there in that distinction. Right? But there are also just blameworthy passions. Right? Like pride is never a good thing. Right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 33:39:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:39:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [33:39:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:39:00)
 Greed is never a good thing. Sorry, Gordon Gecko. Right? Yeah. Yeah. Those those ones, yeah, the idea of mistiming them like, okay, I'll be proud I'll be proud at this moment and that's okay, but not or you know, I'll be greedy at this moment and but and that's okay. But so yeah, it doesn't quite work.
 
-**[[Fr. Stephen De Young]]:** [Listen from 33:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:57:00)
+**[[Fr. Stephen De Young]]:** [Listen from [33:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=33:57:00)
 It's okay for me to be a little slothful in moderation. Right. Um, you know? No matter how much any of us might feel that way, it's still not. Yeah. Yeah. Or it may reflect our actual lives. Yeah. Yeah. So there's I mean there's a whole nest of issues here we could maybe we'll do a show sometime on morality and ethics of that. Like, does someone's intentions even matter? Right? When we talk about voluntary and involuntary sins.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:28:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:28:00)
 Yeah. Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:30:00)
+**[[Fr. Stephen De Young]]:** [Listen from [34:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:30:00)
 Um, and that kind of thing. But that's for another time.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:33:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:33:00)
 Yes, indeed. All right. Okay, so we've got one from Socrates or Socrates, I guess, if you're going to Socrates I believe is the pronunciation.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:42:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:42:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:42:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:42:00)
 Yes. That's a call back to a lovely film from the 1980s. Um, all right, this is one from Socrates and he has a question about nakedness.
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [34:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:54:00)
 He's always asking questions and never giving any answers that guy.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 34:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [34:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=34:57:00)
 Right. Right. Exactly. So here it is.
 
-**Socrates:** [Listen from 35:01:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=35:01:00)
+**Socrates:** [Listen from [35:01:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=35:01:00)
 Hi, [[Father Andrew]] and [[Father Stephen]]. Thank you for the show. My understanding is that [[Adam]] and [[Eve]] had bodies, and then when they sinned, they now have flesh, which is what we all have. So my question is, at the end of [[Genesis 2]], it says that they were naked and were not ashamed. So how are we to understand their nakedness in regards to the body they had before the fall? And also, sometimes in iconography, we see them getting kicked out of paradise and they have these fur garments of skins or clothes, look like made from animals, rather than the human flesh we have now. So I was wondering how to kind of reconcile the information, uh, there. Thank you.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:46:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=35:46:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:46:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=35:46:00)
 Yeah, so this turns on this question of the garments of skin. What does it mean to be naked before you have the garments of skin? And what's the deal with iconography that shows them literally wearing animal skins? Um, I think the second part is the easiest one to me. Uh, just because you you shouldn't take everything you seen in an icon literally. I think it would be the way that I would put that.
 
-**[[Fr. Stephen De Young]]:** [Listen from 36:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:11:00)
+**[[Fr. Stephen De Young]]:** [Listen from [36:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:11:00)
 And how yeah, how would you depict that? Like how would you depict them before the expulsion from paradise?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:19:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:19:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:19:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:19:00)
 Yeah. If you're going to depict them as normal humans after. Right. Right. Or or like or or another example is [[Christ]] in his post-resurrectional appearances, we all recognize them when we look at an icon, we see him and say, oh, there's there's [[Jesus Christ]]. Um, and yet, I think no one who saw him after his resurrection immediately recognized him.
 
-**[[Fr. Stephen De Young]]:** [Listen from 36:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:44:00)
+**[[Fr. Stephen De Young]]:** [Listen from [36:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:44:00)
 Yeah, there's a lot of well, we talked about that in that one episode. But yeah, there's a lot of weird like, you know, no one dared ask him who he was because they knew it was [[Christ]]. Like that's kind of a weird circumlocution.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:57:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=36:57:00)
 Suggests that that was a question that arose in their minds. Like, who is this? Wait, no, this has to be him. You know. So that yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 37:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:07:00)
+**[[Fr. Stephen De Young]]:** [Listen from [37:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:07:00)
 It's kind of an odd thing. Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 37:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:09:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [37:09:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:09:00)
 Right. Right. So, so I yeah, I like I said, I I don't you can't take it I don't I don't think you can just simply take it literally. And again, you know, this is this is a patristic image, the idea that the garments of skin represent a change in human nature.
 
-**[[Fr. Stephen De Young]]:** [Listen from 37:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:23:00)
+**[[Fr. Stephen De Young]]:** [Listen from [37:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:23:00)
 Right. You know, and aren't just, here's some leather guys. But that's an iconographic way of conveying that. Right. And I I have difficulty thinking of another one, let alone a better one, to convey that.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 37:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [37:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:37:00)
 And clearly other and clearly actual iconographers have had difficulty in in depicting that as well. People far more more talented and blessed than I in that regard.
 
-**[[Fr. Stephen De Young]]:** [Listen from 37:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:48:00)
+**[[Fr. Stephen De Young]]:** [Listen from [37:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=37:48:00)
 So what does it mean for them to be naked and unashamed? Yeah. So the the garments of skin aren't an answer to the problem of them being naked. Hm. They had already, remember, gotten like leaves to try to solve that problem. Right. Once they realized they were naked, right? There's a whole exchange, who told you that you're naked? So the issue of them being naked and unashamed is that they're naked and don't realize that they're naked. Yeah. And then after the knowledge of good and evil, they realize that they're naked, right? So what is the nakedness doing in this? This is basically trying to convey to us the idea that they're innocent. Right? Remember, the knowledge of good and evil throughout the [[Old Testament]] every time it's referred to later refers to maturity. Yeah. Right? Toward being an adult, right? And so this is them trying to circumvent, right, growing in the grace of God and the knowledge of God and trying to seize maturity, right, for themselves. Yeah. Post haste.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 38:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=38:54:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [38:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=38:54:00)
 And it's notable that when, you know, when the Lord encounters them after their transgression, they said, you know, we hid because we were naked. And he said, you know, as you said, who told you you were naked? And then immediately, wait, did you eat of the tree that I told you not to eat from? So, so, you know, it's connected, it's directly connected that their knowledge of their nakedness comes as a result of this transgression. Um.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:23:00)
+**[[Fr. Stephen De Young]]:** [Listen from [39:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:23:00)
 Right. And so think about, and this was true in the ancient world too, little kids run around naked all the time. Oh, yes. Often prefer it. Yes. Put your clothes back on, please. Yeah. Little girls run around topless, right? Like, and nobody thinks anything of it and they don't think anything of it.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:41:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:41:00)
 Right. Yep.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:43:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:43:00)
+**[[Fr. Stephen De Young]]:** [Listen from [39:43:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:43:00)
 It's only later on as they mature and come to know themselves more that they develop a sense of shame and want to cover up and, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 39:51:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:51:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [39:51:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:51:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:52:00)
+**[[Fr. Stephen De Young]]:** [Listen from [39:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=39:52:00)
 And that becomes appropriate. So that's what the story is trying to to tell us, right? You know, um, is that this is they're they're innocent, right? They're sort of childlike beforehand. Yeah. All right. Right. And so, yeah. Yeah. Okay. All right. Well, we've got another one. This one is from Nathan who has a question about blessing, justice, and wisdom.
 
-**Nathan:** [Listen from 40:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=40:15:00)
+**Nathan:** [Listen from [40:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=40:15:00)
 Hi, my name is Nathan. I'm from Dallas, Texas. And my question is about the most recent blessing episode and how blessing relates to justice and wisdom. Uh, because it seems to me that blessing and justice are are practically synonymous, since, uh, God founded creation on his wisdom and it, uh, his wisdom undergirds all of reality. If you're a wise man, then you live by that, um, wisdom that God, uh, used, uh, that by which God wishes us to live. Whereas, uh, justice is being set in proper order relative to creation, um, both in your interior man and uh, in the external relations. So, you know, that's again, proper ordering, uh, in relation to creation and God, like wisdom is. And then blessing is that state of being properly ordered in relation to creation. So I don't really understand, uh, is the wise man equivalent to the just man and equivalent to the blessed man? Um, I just, uh, I'm not really understanding any sort of distinction between those three terms, um, so as far as any sort of practical life is laid out. So if you wouldn't, uh, if you could clarify that, I would greatly appreciate it. Thanks very much, and God bless.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 41:27:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=41:27:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [41:27:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=41:27:00)
 All right. I mean, I think it's a good question. I my my initial take on that is that it's to say that yes, these are all pointing ultimately at the same thing, but kind of pointing from different angles, right? Like wisdom is about the knowledge of doing the right thing, right? Um, often gained through experience. And, uh, and then justice is how things are supposed to be, right? And then, and then blessing is a way of talking about establishing justice, especially with regards to one self, you know, that that, uh, um, it's about putting yourself in that that just state. But I don't know, I mean, is he, I don't think they're exactly synonymous in the sense that they're just all mean exactly the same thing. But I think he's right that they all kind of point in the same direction, but maybe from different, different, at least conceptual angles. What do you think of that?
 
-**[[Fr. Stephen De Young]]:** [Listen from 42:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=42:21:00)
+**[[Fr. Stephen De Young]]:** [Listen from [42:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=42:21:00)
 Right. Yeah, yeah, sort of. Yeah, they're all related, right? So justice, properly speaking, right, is the order in creation, right? The actual order where everything is in its place and everything is, right? Um, and so, um, that's directly related to blessedness, right? Because at the end of the creation days, right, God blesses the things he created. Hm. Right. That it's there in the text. Um, so blessedness is the state of a part of the creation when it it is, when it is in accord with the whole. Yeah. And so the just man and the blessed man is the same man, person.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 43:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=43:05:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [43:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=43:05:00)
 Yeah. And I I I just wanted to clarify like you said that God blesses everything after he made it. This is when he says this is when it says, and God called it good. Is that what you're talking about? That's that's his...
 
-**[[Fr. Stephen De Young]]:** [Listen from 43:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=43:16:00)
+**[[Fr. Stephen De Young]]:** [Listen from [43:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=43:16:00)
 Well, also, he yeah, yeah. But he also, um, on humans, uh, pronounces a, a, uh, blessing. Okay. Um, and, uh, so, uh, so the the blessedness is the man who has and that also makes him a just man, right? But again, it's two different perspectives. The just is everything is set in order, right? The person is set in order. Blessed is the sort of, I guess, phenomenological side, the experience of that, right? Um, that state of blessedness that's reflected by, right? And then wisdom has to do with the perception and understanding of that order. Yeah. That's in creation. And that's in human life. And so this is why in the wisdom literature in the [[Old Testament]], like you read [[Proverbs]], and, you know, there's all this stuff about ants, right? Like, you know, different elements of creation. And then drawing connections from that order to the ordering of human life, right? Yeah. Um, so wisdom is the ability to perceive that order, what is just and what is right, right? And that's why when we when we get, for example, oh, we're going to show how wise [[Solomon]] is, we have him judging a court case. Hm. Right? Because because he's able to perceive, right, the truth of how things are rightly ordered. And because of that, he's able to resolve these injustices, right, and correct them. Um, because he's aware of aware of that order. And it's and the fool is the person who doesn't then understand how those things work.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:06:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:06:00)
 Yeah. Right, exactly. I mean, to be a fool is the opposite of being the wise man.
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:10:00)
+**[[Fr. Stephen De Young]]:** [Listen from [45:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:10:00)
 Right. And so this is what's going on with the fool says in his heart, there is no God. Right? There weren't any atheists. Yeah. Right. That's that's not what this was about.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:20:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:21:00)
+**[[Fr. Stephen De Young]]:** [Listen from [45:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:21:00)
 There is no God meant there's no consequences for what I do. I can live how I want and there will be no consequences.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:26:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:26:00)
 Yeah, especially...
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:26:00)
+**[[Fr. Stephen De Young]]:** [Listen from [45:26:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:26:00)
 Well, guess what? Yeah, yeah. That's not how things work.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 45:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:29:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [45:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:29:00)
 Especially when you understand especially when you understand this basic notion of God as as ruler, as God, the one who establishes justice, you know? When he says there is no God, it's more like saying, uh, you know, no one is watching me. There's no there's no one in charge here, you know? It's not just, I don't believe that a God exists. It's like you said that he's saying, I can do whatever I want. You know?
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:54:00)
+**[[Fr. Stephen De Young]]:** [Listen from [45:54:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=45:54:00)
 Right. Nothing's happened. And those consequences will find him out anyway. Right? Right. But he's a fool because he doesn't understand and he doesn't see them coming and he doesn't act accordingly.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 46:04:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:04:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [46:04:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:04:00)
 Yeah. Exactly. Exactly.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 46:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:06:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [46:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:06:00)
 All right. Well, that is the first half of this pre-recorded episode of [[Lord of Spirits]]. We're going to take a little break and be right back.
 
-**Break:** [Listen from 46:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:15:00)
+**Break:** [Listen from [46:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:15:00)
 > [[Fr. Andrew Stephen Damick]] and [[Fr. Stephen De Young]] will be back in a moment to take your calls on the next part of the [[Lord of Spirits]]. Give them a call at 855-237-2346. That's 855-AF-RADIO.
 
-**Break:** [Listen from 46:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:38:00)
+**Break:** [Listen from [46:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=46:38:00)
 > Are you curious about the Orthodox Christian faith? Do you have questions about Orthodox Christianity that you can't trust strangers in internet forums to answer? Are you an Orthodox Christian looking for a reliable first place to send your interested friends? Do you need help finding an Orthodox church near you? My name is Fr. Paul Hodge. I serve in the Antiochian Orthodox Christian Archdiocese of North America. My name is Fr. Joseph Lucas. I serve in the [[Orthodox Church]] in America. My name is Fr. Anthony Cook. I serve in the Greek Orthodox Archdiocese of America. And I'm [[Fr. Andrew Stephen Damick]], chief content officer of Ancient Faith Ministries and a priest of the Antiochian Archdiocese. And we're the Orthodox Intro team. If you're looking for a first stop online to get an introduction to the Orthodox faith, a place to get answers to questions from qualified Orthodox Christian clergy, a place to send your friends and not just toss them into the chaos of the internet, a place to get help finding an Orthodox parish and get plugged into an actual Orthodox community, then point your web browser at orthodoxintro.org. Orthodoxintro.org is a free service of Ancient Faith Ministries and made possible by our donors. It's an Orthodox on-ramp to the Christian life. Again, that's orthodoxintro.org.
 
-**Break:** [Listen from 48:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:13:00)
+**Break:** [Listen from [48:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:13:00)
 > We're back now with the [[Lord of Spirits]], with [[Fr. Andrew Stephen Damick]] and [[Fr. Stephen De Young]]. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 48:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:31:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [48:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:31:00)
 Welcome back, everybody. And like I said, we're not actually taking calls tonight, despite what you just heard the voice of Steve say. Uh, but we are taking your questions. We've received a lot of pre-recorded questions, and so we're just kind of running through them shotgun style and giving responses to them. So, Father, are you ready for the second half?
 
-**[[Fr. Stephen De Young]]:** [Listen from 48:51:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:51:00)
+**[[Fr. Stephen De Young]]:** [Listen from [48:51:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:51:00)
 Yes.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 48:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:52:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [48:52:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:52:00)
 All right. Okay. So for our next question, we have Fr. VJ.
 
-**Fr. VJ:** [Listen from 48:59:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:59:00)
+**Fr. VJ:** [Listen from [48:59:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=48:59:00)
 Hi, [[Fr. Andrew]] and [[Fr. Stephen]]. This is Fr. VJ. I'm a priest in the Indian [[Orthodox Church]], serving in New Jersey. Thank you so much for your podcast. I very much love it. Prior to listening to your podcast, I, um, would look at paganism and Hinduism as nothing to be concerned with. Um, that there's nothing behind it. And yet, uh, after listening to your podcast, then I I I realized that we should be concerned, we should be worried, we should be uh, careful. Then going to your blessings and curses episode, it felt as if you were very dismissive of the curses and uh, that there shouldn't be any concern. Um, and so I wanted to clarify and and and get actually a good soundbite, uh, to to give to uh, the Orthodox Christian that is uh, you know, concerned with, um, uh, these curses. Uh, in we don't in in our jurisdiction, I in Indian jurisdiction, we don't have, um, uh, the the the the evil eye. We have the black tongue and we have something called Rahu Kalam, which is like, uh, the hours of the day that if you start something new, it will be cursed. And so, you know, I think all of our communities have all of our jurisdictions have this, uh, concept our our faithful are are are, you know, going towards this. But if you can just speak to it directly and say, um, how is the Orthodox Christian to handle these these curses and, um, and in what way, uh, they should be careful or not.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 50:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=50:31:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [50:31:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=50:31:00)
 That's really interesting to me. I mean, number one, I'm kind of surprised actually they they apparently did not have the evil eye tradition there in India, whereas it's like I mean it's all over the East. Yeah. Yeah, it's everywhere. Um, so I'm going to have to look into that. But they've got the black tongue, which I've I've never heard of that. Um, yeah, so I mean he's he's referring to the Blessings and Curses episode where we talked about those things. And I I think that that the thing that was said about cursing was, if you are a baptized Christian living a faithful life, then you kind of don't have to really worry about that. Like it's not something that can can take over, right? Um, yet nonetheless, like if I, for instance, some of the the uh, the Efhologia, the Book of Needs, the priests, you know, prayer book or whatever it gets translated as, that you have, they have a like a prayer against the evil eye, right? So I mean, is it a thing or not a thing? Or is it something is it a thing that we don't need to be worried about, but even though it really is a thing or, you know, I was interested that at the beginning he he said, you know, I used to think that this was, you know, we didn't have to worry about paganism or whatever, whatever, but, uh, after listening to your show, I realized there actually is something there. There actually are spiritual...
 
-**[[Fr. Stephen De Young]]:** [Listen from 52:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:05:00)
+**[[Fr. Stephen De Young]]:** [Listen from [52:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:05:00)
 Now I am deeply concerned.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 52:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:06:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [52:06:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:06:00)
 Yeah, right, exactly. And it's I mean, and you know, and so he's from the Indian tradition where they've, you know, their community has the presence of Hinduism, if especially if you're in India, but I'm sure that here in the US, Indian Christians probably know a bunch of Hindus as well. So I mean that's a live thing for their lives. So, I don't know. I mean, is it is it nothing? Is it is it nothing but something to be worried about? I mean, what's going on with this?
 
-**[[Fr. Stephen De Young]]:** [Listen from 52:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:34:00)
+**[[Fr. Stephen De Young]]:** [Listen from [52:33:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:34:00)
 Yeah. Um, so I've been, like I said, I've been fiddling around in the [[Shepherd of Hermas]], so you're going to get some more [[Shepherd of Hermas]].
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 52:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:44:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [52:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:44:00)
 All right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 52:46:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:46:00)
+**[[Fr. Stephen De Young]]:** [Listen from [52:46:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=52:46:00)
 Um, that uh, the one of the things that the angel uh, tells Hermas is that uh, you shouldn't be afraid of the devil. Right. Because he's powerless. Right? Because he's powerless. He's been he's been made powerless by [[Christ]]. But you should be afraid of the works of the devil. Hm. And the works of the devil here is not, as we kind of mentioned in the first half, not stuff the devil might cause somebody else to do to you. Right. It's stuff that you would do.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=53:21:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:21:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=53:21:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 53:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=53:23:00)
+**[[Fr. Stephen De Young]]:** [Listen from [53:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=53:23:00)
 Right, because when we yield to sin, we thereby give the devil influence in our lives, right? And so this is why I think the church has always pushed back against, so the temptation with the evil eye or I would presume the black tongue or any of these things is that um, there is also some kind of folk means by which to ward them off.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:53:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=53:53:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:53:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=53:53:00)
 Yeah, right. Right. So like the little blue bead or the little the little eye amulet or, right, that's stuff, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:01:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:01:00)
+**[[Fr. Stephen De Young]]:** [Listen from [54:01:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:01:00)
 Yeah, and like when we talked about that Ugaritic death curse, the the, you know, putting the evil eye on someone is immediately followed by doing another incantation to protect yourself from the evil eye in case it rebounds or the other guy throws it back at you, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:16:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:16:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:18:00)
+**[[Fr. Stephen De Young]]:** [Listen from [54:18:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:18:00)
 And so if we enter into sort of that world and that way of doing things, right, then we're giving those things purchase in our lives. Yeah. Right. So my presumption would be the purpose for composing a prayer. Remember, prayers aren't to like change God and they're not magic incantations. Right. Prayers are to change us. So writing a prayer against the evil eye, uh, would, I would think, be a pastoral thing to give the concerned person something better to do than entering into folk magic or whatever themselves.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 54:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [54:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:56:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 54:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:57:00)
+**[[Fr. Stephen De Young]]:** [Listen from [54:57:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=54:57:00)
 Right. But say, here, pray this prayer. Right? This prayer will remind you that [[Christ]] protects you from the demonic powers, [[Christ]] protects you from these things. Yeah. Take solace in [[Christ]] through prayer rather than whatever technique is suggested, right, by the world.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=55:15:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:15:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=55:15:00)
 And there's kind of a whole matrix of, you know, exorcism bound up with the priesthood as well. You know, and so I think, especially like some of the prayers against the evil eye that I've seen are largely to be said by priests. But I I think there may be as lay ones as well. Um, you know, and of course, there's lots of there's lots of prayers that talk about protecting us from the attacks of the devil and of demons, right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 55:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=55:38:00)
+**[[Fr. Stephen De Young]]:** [Listen from [55:38:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=55:38:00)
 Right.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:39:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=55:39:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:39:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=55:39:00)
 Um, and I I guess the idea that people have with this is that someone could through their own malevolence or whatever, do a thing that can then make bad things happen to somebody else through sorcerous means, you know, whether it's the evil eye or the black tongue. I have to imagine that anti-black tongue folk magic has got to be like amulets shaped like a black tongue, right? I mean, that only kind of I don't know. Father VJ, I have to know more about this. I'm really interested in this now. To write in and tell us. But but yeah, I mean, there's the truth is we're always under assault on one level or another by demonic forces, right? They're always trying to drag us into their garbage. Um, but I I don't I I think this idea that one person can sort of shoot a sort of demonic magic missile, you know, at somebody else. Uh, I don't know. I mean, is that a is that a thing? I mean...
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=56:41:00)
+**[[Fr. Stephen De Young]]:** [Listen from [56:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=56:41:00)
 Well, it's not that different from the physical, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 56:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=56:47:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [56:47:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=56:47:00)
 Right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 56:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=56:48:00)
+**[[Fr. Stephen De Young]]:** [Listen from [56:48:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=56:48:00)
 Like someone can come and punch me in the face or, you know, stab me or burn my house down, right? Like so I could become so terrified of that that I become sort of violent and militant and paranoid myself, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 57:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:07:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [57:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:07:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 57:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:08:00)
+**[[Fr. Stephen De Young]]:** [Listen from [57:08:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:08:00)
 Or, right, I can I can I can trust God and I can follow [[Christ]]. Right. Right? Um, the same thing is true spiritually, right? Like, yeah, hypothetically, you know? And and if you're both people who are essentially worshiping demons, yeah, the idea that one person could sick a demon on another person, okay.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 57:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:34:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [57:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:34:00)
 Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 57:36:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:36:00)
+**[[Fr. Stephen De Young]]:** [Listen from [57:36:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:36:00)
 You know, but in the same way, do you respond to that reality by becoming paranoid and suspicious and superstitious and right? And thereby destroy yourself or do you follow [[Christ]], trusting God to protect you from that, just like all the other kinds of harm that we face every day.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 57:53:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:53:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [57:53:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=57:53:00)
 Right, which, I mean, you know, as you were saying that, especially, I thought, wow, there that's so applicable to a lot of things in our lives right now. Uh, you know, with the massive spread of various kinds of theories about bad people wanting to do bad things. I mean, I, you know, when someone presents me with one of those theories, whether it's true or not, I mean, there are actual conspiracies in the world. Right?
 
-**[[Fr. Stephen De Young]]:** [Listen from 58:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=58:16:00)
+**[[Fr. Stephen De Young]]:** [Listen from [58:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=58:16:00)
 And people get together and decide and plan to do bad things together. Right, exactly. That is that is a thing, you know?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 58:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=58:20:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [58:20:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=58:20:00)
 So, you know, maybe a given conspiracy theory is true or not true, um, but even if they're all this is what I always say to people, look, even if they're all true, even if the things that are being described in these are actually all true, our task as Christians in the world is still the same as it was before, you know, it's still be faithful in the midst of this, right? It's still trust God for his protection. That's still what's going on. I I sometimes I think there's a, um, an attraction to the idea of having achieved some kind of knowledge about what's going on in the world. Um, and and that becomes a kind of addiction to itself, you know, when you see evil everywhere constantly. Right? I mean, it's not that evil isn't everywhere, but but when that's what you're focusing on, when that's what your whole your whole life is about, then then like you said, it's just sort of addictive anxiety and and, um, and failure to trust in God really, you know? Um, people become very very nasty often in response to feeling like they're they're surrounded by hostile powers. Um, you know, if that's if that's their whole deal, right? The the the the emphasis and the the the turning of the attention towards what is evil rather than the focusing on what is good and and being faithful in the midst of of a difficult world. So, yeah. Fun stuff. Okay. All right. Well, this next one comes from Kenzie.
 
-**Kenzie:** [Listen from 59:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=59:56:00)
+**Kenzie:** [Listen from [59:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=59:56:00)
 Fathers, bless. My name is Mackenzie Jean Romero, but my friends call me Kenzie. I'm recording from Colorado Springs, Colorado, and I am a Bible college student with kind of a difficult question. But I sense not only strength and intelligence in you two, but also great kindness. So even though this is kind of tender and a tricky issue, I have confidence in you guys. I grew up Wesleyan Armenian, and for a long time, my family also attended various Baptist denominations. And both of those traditions have radically different teaching on women and their role in the church. Now, I personally have a huge heart for the ministry. My great grandpa, who I'm named after, was a preacher. My dad is a pastor. And uh, I remember I had a passion for the ministry from a young age, and I was sitting across my at the time beloved Baptist head pastor, and over a meal, he looked at me and said if I were to pursue those goals, I would be a Jezebel, the Jezebel spirit, you know, is so huge in the Baptist church. And what I want to know is, what is the Orthodox perspective? Is there room for someone like me who is a passionate poet, thinker, writer, artist, and minister at the Orthodox table? Is there room for me there? And uh, yeah, I guess that's it. Thank you guys so much for the show and everything you do.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 61:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=61:25:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [61:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=61:25:00)
 All right, it's a good question. Um, you know, my my initial response, the first person I actually started thinking about when she uh, especially at the end, she was kind of describing herself, um, I started thinking about [[St. Kassiani]], who uh, a number of those adjectives could could be used to describe her, right? You know, the thing that she's most remembered for, of course, in the history of the church is as a hymnographer. And in fact, probably the greatest piece of Byzantine music was in the whole tradition of Byzantine chant was written by her, and it's the famous Hymn of Kassiani that's sung on Holy Tuesday evening during Holy Week. Um, it's so beloved that actually in many cases, if you look at, if you look at the the holy week schedules for a lot of churches, it'll say, you know, Sunday night, Bridegroom Orthros, Monday night, Bridegroom Orthros, Tuesday night, Hymn of Kassiani, even though it's Bridegroom Orthros, but including that hymn, but that's such a feature that becomes the thing that that people are kind of going there for. Um, and if you if you but that's not the only thing she ever wrote. She wrote lots of hymns actually. Um, and they are even in translation, they are stunning pieces of work. Like, like this is real theological poetry, you know, it's it's it's really, uh, delightful and profound and moving. I mean, there's a reason why the Hymn of Kassiani is so popular, and it's not just because of the kinds of musical settings that that are attached to it, right? It's it's because of just the great, great depth of what's being expressed in that. Um, and certainly there are, uh, there are other examples of that within the the life of the church both historically and of course in our own time. Um, and you know, especially considering this old saying of the one who prays truly is the true theologian, you know, we tend to think of theologians as people who write books, you know, people like you, [[Father Stephen]], or like me, God help me. But I wouldn't describe myself as a theologian. Um, you know, that that's what a theologian is or a professor or something like that. But but, you know, there's a great truth to this saying that that theology is really about prayer. And if that's really true that the the the person who is really advanced in prayer is the sort of the real theologian on some level, then the number one example of that is the Lord's mother, you know, the highest of all the saints is a woman, that the ministry that she gave not just to us, although that's really important, but to the Lord is above all other possible ministries, you know, like you can't you can't achieve something greater as a human being than than what she did, right? Um, and and that's not a cop-out response. You know, I I recall, uh, I can't remember which episode it was, but we were having a conversation about, um, I think it was in response to a caller who called in and had a similar question about if you remember, Father, um, you know, that that and and you gave a great answer about about mothering and how motherhood is not is, of course, the number one way people think about it, and it should think about it is about, you know, bearing children and taking care of them. But that there's mothering that all women engage in, whether they have children in the flesh or not. Right? That that's that's the the what what women are in their their telos is mothering, and this is, um, this is built into the creation from the beginning. And I think our modern world tends to denigrate that so much that it's like, well, that's second prize or whatever, you know? But it's really not. And I think that the Christian tradition, especially in the person of the [[Mother of God]], emphasizes how how much it's really not because again, this is the highest possible place that a human a human being can have is the one that she has, more honorable than the [[Cherubim]], you know, and so forth. Uh, but I mean, I would I would simply say, Kenzie, that I mean, it's true, right? You didn't ask about this, but it's true that the [[Orthodox Church]] does not ordain women as as priests, you know, as clergy. Um, and uh, for I think for a good take on that, um, [[Father Stephen]] wrote a great blog uh, article on his his blog, The Whole Council of God blog called [[Priesthood]] and Masculinity, and it's it's a really good piece and it talks about how priesthood is integral to masculinity, not just for ordained men, but just for for men in general, right? So it's true, yes, we don't ordain women as clergy. But I think that a huge part of the problem that we have is that we've identified we've identified clergy with power and we've identified power as the highest thing that people should have. And so therefore, if you don't give it to some people, then it's because you're trying to keep them down. Now, I didn't you didn't say that, Kenzie, and I'm I appreciate that. But I thought I would just kind of put that out there. But I would say that, you know, based on the things that you say that you love and the talents and the skills that you have that I mean, all of that can be put in service to [[Christ]]. There absolutely is a place for you at the table of the Lord in the [[Orthodox Church]]. I mean, every person is integral to the body of [[Christ]]. It doesn't matter whether they're a hand or a foot or a spleen or whatever. Uh, we're all we're all needed and we're all required really. So that's that's some of the thoughts that I would I would have about that. I I guess the other thing I would add is simply is that, uh, I could not live as an Orthodox Christian without the ministry that women within the church do. Um, not just sort of in support of the parish or whatever, but in my own personal life as well. So, I mean, absolutely critical, absolutely, uh, you know, irreplaceable, right? So, [[Father Stephen]], I don't know, did you have anything you wanted to add to that or or whatever?
 
-**[[Fr. Stephen De Young]]:** [Listen from 67:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=67:28:00)
+**[[Fr. Stephen De Young]]:** [Listen from [67:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=67:28:00)
 Well, I just add, I mean, there is a lively tradition of female monasticism that often gets left out of these conversations. Um, there are spiritual mothers. Oh yeah. There are abbesses. And a lot of the activities they do. So our understanding of ordination is less about activity. So this is a comparison, you know, based on the background that the caller said she was was from. Right? They tend to define ministry in terms of certain activities. Hm. Right? So like standing in front of the church and giving a homily, right? They would say, that's ministry, that's reserved to these people, right? But abbesses of convents, for example, frequently give homilies. Oh, sure. To the to the female monastics there. Um, there are female monastics who are blessed to hear confessions. Yep. Uh, they don't give the absolution again, but they hear the confession and they give advice and then the person goes back to their usually parish priest and just receives the absolution. Um, so and that's a good example, right? Because the activity there, most of the activity, other than reading the prayers at the end, most of the activity there is being done by the female monastic, but the role, the role of delivering absolution is reserved to that priest, not to men, to presbyters.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 69:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:02:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [69:02:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:02:00)
 Yeah, right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 69:04:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:04:00)
+**[[Fr. Stephen De Young]]:** [Listen from [69:04:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:04:00)
 Right. And bishops, because bishops are still presbyters. Right? Um, but deacons can't do it. Lay men can't do it, right? So that is a role that is reserved to specific people who are chosen from among the men of the church.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 69:19:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:19:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [69:19:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:19:00)
 And and not even all presbyters. Not even all presbyters are given the blessing to hear, you know, to to give absolution and hear confessions. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 69:27:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:27:00)
+**[[Fr. Stephen De Young]]:** [Listen from [69:27:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=69:27:00)
 Right. Right. And and lay male monastics can't. Right. Um, so, um, yeah, so so it's based on this this particular role, right? But the overarching thing, and this is a thing that's not directed to the caller in particular, this is directed at everyone, first and foremost, me, is that all of us when we approach serving the church, have to wrestle a little bit with our ego. Hm. Right? Because the reality is, if we're serving, if that word means anything, right? That I'm here to serve the church, then that means I'm going to do whatever the church needs me to do. Yeah, right? Yeah. It's not. Servants don't show up to the master and say, so this is what I'm going to be doing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 70:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=70:22:00)
+**[[Fr. Stephen De Young]]:** [Listen from [70:22:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=70:22:00)
 Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 70:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=70:23:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [70:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=70:23:00)
 The servant goes and the master is [[Christ]], you know? He goes to the master and says, what do you want me to do?
 
-**[[Fr. Stephen De Young]]:** [Listen from 70:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=70:29:00)
+**[[Fr. Stephen De Young]]:** [Listen from [70:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=70:29:00)
 Right? So if if, um, the church tells me that what it needs me to do is scrub toilets, then I need to go and scrub toilets. Yeah. Even if I'm an arch priest with a PhD, if what my parish needs me to do is go clean the toilets, then that's what I need to go do. Right. And so we can't ever approach the church with, um, I I this is, I'm confident these are my gifts, this is what I'm going, this is what I want to do. And will this church let me do it? Well, if not, then I'll find some place that will. That's very dangerous.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 71:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:13:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [71:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:13:00)
 Yeah, and I don't I don't get the sense that Kenzie was saying that. But there are certainly people that do that. Men and women. Men and women. I've I've known men that, I've had men approach me and say, you know, I'm especially this is actually very fairly common. I'm ordained in this and I want to join the [[Orthodox Church]], but I want to make sure that I can be clergy. I'm like, I you need to give up on that. If you want to be Orthodox, be Orthodox. But you can't just say, look, I'm coming here because I'm going to be clergy. Like, ah... Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 71:43:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:43:00)
+**[[Fr. Stephen De Young]]:** [Listen from [71:43:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:43:00)
 And there certainly been people in the [[Orthodox Church]], men who wanted to be ordained to some office and couldn't get it and so have left and gone somewhere else where they could. So this is not directed at her or even at just women in general. This is all of us, right, have this tendency we have to fight.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 71:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:56:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [71:56:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:56:00)
 Yep. Yep.
 
-**[[Fr. Stephen De Young]]:** [Listen from 71:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:58:00)
+**[[Fr. Stephen De Young]]:** [Listen from [71:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=71:58:00)
 With our ego. So we have to always keep in mind that all of this is service, and that means we do whatever [[Christ]] and his church need us to do at any given point in time, whether it's something we really love doing or something that like cleaning toilets or walking around after liturgy on Sunday throwing away used coffee cups that people left laying everywhere. But now I'm going on a personal rant. Yeah. Right? But that that's it, right? You know?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 72:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:28:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [72:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:28:00)
 Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 72:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:29:00)
+**[[Fr. Stephen De Young]]:** [Listen from [72:29:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:29:00)
 Um, that's part of the reality of being an ordained minister, is you do a whole lot of stuff other than, you know, liturgize.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 72:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:37:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [72:37:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:37:00)
 Indeed. That's not always fun and enjoyable.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 72:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:40:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [72:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:40:00)
 Like paperwork.
 
-**[[Fr. Stephen De Young]]:** [Listen from 72:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:41:00)
+**[[Fr. Stephen De Young]]:** [Listen from [72:41:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:41:00)
 Yep. Yep.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 72:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:44:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [72:44:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:44:00)
 Not me, man. I got out of that. Yeah, I know. Yeah, ever. Okay. All right. Well, uh, thank you very much for that question, Kenzie. It was it was, uh, thank you. Thank you. Uh, all right. This next one comes from [[Moses]].
 
-**[[Moses]]:** [Listen from 73:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=73:11:00)
+**[[Moses]]:** [Listen from [73:11:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=73:11:00)
 Hello, fathers. My name is [[Moses]] Reese. I'm from Portland, Oregon. I have a question about the body and gender. Uh, in your episode, God's Body, you define the body as a nexus of potentialities. Uh, in the recent episode, Prophet Motive, uh, there are some references made to individuals accessing spiritual forces from the liminal between gender state, or sometimes being thrust out of a gender state as a result of exposure to spiritual forces. Uh, in my work as a professional counselor, uh I've sometimes talked with uh trans and non-binary individuals who describe the experience of their internal sense of gender being incongruent with their body to some degree. They describe an energy, a craving in a different sort of body, and this incongruence can be mild or extreme, but centers on how they experience their bodies. So then, what is the potentiality of a male body versus a female body? And is it strictly or primarily reproduction? Or is there more? What is the essential nature of man or woman? Is the essential nature of man or woman that they have particular genitalia? Or is the essence of manhood or womanhood something deeper and intangible? Uh, and if the essence of gender is in fact connected to particular genitals, then what does that say about the overall nature of a person? Is our essential nature bound up in organs of elimination and reproduction? And is this possibly reductionistic? More so, if the essence of manhood or womanhood is bound up in their genitalia, then what does it say about the nature of God? On the other hand, if the essence of manhood and womanhood is not specifically tied to physical genitalia, but rather something internal, inherent and transcending physical flesh, then what is actually problematic about a trans or non-binary person's experience, journey and physical alterations to their body? That's my question. Thanks so much for the show. It makes being a Christian a whole lot more fun. Um, peace.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 72:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:58:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [72:58:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=72:58:00)
 Okay. Well, um, yeah, I think this is a tough one because, uh, there's so many potential minefields and pitfalls, um, you know, that that can go along with it. Um, and I think often, and I I'm I I appreciate the spirit with which, [[Moses]], you ask this question because, you know, you're concerned about the care of people, right? Whereas a lot of times when people ask questions related to now this very, very hot question of gender, um, it's about justifying, um, frankly, sexual immorality or, um, all kinds of of other very problematic behaviors. I mean, we've talked many times on this show about this question of of identity becoming, you know, like one's personal identity, like I'm different from everybody else for the following list of reasons that together make me unique as being a very problematic way to live. And that at least is some of the way that I think about this stuff, but I'll be honest, I don't I don't have a lot of really big formed thoughts about how to understand this. I have very clear thoughts about, um, the right kinds of behavior, you know? Um, but I don't I don't I don't yet have fully worked out ideas about necessarily how we get there. So, Father, I'm just going to kick it over to you and I want to hear what you have to say about this.
 
-**[[Fr. Stephen De Young]]:** [Listen from 75:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=75:34:00)
+**[[Fr. Stephen De Young]]:** [Listen from [75:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-06-23.mp3#t=75:34:00)
 So, uh, yeah, this is this is not a question of, uh, [[Fr. Andrew]] being too chicken to really delve into this. It is that he does not share my reckless abandon. Um, because I'm about to get everybody mad at me. Um, but we'll see. We'll see. If you if you if if this actually makes it out onto Ancient Faith's airwaves and you listen to it and and I have not made you mad in any way, uh, send an email. So I'll be curious to see if there's anyone out there. Um, so, yeah, so part of again, we have to start by interrogating the question a little because as we said before, sort of the way you start an inquiry is going to shape the results you get. Yeah. Right? And so, there was something that happened, right, there were important distinctions that were made in the late mid 20th century that have kind of been lost now and are part of what's causing a lot of this confusion. Um, and one of the big ones, and here's where I'm going to take off a bunch of people right off the bat, is that there's a difference between biological sex and gender. Right. That those those aren't the same thing. Um, so biological sex, right, is all organisms, right? If you're into the evolution thing and humans are higher primates, right, they come in two biological sexes. Um, male and, uh, female. There are also, uh, intersex people. Um, for various reasons, genetic, uh, issues, other things, there are people who physiologically don't conform to one of those two. Those are people who have their own set of issues they face and struggles they face. And I frankly find it kind of offensive when they're used as like a political football in these arguments. Right? So the existence of intersex people literally has nothing to do with transgenderism. Yeah. Because this is a question of biological sex and transgenderism is about gender, which is a different thing. Right. Right? So respectfully, out of respect for them, we need to leave them out of the rest of this discussion. Right? And and when those people are in our churches and that kind of thing, we need to treat them with respect and help them with their struggles the same way we would anyone else, right? But so that's that's a separate kind of issue. Um, so gender then, right? And and part of this gets confused too because we're speaking English, right? In in pretty much every other language, uh, I've ever studied, language has gender. Right. Uh, so different words are masculine and feminine. It has nothing to do with biology whatsoever, right? French people don't think tables are women. Yeah, and there's even neutral gender and I I think some languages have more than three actually. Um, grammatical gender, you know? Right. Yeah. Yeah. And English doesn't have it and so that makes pronouns radioactive now because that's the one that's the only part of the English language that's really gendered is pronouns. Right. Right? And we've all forgotten that we used to call ships she, right? You know? Um, but so again, language gender is not related to this. Right? So what's commonly called gender in these discussions is basically, this is and I'm going to use another word it's going to make another group of people mad at me, it's a social construct, meaning it's something that is constructed by a society in terms of this is the way males should dress, present themselves, speak, appear in public, right? And this is the way females should dress, present themselves in public. And obviously, that's different in different cultures and different times. Right? Like, most of the Earth's history, men did not wear slacks or pants or jeans, right? That's now we consider masculine attire. Men didn't wear that for most of human history, right? Uh, if you saw someone dressed as Louis the 15th, uh, you would not say there is a hyper masculine person, right? Um, so that has changed, right? The founding fathers of the United States used to wear wigs and stockings, right? And high heeled shoes. Men don't do that anymore in our current, right, cultural conception of gender, right? So there are people, right, who are men or women biologically, who at any given point don't feel comfortable with the way their society tells them they should dress and act and present themselves, right? We didn't used to make a big deal out of this. Lots of women were tomboys in some period of their growing up, right? And they liked things that our culture associated with boys. They liked sports or they liked playing with what we considered to be boys' toys. Not a big deal. That didn't make them a boy. It didn't make them a man. Why? Well, because that's just social construct that has nothing to do with biology. Right? We were very clear this person is biologically this, right? They they happened to like some things that in our society are more commonly liked by the other sex, right? So, um, the other, in terms of ground clearing, the other issue here, and this even came out in the question a little bit, um, is that and the questioner, at least sounded like, you know, we're not allowed to assume anymore, but sounded like a man. Uh, and so he talked about genitalia. Um, for men, it's very easy to talk about reproduction in terms of genitalia because that's how men are involved in reproduction. But for a woman, most of what's involved in reproduction is carrying a new human being in their womb for nine months. Um, and so the the the reproductive structures of the body, especially if we as best I can because I'm not one, look at it from a a woman's perspective, is much more involved than just their their organs of reproduction and elimination. Um, that there is there is more involved here. And that's not sort of the end of physiological differences, right, between men and women. And so, um, when we say that a body is a collection of potentialities and powers, right? So obviously there are some of those that are different, right? A big glaringly obvious one is that men don't have wombs. Right? They they can't conceive and carry a child for nine months, right? That that's a potentiality, that's a power that they do not possess and that women do possess. Again, that doesn't mean that every woman right, possesses it because we're we're in a fallen world where there are disorders of the body, right, just as there are disorders of the soul, there's disease, there are problems where things don't work. But the structures, the physiological structures are aimed at that possessed by women and not and not by not by men. We've also said and tried to make it clear that your soul is not a thing separate from your body. Your soul is the life that is in your body. You are your body. The resurrection is physical. After the resurrection, [[Christ]] is still a man. His body is still a male body. Yeah, right? A male human body. Yep. Yep. Uh, so that is, right? Those structures, our our physical structures are not sort of ancillary, right? We have to get past this is a Plato brain thing, that our real self is this spherical thing inhabiting our body and our body is coincidental. Right? We are our body just as much as we are our soul.
 
 **[[Fr. Andrew Stephen Damick]]:** [Listen from 1:39:31:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2022-06-23.mp3#t=1:39:31:00)

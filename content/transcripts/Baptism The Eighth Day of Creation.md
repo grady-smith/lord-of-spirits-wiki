@@ -22,7 +22,7 @@ tags: [lordofspirits]
 
 **[[Fr. Andrew]]:** [01:53:00] That's true. I'm pondering that now. It's good.
 
-[01:57:00] So, yeah, so what is baptism? How is it different from the ritual washings of the Torah? What does it do? How is it related to circumcision? Why is the water so cold? [Listen from 02:10](https://media.ancientfaith.com/lordofspirits/los_2022-12-08.mp3#t=02:10) What does [[St. Peter]] mean when he says that baptism saves? Someone told me earlier that that makes them uncomfortable. When someone is baptized, is anything happening in the unseen world? All good questions that we're going to address. But first, we're going to start with circumcision. We're not going to need a parental advisory though this time, right, [[Father]]?
+[01:57:00] So, yeah, so what is baptism? How is it different from the ritual washings of the Torah? What does it do? How is it related to circumcision? Why is the water so cold? [Listen from [02:10](https://media.ancientfaith.com/lordofspirits/los_2022-12-08.mp3#t=02:10) What does [[St. Peter]] mean when he says that baptism saves? Someone told me earlier that that makes them uncomfortable. When someone is baptized, is anything happening in the unseen world? All good questions that we're going to address. But first, we're going to start with circumcision. We're not going to need a parental advisory though this time, right, [[Father]]?
 
 **[[Fr. Stephen]]:** [02:31:00] Well, I am using alcohol and tobacco.
 

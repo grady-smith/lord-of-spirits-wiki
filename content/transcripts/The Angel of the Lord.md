@@ -12,15 +12,15 @@ The introduction to the episode includes a reading from [1 Enoch 48:4-5](https:/
 
 ### Linguistic Breakdown
 
-[[Fr. Stephen]] breaks down the phrase "the [[Angel of the Lord]]" to establish its meaning from the original languages. [Listen from 02:20](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=02:20)
+[[Fr. Stephen]] breaks down the phrase "the [[Angel of the Lord]]" to establish its meaning from the original languages. [Listen from [02:20](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=02:20)
 
 1.  **"The"**: The Hebrew uses the definite article (*ha*), indicating a specific, singular being. This is not just "an" angel of the Lord but *the* [[Angel of the Lord]]. [[Fr. Stephen]] contrasts this with passages like [[Matthew 1:20]], where "an angel of the Lord" appears to Joseph, versus [[Matthew 1:24]], where the text refers back to "the angel." [The Greek article in Matthew is not a definite article in the same way the Hebrew *ha* is](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=04:34), but the Hebrew phrase *ha-mal'akh [[Yahweh]]* consistently points to one particular being.
 
-2.  **"Angel"**: The Hebrew word *mal'akh* and the Greek word *angelos* both mean "messenger." It describes a job or a role, not a species. In the ancient world, this term was used for spiritual beings who served pagan gods as well, such as in [[Targums - Enochic Literature|Ugaritic]] texts. [Listen from 05:34](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=05:34)
+2.  **"Angel"**: The Hebrew word *mal'akh* and the Greek word *angelos* both mean "messenger." It describes a job or a role, not a species. In the ancient world, this term was used for spiritual beings who served pagan gods as well, such as in [[Targums - Enochic Literature|Ugaritic]] texts. [Listen from [05:34](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=05:34)
 
 3.  **"of the Lord"**: This refers to [[Yahweh]], the [[God]] of Israel. The phrasing can be interpreted in two ways:
     *   **Possessive**: "[[Yahweh]]'s angel," meaning an angel who belongs to or serves [[Yahweh]].
-    *   **Descriptive/Attributive**: "The [[Yahweh]] angel," which implies an identification with [[Yahweh]] Himself. This is supported by Second [[Temple]] literature, such as the Apocalypse of [[Abraham]], which names an angelic figure "Yahoel," meaning "[[Yahweh]] [[God]]." [Listen from 09:27](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=09:27) This second interpretation suggests that the [[Angel of the Lord]] is a divine figure.
+    *   **Descriptive/Attributive**: "The [[Yahweh]] angel," which implies an identification with [[Yahweh]] Himself. This is supported by Second [[Temple]] literature, such as the Apocalypse of [[Abraham]], which names an angelic figure "Yahoel," meaning "[[Yahweh]] [[God]]." [Listen from [09:27](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=09:27) This second interpretation suggests that the [[Angel of the Lord]] is a divine figure.
 
 ### The Angel and the Law
 
@@ -51,11 +51,11 @@ The Angel is depicted as a divine warrior and protector throughout Israel's earl
 
 - **The Red Sea ([[Exodus 14:19-20]])**: The "angel of [[God]]" who was leading Israel moves to their rear, along with the pillar of cloud, to stand between them and the pursuing Egyptian army, protecting them through the night. [This is presented as a manifestation of the Trinity: the voice of the Father, the Angel (Christ), and the pillar of cloud (the Holy Spirit).](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:01:25)
 - **Hagar ([[Genesis 16]])**: [The very first appearance of the Angel of the Lord in Scripture is to Hagar in the wilderness](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:04:38), where he shows her mercy and promises that her son Ishmael will become a great nation.
-- **The [[Sacrifice]] of [[Isaac]] ([[Genesis 22]])**: The [[Angel of the Lord]] calls from heaven to stop [[Abraham]] from sacrificing [[Isaac]], providing a ram instead. [Listen from 1:05:42](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:05:42).
-- **Balaam's Donkey ([[Numbers 22]])**: The [[Angel of the Lord]] stands in the path of Balaam with a drawn sword, visible only to Balaam's donkey at first, to prevent him from cursing Israel. [Listen from 1:06:29](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:06:29).
+- **The [[Sacrifice]] of [[Isaac]] ([[Genesis 22]])**: The [[Angel of the Lord]] calls from heaven to stop [[Abraham]] from sacrificing [[Isaac]], providing a ram instead. [Listen from 1:[05:42](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:05:42).
+- **Balaam's Donkey ([[Numbers 22]])**: The [[Angel of the Lord]] stands in the path of Balaam with a drawn sword, visible only to Balaam's donkey at first, to prevent him from cursing Israel. [Listen from 1:[06:29](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:06:29).
 - **Gideon ([[Judges 6]])**: The [[Angel of the Lord]] appears to Gideon, and the text seamlessly switches between "the angel" and "[[Yahweh]]" speaking. [Gideon offers a meal, which the Angel consumes with fire from his staff, revealing his divine nature.](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:00:10)
 - **Samson's Birth ([[Judges 13]])**: The Angel announces Samson's birth to his parents. [When asked his name, the Angel replies, "Why do you ask my name, seeing it is wonderful?" This directly connects to the Messianic title "Wonderful Counselor" in Isaiah 9:6.](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:08:16)
-- **[[David]]'s Census ([[2 Samuel 24]] & [[1 Chronicles 21]])**: After [[David]] sinfully takes a census, the [[Angel of the Lord]] is seen over Jerusalem with a drawn sword, ready to bring a plague as judgment. [Listen from 1:09:48](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:09:48).
+- **[[David]]'s Census ([[2 Samuel 24]] & [[1 Chronicles 21]])**: After [[David]] sinfully takes a census, the [[Angel of the Lord]] is seen over Jerusalem with a drawn sword, ready to bring a plague as judgment. [Listen from 1:[09:48](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=1:09:48).
 
 ### The Confrontation at Jericho ([[Joshua]] 5)
 

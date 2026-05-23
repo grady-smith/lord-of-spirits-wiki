@@ -6,7 +6,7 @@ tags: [lordofspirits]
 
 ## Introduction and First Half
 
-[Listen from 02:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-07-08.mp3#t=02:27)
+[Listen from [02:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-07-08.mp3#t=02:27)
 
 **[[Fr. Andrew]] Stephen Damick:** Welcome back to the Lord of Spirits podcast. I'm Father Andrew Stephen Damick.
 
@@ -192,7 +192,7 @@ tags: [lordofspirits]
 * **[2 Chronicles (2 Paralipomenon) 35:20-24](https://media.ancientfaith.com/lordofspirits/los_2021-07-08.mp3#t=1:17:39):** [[Fr. Stephen]] explains how King Josiah of Judah, against a prophetic warning from Pharaoh Neco II, went to fight the Egyptians at Megiddo on their way to the Battle of Carchemish. This passage highlights Josiah's death as a result of his disobedience to [[God]]'s word spoken through a pagan king.
 
 ### [[Isaiah]]
-* **[Isaiah 14:12](https://media.ancientfaith.com/lordofspirits/los_2021-07-08.mp3#t=1:06:05):** The passage about "Helel ben Shachar" (Lucifer, son of the morning) is identified as a reference to the Canaanite mythos surrounding Enlil, the former high [[god]] who was superseded by Marduk. The text uses this mythological [[fall]] to describe the [[fall]] of the king of [[Babylon]].
+* **[Isaiah [14:12](https://media.ancientfaith.com/lordofspirits/los_2021-07-08.mp3#t=1:06:05):** The passage about "Helel ben Shachar" (Lucifer, son of the morning) is identified as a reference to the Canaanite mythos surrounding Enlil, the former high [[god]] who was superseded by Marduk. The text uses this mythological [[fall]] to describe the [[fall]] of the king of [[Babylon]].
 
 ### [[Jeremiah]]
 * **[Jeremiah 21](https://media.ancientfaith.com/lordofspirits/los_2021-07-08.mp3#t=1:52:26):** [[Fr. Stephen]] mentions that in this chapter, [[Nebuchadnezzar]] is presented as [[God]]'s instrument of judgment against Judah. [[Jeremiah]] prophesies that resisting [[Babylon]] is resisting [[God]]'s will.

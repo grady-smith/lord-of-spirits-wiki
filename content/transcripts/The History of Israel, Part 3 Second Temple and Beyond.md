@@ -8,761 +8,761 @@ This is the third and concluding part of the series on the history of Israel. [[
 
 ## Transcript
 
-**Voiceover:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=00:00:00)
+**Voiceover:** [Listen from [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=00:00:00)
 He will be a staff for the righteous with which for them to stand and not to [[fall]], and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will [[fall]] down and worship him, and they will praise and bless and celebrate with song the Lord of spirits. 1 [[Enoch]], chapter 48, verses 4 through 5.
 
-**Voiceover:** [Listen from 00:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=00:22:00)
+**Voiceover:** [Listen from [00:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=00:22:00)
 The modern world doesn't acknowledge but is nevertheless haunted by spirits, [[angels]], [[demons]], and [[saints]]. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? [[Orthodox]] [[Christian]] [[priests]], [[Fr. Andrew]] Stephen Damick and [[Fr. Stephen]] De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the Lord of Spirits.
 
-**[[Fr. Andrew]] Stephen Damick:** [Listen from 01:05:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=01:05:00)
+**[[Fr. Andrew]] Stephen Damick:** [Listen from [01:05:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=01:05:00)
 [[Christ]] is risen. Good evening, you giant-killers, dragon-slayers, gougers of gangrenous golems. You are listening to the Lord of Spirits podcast, and this is episode 116. My co-host, [[Fr. Stephen]] De Young, the quixotic questing beast of the quicksand, is with me straight from the swamp in Lafayette, Louisiana, and I'm [[Fr. Andrew]] Stephen Damick in Emmaus, Pennsylvania, perched precariously atop the arcane tower of podcasting, hovering dozens, dozens as it were of stories above a disused gateway to the underworld. And we are live.
 
 And if you're listening to us live, you can call us at 855-237-2346 and you can talk to us, and we'll get to your calls in the second half of the show. And Mike "Flash-in-the-Pan" Dagan will be taking your calls, if he can figure out how to press all the buttons and turn all the knobs and push all the faders. Also...
 
-**[[Fr. Stephen]] De Young:** [Listen from 01:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=01:57:00)
+**[[Fr. Stephen]] De Young:** [Listen from [01:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=01:57:00)
 If you're also if you're listening to us live, I really feel like we need a soundboard on the show, just so when we have a lead-in like the one we just had, we can drop, "And now for something completely different."
 
-**[[Fr. Andrew]]:** [Listen from 02:10:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:10:00)
+**[[Fr. Andrew]]:** [Listen from [02:10:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:10:00)
 Oh, yes. You know, I have at home, you know, someone, when I was out and about on one of my speaking engagements, someone gave me a goat, like a little toy goat, that when you press it, makes a screaming goat sound, and that, I think, would be fantastic for this show.
 
-**[[Fr. Stephen]]:** [Listen from 02:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:26:00)
+**[[Fr. Stephen]]:** [Listen from [02:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:26:00)
 I don't know if it would have the same effect that I'm going for, though. I'm just trying to avoid our listeners getting whiplash. There's kind of a lot of feminine energy going on there and then...
 
-**[[Fr. Andrew]]:** [Listen from 02:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:36:00)
+**[[Fr. Andrew]]:** [Listen from [02:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:36:00)
 Wow. With a screaming goat or...?
 
-**[[Fr. Stephen]]:** [Listen from 02:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:38:00)
+**[[Fr. Stephen]]:** [Listen from [02:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:38:00)
 And then all of a sudden... No, no, no, no, in the previous show. And then now us, right? Like...
 
-**[[Fr. Andrew]]:** [Listen from 02:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:42:00)
+**[[Fr. Andrew]]:** [Listen from [02:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:42:00)
 Oh, the previous show. Yes.
 
-**[[Fr. Stephen]]:** [Listen from 02:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:45:00)
+**[[Fr. Stephen]]:** [Listen from [02:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:45:00)
 Yeah, that's what I'm saying, right? We need, we need some kind of segue.
 
-**[[Fr. Andrew]]:** [Listen from 02:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:48:00)
+**[[Fr. Andrew]]:** [Listen from [02:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:48:00)
 I mean, it sounded... I mean, yeah, we were told, you know, make sure you get a good therapist. I mean, that's probably good advice for a lot of people. Um, but this is not your therapy, everybody. This is...
 
-**[[Fr. Stephen]]:** [Listen from 02:59:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:59:00)
+**[[Fr. Stephen]]:** [Listen from [02:59:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=02:59:00)
 No. This is why you go to therapy.
 
-**[[Fr. Andrew]]:** [Listen from 03:01:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:01:00)
+**[[Fr. Andrew]]:** [Listen from [03:01:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:01:00)
 Yes.
 
-**[[Fr. Stephen]]:** [Listen from 03:02:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:02:00)
+**[[Fr. Stephen]]:** [Listen from [03:02:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:02:00)
 I I have sent several people to therapy, I'm pretty sure, over the course of my life. Teachers, vice principals...
 
-**[[Fr. Andrew]]:** [Listen from 03:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:09:00)
+**[[Fr. Andrew]]:** [Listen from [03:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:09:00)
 But, you know, if you're not checked into rehab or therapy or whatever, set aside the first weekend in October for the Lord of Spirits conference at the Antiochian Village. Uh, we have sold out all the rooms at the village, but there are lots of commuter tickets available, so you can get a room somewhere else nearby and drive in. You may not—you may *not*—as some people apparently attempted, I don't know, or at least we heard that they were going to attempt to—you may not camp out in the parking lot. That is not okay. You can't sleep in your car.
 
-**[[Fr. Stephen]]:** [Listen from 03:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:38:00)
+**[[Fr. Stephen]]:** [Listen from [03:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:38:00)
 But there's like, there's a lot of like open land around there, man. I think you could, there are places you could squat. That's all I'm saying. There's a lot...
 
-**[[Fr. Andrew]]:** [Listen from 03:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:49:00)
+**[[Fr. Andrew]]:** [Listen from [03:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:49:00)
 I... In that part of Pennsylvania, there's probably a lot of abandoned buildings and stuff.
 
-**[[Fr. Stephen]]:** [Listen from 03:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:54:00)
+**[[Fr. Stephen]]:** [Listen from [03:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:54:00)
 Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 03:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:54:00)
+**[[Fr. Andrew]]:** [Listen from [03:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=03:54:00)
 That is probably true. That is honestly probably true. So, anyway, if you do find a place to, uh, to rest your your weary head, you can go to store.ancientfaith.com/events and, uh, and get your ticket. So it's going to be a lot of fun. I've already seen... Father, I'll say this, I've seen [[Fr. Stephen]]'s title and his blurb for the talk he's going to give, and the title is longer than the blurb.
 
-**[[Fr. Stephen]]:** [Listen from 04:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:20:00)
+**[[Fr. Stephen]]:** [Listen from [04:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:20:00)
 Yeah. Part of that too, uh, you should know is, uh, I have no idea what I'm going to talk about yet. I just wrote something.
 
-**[[Fr. Andrew]]:** [Listen from 04:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:26:00)
+**[[Fr. Andrew]]:** [Listen from [04:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:26:00)
 See, I know. Yes. I got your number.
 
-**[[Fr. Stephen]]:** [Listen from 04:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:29:00)
+**[[Fr. Stephen]]:** [Listen from [04:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:29:00)
 When I when I filled out the form. So...
 
-**[[Fr. Andrew]]:** [Listen from 04:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:31:00)
+**[[Fr. Andrew]]:** [Listen from [04:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:31:00)
 I know.
 
-**[[Fr. Stephen]]:** [Listen from 04:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:32:00)
+**[[Fr. Stephen]]:** [Listen from [04:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:32:00)
 I think I now have an idea what I'm going to talk about, but that may change between...
 
-**[[Fr. Andrew]]:** [Listen from 04:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:36:00)
+**[[Fr. Andrew]]:** [Listen from [04:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:36:00)
 Trying to make Ellie's life hard. Ellie, one of the most competent human beings in the known universe, who runs...
 
-**[[Fr. Stephen]]:** [Listen from 04:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:41:00)
+**[[Fr. Stephen]]:** [Listen from [04:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:41:00)
 Listen, I was trying *not* to make her life hard. I was trying to send her the form in a timely fashion. And in order to do that, I had to just, you know, go with something, fill in that blank. It was required. It was a required field. The little red thing appeared, "required field."
 
-**[[Fr. Andrew]]:** [Listen from 04:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:46:00)
+**[[Fr. Andrew]]:** [Listen from [04:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:46:00)
 Very good. It's required. Yep, yep, yep. Required field with a little asterisk, the little red bits. Yes.
 
-**[[Fr. Stephen]]:** [Listen from 04:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:54:00)
+**[[Fr. Stephen]]:** [Listen from [04:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=04:54:00)
 So I had to put something.
 
-**[[Fr. Andrew]]:** [Listen from 05:02:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:02:00)
+**[[Fr. Andrew]]:** [Listen from [05:02:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:02:00)
 Tonight, tonight, everyone, we are going to conclude our three-part series on the history of Israel. In our first part, we followed Israel from its pre-history in [[Abraham]] to its birth in the [[Exodus]], to the giving of the [[Torah]]. And in the second part, we covered the formation of Israel as a kingdom, including some gigantomachy, everyone was very excited, and then the breakup into the two kingdoms, Israel and Judah, and finally its dissolution in the exiles. So with this final chapter then, we begin with Judah in the Babylonian exile, singing the songs of [[Zion]] in a strange land.
 
 So what happens next?
 
-**[[Fr. Stephen]]:** [Listen from 05:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:40:00)
+**[[Fr. Stephen]]:** [Listen from [05:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:40:00)
 I don't know, because the Old Testament kind of ends there.
 
-**[[Fr. Andrew]]:** [Listen from 05:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:43:00)
+**[[Fr. Andrew]]:** [Listen from [05:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:43:00)
 That's right, there's 400 silent years. Were you raised with that idea? I mean, you're raised Dutch Reformed, but did they have this idea of 400 silent years?
 
-**[[Fr. Stephen]]:** [Listen from 05:53:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:53:00)
+**[[Fr. Stephen]]:** [Listen from [05:53:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=05:53:00)
 Um, between [[Malachi]] and [[Matthew]], basically. I was never really taught *that*. By the time anybody got into it, it was always from the perspective of, "Here's why those Catholic books aren't in the Bible," right?
 
-**[[Fr. Andrew]]:** [Listen from 06:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:09:00)
+**[[Fr. Andrew]]:** [Listen from [06:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:09:00)
 Right, right.
 
-**[[Fr. Stephen]]:** [Listen from 06:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:11:00)
+**[[Fr. Stephen]]:** [Listen from [06:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:11:00)
 There there was never sort of just a neutral, like, "Oh, hey, there's just this period of time between the Testaments." It was more polemical than that, shall we say.
 
-**[[Fr. Andrew]]:** [Listen from 06:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:22:00)
+**[[Fr. Andrew]]:** [Listen from [06:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:22:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 06:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:24:00)
+**[[Fr. Stephen]]:** [Listen from [06:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:24:00)
 Not that Dutch people are more pugnacious than average or anything. Um... Right. So, we, we, uh, let's, let's pause there for a second, because I, I like, there is a beautiful irony there.
 
-**[[Fr. Andrew]]:** [Listen from 06:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:40:00)
+**[[Fr. Andrew]]:** [Listen from [06:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:40:00)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 06:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:41:00)
+**[[Fr. Stephen]]:** [Listen from [06:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:41:00)
 And, and I mean actual irony, not Alanis Morissette irony.
 
-**[[Fr. Andrew]]:** [Listen from 06:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:44:00)
+**[[Fr. Andrew]]:** [Listen from [06:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:44:00)
 Thank you.
 
-**[[Fr. Stephen]]:** [Listen from 06:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:46:00)
+**[[Fr. Stephen]]:** [Listen from [06:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=06:46:00)
 In that, uh, when when they say, "Well, well, why are you saying there's 400 silent years? Why are you saying that there's no, no scripture written during this time?" And you get this quote from, uh, 1 [[Maccabees]] that in those days there was no [[prophet]] in the land.
 
-**[[Fr. Andrew]]:** [Listen from 07:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:06:00)
+**[[Fr. Andrew]]:** [Listen from [07:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:06:00)
 Yes, we'll see, right?
 
-**[[Fr. Stephen]]:** [Listen from 07:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:07:00)
+**[[Fr. Stephen]]:** [Listen from [07:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:07:00)
 There's, there's a famine of prophecy in the land, and so there's no scripture writing. And I'm like, but you just quoted 1 [[Maccabees]]. As though it were scripture. As though it were true.
 
-**[[Fr. Andrew]]:** [Listen from 07:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:17:00)
+**[[Fr. Andrew]]:** [Listen from [07:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:17:00)
 Yes.
 
-**[[Fr. Stephen]]:** [Listen from 07:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:18:00)
+**[[Fr. Stephen]]:** [Listen from [07:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:18:00)
 Authoritative. Checkmate.
 
-**[[Fr. Andrew]]:** [Listen from 07:23:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:23:00)
+**[[Fr. Andrew]]:** [Listen from [07:23:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:23:00)
 So, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 07:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:25:00)
+**[[Fr. Stephen]]:** [Listen from [07:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:25:00)
 It's interesting. Um, but yeah, so yeah, that's not a, that's not really a thing, right? So, obviously, the history, regardless your perspective on the canon of scripture, without going down that rabbit hole too far, uh, obviously the history of Israel continued, right? Things happened between the end of the book of Nehemiah and the beginning of the New Testament.
 
-**[[Fr. Andrew]]:** [Listen from 07:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:55:00)
+**[[Fr. Andrew]]:** [Listen from [07:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:55:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 07:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:56:00)
+**[[Fr. Stephen]]:** [Listen from [07:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=07:56:00)
 And that's pretty obvious when you start reading the New Testament and all of a sudden there are all these [[Pharisees]] and [[Sadducees]] and synagogues and...
 
-**[[Fr. Andrew]]:** [Listen from 08:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:06:00)
+**[[Fr. Andrew]]:** [Listen from [08:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:06:00)
 Right, yeah, which just seemed to have spread up out of nowhere, apparently.
 
-**[[Fr. Stephen]]:** [Listen from 08:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:09:00)
+**[[Fr. Stephen]]:** [Listen from [08:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:09:00)
 Yeah, and all these Jewish people with names that you don't recognize from the Old Testament, right? Um, if you don't know anything about that, you're going to find out about that tonight. Stay tuned.
 
-**[[Fr. Andrew]]:** [Listen from 08:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:22:00)
+**[[Fr. Andrew]]:** [Listen from [08:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:22:00)
 Settle in, everybody.
 
-**[[Fr. Stephen]]:** [Listen from 08:23:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:23:00)
+**[[Fr. Stephen]]:** [Listen from [08:23:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:23:00)
 Yeah. So... This one is...
 
-**[[Fr. Andrew]]:** [Listen from 08:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:25:00)
+**[[Fr. Andrew]]:** [Listen from [08:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:25:00)
 There will be some gaps filled.
 
-**[[Fr. Stephen]]:** [Listen from 08:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:26:00)
+**[[Fr. Stephen]]:** [Listen from [08:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:26:00)
 Yeah. This, this episode, this episode is going to be... so the last couple episodes we were talking about stuff that we've talked about before, that lots of people have talked about before, but we were kind of coming at it from another angle and ruining your Sunday school, right? Um, tonight's episode, there's going to be a lot more just, "Hey, here's some information you probably don't know and have never heard."
 
-**[[Fr. Andrew]]:** [Listen from 08:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:49:00)
+**[[Fr. Andrew]]:** [Listen from [08:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:49:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 08:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:49:00)
+**[[Fr. Stephen]]:** [Listen from [08:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:49:00)
 There's going to be sort of a lot more of that as we sort of fill in uh, fill in some of this history.
 
-**[[Fr. Andrew]]:** [Listen from 08:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:55:00)
+**[[Fr. Andrew]]:** [Listen from [08:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:55:00)
 A lot of narrative this time around.
 
-**[[Fr. Stephen]]:** [Listen from 08:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:57:00)
+**[[Fr. Stephen]]:** [Listen from [08:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=08:57:00)
 Yeah. Yeah. And uh, we're going to go through a whole dynasty of kings. Um... So, when, when last time on Lord of Spirits...
 
-**[[Fr. Andrew]]:** [Listen from 09:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=09:11:00)
+**[[Fr. Andrew]]:** [Listen from [09:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=09:11:00)
 Should we play, so we should play the flashback montage?
 
-**[[Fr. Stephen]]:** [Listen from 09:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=09:14:00)
+**[[Fr. Stephen]]:** [Listen from [09:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=09:14:00)
 Yeah. Um, at the end of our last episode, right, uh, as Father Andrew mentioned, we we left off with, right, Judah going into exile, Assyria having wiped out the Northern Kingdom of Israel. Uh... and people, we talked about what the expectation was, right? How, how were the people understanding that the greater promises to [[Abraham]], of which the land had been a sign, but sort of the greater, larger promises of [[Abraham]] would finally be would finally be fulfilled, right? What were they expecting to happen? What were they expecting to change? What were they expecting to come? And to just kind of summarize that, summarize the point, this is basically the same summary as we ended with last time, right? Um, that that [[God]] was going to act decisively in history to establish the order that's described in the [[Torah]], right? Remember the [[Torah]] was given as an ought. That was who Israel was supposed to be. That's never who they actually were. They never lived up to it. That's why the destruction of the Northern Kingdom and the the exile of Judah happened, right? But now [[God]] is going to take action to make that real. And he's going to take that action through a Messiah, right, through, through a Messianic king, a king after the pattern, after the type of [[David]], right, and who is a descendant of [[David]], and he is going to that intervention through the Messianic king is going to establish his kingdom. It's going to establish justice, the justice described in the [[Torah]]. It's going to restore Israel, both the northern and southern kingdoms, and we'll get into that more as we go on tonight. And free the people from the curse of the [[Torah]]. Remember the curse, that's literally the curses enunciated in the [[Torah]] for not having kept it.
 
-**[[Fr. Andrew]]:** [Listen from 11:23:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=11:23:00)
+**[[Fr. Andrew]]:** [Listen from [11:23:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=11:23:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 11:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=11:24:00)
+**[[Fr. Stephen]]:** [Listen from [11:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=11:24:00)
 Right, uh, under which the people were languishing in exile. So this is, this is what they're hoping for. This is what they're expecting to come. And now, we begin tonight with, uh, tonight, the harrowing conclusion. Um... So we're going to start what okay, so what actually happens now? This is their expectation. How does history sort of unfold? So Judah had been taken in, we talked more about the Assyrians last time, but Judah had been taken into exile by actually the Neo-Babylonian Empire. We just refer to [[Babylon]], but remember they're the Neo-Babylonian Empire. They're the new Babylonian Empire in the 6th century BC because...
 
-**[[Fr. Andrew]]:** [Listen from 12:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=12:13:00)
+**[[Fr. Andrew]]:** [Listen from [12:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=12:13:00)
 Yeah, because in the Assyrian, the Assyrians took the northern part. Right.
 
-**[[Fr. Stephen]]:** [Listen from 12:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=12:17:00)
+**[[Fr. Stephen]]:** [Listen from [12:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=12:17:00)
 Right. Right. And, and the original Babylonian Empire, this is Hammurabi and the Amor, this is back in the Bronze Age that fell apart in the Bronze Age collapse. So this is the Neo-Babylonian Empire which is begun by uh, Nabopolassar. Uh, [[Babylon]] becomes ascended again. He begins to take action, move toward conquering Nineveh and the Assyrian Empire and then going from there. But all of this really comes to fruition and the empire is established by Nabopolassar's son uh, [[Nebuchadnezzar]], aka Nebuchadrezzar, aka Nabu-kudurri-usur.
 
-**[[Fr. Andrew]]:** [Listen from 13:01:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:01:00)
+**[[Fr. Andrew]]:** [Listen from [13:01:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:01:00)
 Kabudonosor. Yeah. I feel like the Greek version is just...
 
-**[[Fr. Stephen]]:** [Listen from 13:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:03:00)
+**[[Fr. Stephen]]:** [Listen from [13:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:03:00)
 AKA Young Jeezy. Oh, no, wait, that's not a real... Uh... They just adding syllables. Yeah. In uh, in VeggieTales, it's it's Drezzer as I recall. Or Nezzar. Nezzar. Nezzar. That's more accurate. Nezzar.
 
-**[[Fr. Stephen]]:** [Listen from 13:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:18:00)
+**[[Fr. Stephen]]:** [Listen from [13:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:18:00)
 Nabu-kudurri-usur, which means something like "holy soul of Nabu," Nabu being one of the Babylonian gods.
 
-**[[Fr. Andrew]]:** [Listen from 13:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:24:00)
+**[[Fr. Andrew]]:** [Listen from [13:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:24:00)
 Yeah, good theophoric name.
 
-**[[Fr. Stephen]]:** [Listen from 13:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:26:00)
+**[[Fr. Stephen]]:** [Listen from [13:26:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:26:00)
 Uh, not just a planet with Gungans. Anyway, uh... So, um... He's really, right, and he of course becomes a major figure in Scripture, uh, because of his interactions with [[God]], right? And we talked about that more, go back to our, uh, episode on Mad Men. Not the Jon Hamm show, but...
 
-**[[Fr. Andrew]]:** [Listen from 13:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:54:00)
+**[[Fr. Andrew]]:** [Listen from [13:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:54:00)
 Yeah. Actual men who have gone mad.
 
-**[[Fr. Stephen]]:** [Listen from 13:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:56:00)
+**[[Fr. Stephen]]:** [Listen from [13:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=13:56:00)
 Uh, among whom was [[Nebuchadnezzar]]. We talked more about that. Um... but the Neo-Babylonian Empire, as glorious as it may have been, uh, did not last very long. Uh, this is another one of those timeframe things where like we talked about the relatively small period of time that that Israel and Judah existed in the world. Um, the Neo-Babylonian Empire was around for about a century. And that was about it. Um, we'll talk more about who came next in a minute. Um, but we tend to, so we have in our heads that what happened to the Northern Kingdom and what happened to the Southern Kingdom are sort of fundamentally different things, right? Uh, because the Northern Kingdom was wiped out and Judah just went into exile. Okay? But we're looking at that with hindsight, right?
 
-**[[Fr. Andrew]]:** [Listen from 14:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=14:58:00)
+**[[Fr. Andrew]]:** [Listen from [14:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=14:58:00)
 Yeah. Through the lens of the scriptures.
 
-**[[Fr. Stephen]]:** [Listen from 15:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=15:00:00)
+**[[Fr. Stephen]]:** [Listen from [15:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=15:00:00)
 Uh, what actually happened, of course, was the Assyrians sure massacred a lot of people, right? But they didn't kill literally everybody. Uh, they slaughtered and massacred a whole lot of people, but then they took a big group of those people to Assyria and relocated them, right, in particular villages, and over the course of about a century, we see in the Assyrian records the Hebrew names disappear, right? So they just intermarry and dissolve culturally into Assyria, which was the goal. That was the purpose for relocating them, and as we talked about last time, other people were relocated to Samaria and the area around it, right, Samaria having been the capital of the Northern Kingdom. They're going to become the Samaritans, more about the Samaritans tonight also. Um, and so, uh, there was this forced relocation, essentially an exile, right? Uh, and so, uh, don't be confused. [[Nebuchadnezzar]] at the time he takes, I mean, he killed a whole lot of people at Judah, right? And when he took those people to [[Babylon]] into exile, he was planning, at least at that point, now he repented of things later, right, we know, but he also died and was replaced by another Babylonian emperor who was not so keen. Um, he was not intending to send them back at some point.
 
-**[[Fr. Andrew]]:** [Listen from 16:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:32:00)
+**[[Fr. Andrew]]:** [Listen from [16:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:32:00)
 Yeah, there was no sense of like, "Oh, [[God]] has told me to take these people into exile for their chastisement for 70 years and then send them back," right?
 
-**[[Fr. Stephen]]:** [Listen from 16:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:39:00)
+**[[Fr. Stephen]]:** [Listen from [16:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:39:00)
 He he never, the Neo-Babylonian Empire never sends them back, okay? It's the next people. Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 16:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:44:00)
+**[[Fr. Andrew]]:** [Listen from [16:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:44:00)
 It doesn't last.
 
-**[[Fr. Stephen]]:** [Listen from 16:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:46:00)
+**[[Fr. Stephen]]:** [Listen from [16:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=16:46:00)
 So they they were planning on doing the exact same thing that the Assyrians did to the Northern Kingdom from the Babylonian side. Now, [[God]] didn't let that happen in the case of Judah. So the difference is [[God]] intervenes to for the sake, as the scripture say over and over again, of his servant [[David]], [[God]] intervenes to make the exile a temporary thing. And that intervention happens through the aforementioned next guy, who is Cyrus the Great, the first emperor of the Persian Empire. To be more specific, the Achaemenid Empire. Because there are other Persian empires later in history. Uh...
 
-**[[Fr. Andrew]]:** [Listen from 17:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=17:28:00)
+**[[Fr. Andrew]]:** [Listen from [17:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=17:28:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 17:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=17:29:00)
+**[[Fr. Stephen]]:** [Listen from [17:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=17:29:00)
 The main one you hear about being the Sassanid Empire, but, um, so the the, uh, Cyrus comes from Persis, which is where Persia gets its name, right? Which was actually a little province in what's now southern Iran, in the middle of the northern coast of the Persian Gulf. You can look up a map on the interwebs, the Googles. Um, and you will see that I'm correct.
 
-**[[Fr. Andrew]]:** [Listen from 18:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:03:00)
+**[[Fr. Andrew]]:** [Listen from [18:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:03:00)
 Or just, I was gonna say, or just pull out the atlas of the ancient Near East that everyone has under their bed.
 
-**[[Fr. Stephen]]:** [Listen from 18:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:09:00)
+**[[Fr. Stephen]]:** [Listen from [18:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:09:00)
 What you should. Um, so, uh, but Cyrus manages to uh, unite the people of Persis and get them on the road to conquest. And that involves not just, obviously you say, "Well, how could..." I mean, that seems like a rather small group of people. "How could you conquer that much territory?" He doesn't just, he, he, he does not operate according to the kind of principles the Assyrians or even the Babylonians used. Uh, he's, he's great at making deals.
 
-**[[Fr. Andrew]]:** [Listen from 18:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:44:00)
+**[[Fr. Andrew]]:** [Listen from [18:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:44:00)
 Oh.
 
-**[[Fr. Stephen]]:** [Listen from 18:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:45:00)
+**[[Fr. Stephen]]:** [Listen from [18:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=18:45:00)
 So he goes to the tribes of the Medes, right? And these other people groups surrounding him, and unites them under his rule, right? So he is, uh, not just a sort of conqueror, he is also a coalition builder.
 
-**[[Fr. Andrew]]:** [Listen from 19:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:04:00)
+**[[Fr. Andrew]]:** [Listen from [19:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:04:00)
 I see. I mean, is he, is he paying them off, or is he saying, "We can go to fortune and glory if you all...?"
 
-**[[Fr. Stephen]]:** [Listen from 19:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:09:00)
+**[[Fr. Stephen]]:** [Listen from [19:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:09:00)
 All kinds of things like that, marriages, right? Like, all up and down the line. Like, he's good at this, right?
 
-**[[Fr. Andrew]]:** [Listen from 19:15:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:15:00)
+**[[Fr. Andrew]]:** [Listen from [19:15:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:15:00)
 Yeah. Okay.
 
-**[[Fr. Stephen]]:** [Listen from 19:16:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:16:00)
+**[[Fr. Stephen]]:** [Listen from [19:16:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:16:00)
 So Cyrus the Great is, is very different than a lot of these other figures that we've already talked about and that we're going to talk about next time, like, or later on tonight, like, uh, [[Alexander the Great]], right? In that he's...
 
-**[[Fr. Andrew]]:** [Listen from 19:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:29:00)
+**[[Fr. Andrew]]:** [Listen from [19:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:29:00)
 Not great in the same way.
 
-**[[Fr. Stephen]]:** [Listen from 19:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:31:00)
+**[[Fr. Stephen]]:** [Listen from [19:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:31:00)
 Yeah, he's he's a great general, right? He does win a lot of battles, right? He does defeat the Babylonian Empire, for example, eventually. But what he's what he's very good at is this kind of coalition building and building infrastructure. So the the the first Persian Empire here is more like the [[Roman Empire]] in that regard.
 
-**[[Fr. Andrew]]:** [Listen from 19:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:56:00)
+**[[Fr. Andrew]]:** [Listen from [19:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:56:00)
 Hm.
 
-**[[Fr. Stephen]]:** [Listen from 19:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:57:00)
+**[[Fr. Stephen]]:** [Listen from [19:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=19:57:00)
 One of the things that facilitates this is he's very good, very good at administration. He creates a massive bureaucratic state. Uh, he standardizes what's called Imperial Aramaic, the language that we think of as Aramaic, that parts of of the Hebrew Bible are actually written in, like big chunks of [[Daniel]] and uh, Ezra. Um, that Aramaic is Imperial Aramaic. That is the standardized language of the Persian Empire.
 
-**[[Fr. Andrew]]:** [Listen from 20:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:25:00)
+**[[Fr. Andrew]]:** [Listen from [20:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:25:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 20:27:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:27:00)
+**[[Fr. Stephen]]:** [Listen from [20:27:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:27:00)
 And spreads that Aramaic over a vast swath of the world. Right. Uh, his successor Darius, if you're fancy, or Darius if you're not.
 
-**[[Fr. Andrew]]:** [Listen from 20:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:39:00)
+**[[Fr. Andrew]]:** [Listen from [20:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:39:00)
 Or a hoodie fan.
 
-**[[Fr. Stephen]]:** [Listen from 20:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:41:00)
+**[[Fr. Stephen]]:** [Listen from [20:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=20:41:00)
 Um, uh, kind of takes the empire to to where it's mostly at its apogee. And at its height, right, the Achaemenid Empire, uh, controls like [[Egypt]] and northern Libya, controls... doesn't get Greece. Goes for Greece, doesn't get Greece, right, the Persian Wars, we know about that, but gets Thrace up above Greece, so into Eastern Europe, all the way across, a big chunk of what was then part of India that's now modern Pakistan, all the way over to there, Afghanistan, right, all of what's Iran, Iraq, right, uh, the Arabian Peninsula, right, this vast swath of territory, and actually is able to administer it very successfully.
 
-**[[Fr. Andrew]]:** [Listen from 21:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:28:00)
+**[[Fr. Andrew]]:** [Listen from [21:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:28:00)
 Hm. Yeah, it's one thing to take out rulers and subject the peoples and whatever, but it's something else entirely to actually run the place.
 
-**[[Fr. Stephen]]:** [Listen from 21:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:40:00)
+**[[Fr. Stephen]]:** [Listen from [21:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:40:00)
 Yeah, and the Persians are going to be the reason why there are these groups in Eastern Europe and around the Black Sea that who use Aramaic for centuries thereafter.
 
-**[[Fr. Andrew]]:** [Listen from 21:52:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:52:00)
+**[[Fr. Andrew]]:** [Listen from [21:52:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:52:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 21:53:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:53:00)
+**[[Fr. Stephen]]:** [Listen from [21:53:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=21:53:00)
 They're they're spreading the that language around and Aramaic over into, like I said, Pakistan, India, over in that direction. Um, so, uh, but Cyrus's character here becomes very important, right? So Cyrus, uh, takes a very different approach to the people under his rule, whether conquered or bargained for or treated with or however they ended up part of the Persian Empire. Um, famously, he would send emissaries, right? This is the whole scene in 300, which obviously is, uh, not a super realistic portrayal, but...
 
-**[[Fr. Andrew]]:** [Listen from 22:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=22:40:00)
+**[[Fr. Andrew]]:** [Listen from [22:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=22:40:00)
 What? What?
 
-**[[Fr. Stephen]]:** [Listen from 22:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=22:41:00)
+**[[Fr. Stephen]]:** [Listen from [22:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=22:41:00)
 Some of the basic facts are correct in that he would send emissaries, right, with salt and with things, and the emissaries would, he would just call on these to submit to the Persian Empire and explain here are all the good things right, that will come to you if you become part of this empire, because he really did have things to offer.
 
-**[[Fr. Andrew]]:** [Listen from 23:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:06:00)
+**[[Fr. Andrew]]:** [Listen from [23:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:06:00)
 Yeah, sure.
 
-**[[Fr. Stephen]]:** [Listen from 23:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:07:00)
+**[[Fr. Stephen]]:** [Listen from [23:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:07:00)
 In terms of infrastructure, wealth, trade, right, all kind, I mean, he had all these things to offer.
 
-**[[Fr. Andrew]]:** [Listen from 23:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:12:00)
+**[[Fr. Andrew]]:** [Listen from [23:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:12:00)
 Whatever the Persians have done for us.
 
-**[[Fr. Stephen]]:** [Listen from 23:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:14:00)
+**[[Fr. Stephen]]:** [Listen from [23:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:14:00)
 And he would, he would offer the kings, uh, positions as heads of satraps of provinces and stuff, right? Uh, he didn't just, he wasn't like, "Kill them all," right? Make a show of it like the Assyrians. It was, you know, "You can have this exalted position, you're still going to govern your territory, you're just going to be governing it under me," right? Like...
 
-**[[Fr. Andrew]]:** [Listen from 23:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:36:00)
+**[[Fr. Andrew]]:** [Listen from [23:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:36:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 23:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:37:00)
+**[[Fr. Stephen]]:** [Listen from [23:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=23:37:00)
 So it was, it was, he, he always tried that first. Now, got to be fair also, not just he, not just Cyrus, but his successors, even Xerxes and stuff, Artaxerxes, uh, who is Ahasuerus, but anyway. Um, they, they always tried that first. Now, but we have to be fair, if you said no, they would then come and conquer you, right? Then they sent in the military, right, and take, take it by force, and then the king gets his head chopped off and then, right, things go bad. But this is the whole scene in 300 where the guy comes to give these terms to Sparta, right? You know, "Oh, here's all the good things that will happen if you surrender," and he gets kicked down the well, right, like the famous scene. Um, yeah, so... The Greeks kind of started that, but on the other hand, they were kind of being extorted at the same time. Um, but but even that gives you a view that Cyrus and his successors had a different, had a different, maybe and maybe even we might say more, uh, practical approach to expanding and governing their empire. Right? It wasn't about conquest and defeat and grinding people's faces into the ground like the Assyrians. And they didn't feel and Cyrus didn't feel the need to sort of expunge all of the different people groups, right, as long as they submitted to his authority, that was fine.
 
-**[[Fr. Andrew]]:** [Listen from 25:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:04:00)
+**[[Fr. Andrew]]:** [Listen from [25:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:04:00)
 Yeah, he was, he was cool with the coalition.
 
-**[[Fr. Stephen]]:** [Listen from 25:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:07:00)
+**[[Fr. Stephen]]:** [Listen from [25:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:07:00)
 Yeah, it's kind of like the papacy. No. Um...
 
-**[[Fr. Andrew]]:** [Listen from 25:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:12:00)
+**[[Fr. Andrew]]:** [Listen from [25:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:12:00)
 Too soon, [[Fr. Stephen]]. Yeah, as long as you come under his authority, he'll let you do your thing, right?
 
-**[[Fr. Stephen]]:** [Listen from 25:19:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:19:00)
+**[[Fr. Stephen]]:** [Listen from [25:19:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=25:19:00)
 Um, tough but fair. So, um, and and so he he takes this this approach really with the the Jewish exiles, right, the Judite exiles who he has, and, uh, traditionally, this part happens in part, they come and appeal to him, right, and make an appeal to him, yeah, uh, because he had, by that point, acquired the territory that had been Judah, right? Um, so it's still part of his empire, right, and came and presented to him, "We're not rebelling against you, we're not trying to leave your empire, we want to remain your subjects, we just want to go back and live where we came from, right, and be your happy, obedient subjects there instead of here."
 
-**[[Fr. Andrew]]:** [Listen from 26:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=26:13:00)
+**[[Fr. Andrew]]:** [Listen from [26:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=26:13:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 26:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=26:14:00)
+**[[Fr. Stephen]]:** [Listen from [26:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=26:14:00)
 Right? "And we just want to, we'll be over there in the corner, we want to practice our way of life, religiously and everything, right, but we're not going to be any bother to you," right? "We'll offer sacrifices on your behalf to our [[God]]," right? "We'll do all these nice things," right? Uh, and traditionally also showed him some passages in the Hebrew scriptures that referred to him, uh, possibly even by name, um, that were already written at that point, uh, to, uh, sort of, uh, get on his good side, right, of, you know, "Our [[God]] has has chosen you to be the one who returns us to our land." And Cyrus does it. Right? Cyrus does it. Uh, he allows, permits, those verbs are important, the Judite exiles who want to to return to the land that had been Judah. Um, this, uh, right, he he allows that to happen. Now, the reason I keep saying "allows, permits" is not everyone's going to go back there.
 
-**[[Fr. Andrew]]:** [Listen from 27:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:31:00)
+**[[Fr. Andrew]]:** [Listen from [27:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:31:00)
 Right. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 27:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:32:00)
+**[[Fr. Stephen]]:** [Listen from [27:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:32:00)
 Right? A lot of people are probably like, "Look, this is where I live now, for generations we've lived here. I have a life here. I have a job. I have a house, you know. My kids are here."
 
-**[[Fr. Stephen]]:** [Listen from 27:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:42:00)
+**[[Fr. Stephen]]:** [Listen from [27:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:42:00)
 Right. And and the most significant, I mean it was 70 years, right? So you've got it's a couple generations of people. There are people who have been born and lived their whole life somewhere else.
 
-**[[Fr. Andrew]]:** [Listen from 27:52:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:52:00)
+**[[Fr. Andrew]]:** [Listen from [27:52:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:52:00)
 Yeah, right.
 
-**[[Fr. Stephen]]:** [Listen from 27:52:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:52:00)
+**[[Fr. Stephen]]:** [Listen from [27:52:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=27:52:00)
 Who have never lived in Judah. Yeah. Um, and so the the big significant group in that category, right, are first, when you read [[Jeremiah]], there's a large group of Judaites centered around Jerusalem, a lot of them the wealthier folks, who sort of believed [[Jeremiah]]'s prophesying and saw the writing on the wall that Jerusalem was going to [[fall]] to the Babylonians and uh, made plans to go to [[Egypt]]. Right, to move to [[Egypt]]. Uh, [[Jeremiah]] did not want them to do that. They wanted him to come too. He refused to do that. They uh, Shanghaied him, that's what, super politically correct now to say. But it's too late now, I already said it. So they Shanghaied him and took him to, took him to, uh, [[Egypt]] anyway. And, uh, those folks settled in an area called Leontopolis, which was sort of in our modern terms, a suburb of Alexandria. Hm. And, uh, the the central area of Leontopolis is still called Tel Yehudi, which is...
 
-**[[Fr. Andrew]]:** [Listen from 29:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:07:00)
+**[[Fr. Andrew]]:** [Listen from [29:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:07:00)
 Wow, really?
 
-**[[Fr. Stephen]]:** [Listen from 29:08:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:08:00)
+**[[Fr. Stephen]]:** [Listen from [29:08:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:08:00)
 Uh, in [[Egypt]] to this day. Uh, which means...
 
-**[[Fr. Andrew]]:** [Listen from 29:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:13:00)
+**[[Fr. Andrew]]:** [Listen from [29:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:13:00)
 It's interesting.
 
-**[[Fr. Stephen]]:** [Listen from 29:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:13:00)
+**[[Fr. Stephen]]:** [Listen from [29:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:13:00)
 "the hill of the Jews." Yeah, yeah, yeah, yeah. Uh, and, uh, so, uh, there was this large community there, and in those 70 years, they had set down roots and continued to set down roots. And so Alexandrian Judaism is a particular form of Judaism comes into being there. Philo of Alexandria will later be a famous example of of Alexandrian Judaism.
 
-**[[Fr. Andrew]]:** [Listen from 29:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:38:00)
+**[[Fr. Andrew]]:** [Listen from [29:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:38:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 29:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:39:00)
+**[[Fr. Stephen]]:** [Listen from [29:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:39:00)
 Um, and, uh, at the time, of course, it isn't Alexandria because Alexander hasn't come through yet, but...
 
-**[[Fr. Andrew]]:** [Listen from 29:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:48:00)
+**[[Fr. Andrew]]:** [Listen from [29:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:48:00)
 Right, right. Yeah, yeah, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 29:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:49:00)
+**[[Fr. Stephen]]:** [Listen from [29:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=29:49:00)
 Uh, but they're just in this area, right, um, that's going to be Leontopolis. And eventually, uh, down the road, it's a while down the road from this, it's uh, uh, a couple hundred years after the exile, but they're eventually going to take over a [[temple]] of Bast, um, who is...
 
-**[[Fr. Andrew]]:** [Listen from 30:08:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:08:00)
+**[[Fr. Andrew]]:** [Listen from [30:08:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:08:00)
 And which, which [[god]] or goddess is that? It's which, which...
 
-**[[Fr. Stephen]]:** [Listen from 30:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:11:00)
+**[[Fr. Stephen]]:** [Listen from [30:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:11:00)
 Cat. Cat goddess. Yeah, cat goddess. Who was also the [[god]] they worship in Wakanda.
 
-**[[Fr. Andrew]]:** [Listen from 30:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:18:00)
+**[[Fr. Andrew]]:** [Listen from [30:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:18:00)
 How about that?
 
-**[[Fr. Stephen]]:** [Listen from 30:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:22:00)
+**[[Fr. Stephen]]:** [Listen from [30:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=30:22:00)
 Anyway. Um, so, uh, but yeah, so Bast, who's the this cat [[god]], there was a, uh, disused [[temple]] of Bast, it was actually an obelisk in shape, that they took over and turned into a Jewish [[temple]]. Uh, and that Jewish obelisk [[temple]] in Leontopolis was there, on Tel Yehudi, uh, until AD 73, meaning there were three years after the destruction of the [[Temple]] in Jerusalem where that was the only Jewish [[temple]] in the world.
 
-**[[Fr. Andrew]]:** [Listen from 31:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:00:00)
+**[[Fr. Andrew]]:** [Listen from [31:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:00:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 31:01:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:01:00)
+**[[Fr. Stephen]]:** [Listen from [31:01:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:01:00)
 And the reason it was destroyed was that [[Rome]] told the governor to tear it down because the [[Temple]] of Jerusalem had become this hub for rebellion, he didn't want the same thing to happen in [[Egypt]].
 
-**[[Fr. Andrew]]:** [Listen from 31:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:12:00)
+**[[Fr. Andrew]]:** [Listen from [31:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:12:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 31:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:13:00)
+**[[Fr. Stephen]]:** [Listen from [31:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:13:00)
 Um, and for the record, that was not a [[temple]], the way they viewed that [[temple]], it's kind of interesting, um, they did not think it was another [[temple]] like the one in Jerusalem. Uh, they used the Psalm verse about [[God]] having an [[altar]] of incense in [[Egypt]] to justify it. Um, but they saw it as sort of a satellite [[temple]].
 
-**[[Fr. Andrew]]:** [Listen from 31:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:36:00)
+**[[Fr. Andrew]]:** [Listen from [31:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:36:00)
 Huh.
 
-**[[Fr. Stephen]]:** [Listen from 31:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:37:00)
+**[[Fr. Stephen]]:** [Listen from [31:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=31:37:00)
 Like it wasn't the real [[temple]], but it was sort of like an embassy or an extension of the [[Temple]] in Jerusalem. So they would send their tithes and offerings to the [[Temple]] in Jerusalem and make pilgrimage there when they could from Alexandria, but for sort of day-to-day stuff, they would go to this this one in in Leontopolis as if it was sort of an outpost. So it's kind of an interesting dynamic in Alexandrian Judaism.
 
-**[[Fr. Andrew]]:** [Listen from 32:05:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:05:00)
+**[[Fr. Andrew]]:** [Listen from [32:05:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:05:00)
 You know, because the idea that like you're only supposed to actually do sacrifices in Jerusalem, but...
 
-**[[Fr. Stephen]]:** [Listen from 32:15:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:15:00)
+**[[Fr. Stephen]]:** [Listen from [32:15:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:15:00)
 There's just portal to [[Egypt]]. Well, yeah. Well, and I mean, keep in mind, right, like, we're saying that, you know, yes, the [[Torah]] is super clear, you're only supposed to offer sacrifices in Jerusalem, but the Northern Kingdom had been offering sacrifices all over the place, Bethel, Dan, its whole existence, right?
 
-**[[Fr. Andrew]]:** [Listen from 32:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:31:00)
+**[[Fr. Andrew]]:** [Listen from [32:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:31:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 32:33:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:33:00)
+**[[Fr. Stephen]]:** [Listen from [32:33:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:33:00)
 So it's not like this is some radical thing different than anything any Israelite or Jewish person had ever considered. I mean... It's, it's low-grade in terms of...
 
-**[[Fr. Andrew]]:** [Listen from 32:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:43:00)
+**[[Fr. Andrew]]:** [Listen from [32:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:43:00)
 Violations of the [[Torah]] commandment.
 
-**[[Fr. Stephen]]:** [Listen from 32:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:45:00)
+**[[Fr. Stephen]]:** [Listen from [32:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:45:00)
 Yes, right. At least there's no golden calf.
 
-**[[Fr. Andrew]]:** [Listen from 32:47:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:47:00)
+**[[Fr. Andrew]]:** [Listen from [32:47:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:47:00)
 Historical precedent. Right. Yeah. At least there's no golden calf there, right? Like there's no, you know...
 
-**[[Fr. Stephen]]:** [Listen from 32:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:55:00)
+**[[Fr. Stephen]]:** [Listen from [32:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:55:00)
 Right. Could be way, way worse.
 
-**[[Fr. Stephen]]:** [Listen from 32:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:58:00)
+**[[Fr. Stephen]]:** [Listen from [32:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=32:58:00)
 So, so Alexandrian Judaism becomes a thing because a lot of them stay, right? Uh, the other major group, like significant group coming out of this, is there are a whole lot of people of of Judite exiles who stay in Mesopotamia.
 
-**[[Fr. Andrew]]:** [Listen from 33:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:18:00)
+**[[Fr. Andrew]]:** [Listen from [33:18:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:18:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 33:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:20:00)
+**[[Fr. Stephen]]:** [Listen from [33:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:20:00)
 And lay the roots for what becomes Babylonian, what we now call Babylonian Judaism. There's a reason why the Babylonian [[Talmud]] is called the Babylonian [[Talmud]].
 
-**[[Fr. Andrew]]:** [Listen from 33:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:29:00)
+**[[Fr. Andrew]]:** [Listen from [33:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:29:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 33:30:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:30:00)
+**[[Fr. Stephen]]:** [Listen from [33:30:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:30:00)
 Right? So there's this significant Jewish community, right, still in [[Babylon]] in that part of the Persian Empire that just remains where they are.
 
-**[[Fr. Andrew]]:** [Listen from 33:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:39:00)
+**[[Fr. Andrew]]:** [Listen from [33:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=33:39:00)
 And you see the books of [[Daniel]] and Esther. Yeah, exactly. And I was gonna say, and even to this day, there are communities of Jews that live in various parts of the Middle East, um, who, they trace their, their, they trace their roots back to like this period.
 
-**[[Fr. Stephen]]:** [Listen from 34:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=34:00:00)
+**[[Fr. Stephen]]:** [Listen from [34:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=34:00:00)
 Yes. That's the vibe of themselves. Like that's not a weird claim, that's legit. Right?
 
-**[[Fr. Andrew]]:** [Listen from 34:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=34:04:00)
+**[[Fr. Andrew]]:** [Listen from [34:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=34:04:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 34:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=34:06:00)
+**[[Fr. Stephen]]:** [Listen from [34:06:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=34:06:00)
 Um, and then of course, uh, you also get people settling in parts of the Levant that weren't technically part of Judah before, right? So you get people who come back and settle in around the Sea of Galilee and stuff that had belonged to other tribes in the Northern Kingdom and that kind of thing. Um, because that freedom to return to Judea also included they had kind of freedom to travel within the Persian Empire. So you get small groups of Judite, right, exiles who just go various, go and live various places, right? Um, within the Persian Empire for various reasons, you know, having to do with work and trade and commerce and all kinds of things. Maybe, you know, whether the arthritis was acting up, I don't know. Um, so, but there, but however, you do have this significant group that goes back to what had been Judah. And when they get there, uh, they set about rebuilding the [[temple]] and the city, the city walls, right, around Jerusalem, because even though this is all Persian Empire now, there's all kinds of people groups and nomadic tribes and all kinds of people living around in that area now, right? Uh, and the, uh, so the defense of the returning Judite exiles was important and of course rededicating the [[temple]]. And so they do rededicate the [[temple]]. That [[temple]] is the [[second temple]] after which this period is named, the [[second temple]] period. Um, and but when they rebuild that [[temple]] and they rededicate it...
 
-**[[Fr. Andrew]]:** [Listen from 36:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:04:00)
+**[[Fr. Andrew]]:** [Listen from [36:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:04:00)
 Something doesn't happen.
 
-**[[Fr. Stephen]]:** [Listen from 36:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:07:00)
+**[[Fr. Stephen]]:** [Listen from [36:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:07:00)
 Right. The the stories that we read in [[Leviticus]] about the [[Tabernacle]] and in 1 Kings and I think it's at the end of 1 Chronicles, uh, about the dedica-, it might be the beginning of 2 Chronicles, about the dedication of the [[temple]], um, those, uh, where there's this, this theophanic glory cloud appears and fills the [[tabernacle]] or fills the [[temple]], the glory of the Lord, and there's this visible, uh, [[theophany]], right? There's this visual, visual manifestation of [[God]] and his presence there, that doesn't happen when they dedicate the [[second temple]].
 
-**[[Fr. Andrew]]:** [Listen from 36:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:48:00)
+**[[Fr. Andrew]]:** [Listen from [36:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:48:00)
 Which, I mean, that must have been a pretty disappointing, you know, like, wait, is this, is this real? Is, is our, is [[God]] still mad? You know?
 
-**[[Fr. Stephen]]:** [Listen from 36:59:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:59:00)
+**[[Fr. Stephen]]:** [Listen from [36:59:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=36:59:00)
 Right. And you can get all the possible things. Did we do it wrong? Right? Did we, did we need to, did we zig when we should have zagged, right? Did we say the wrong words? Did we use the wrong recipe for anointing oil or incense? Um... but, I mean, the people soldier on, but this creates this tension, right? So, the Hebrew scriptures themselves refer to Cyrus as the Messiah.
 
-**[[Fr. Andrew]]:** [Listen from 37:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:28:00)
+**[[Fr. Andrew]]:** [Listen from [37:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:28:00)
 Yeah. Right.
 
-**[[Fr. Stephen]]:** [Listen from 37:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:29:00)
+**[[Fr. Stephen]]:** [Listen from [37:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:29:00)
 Right? And we talked about, go back and listen to our Messiah episode, uh, in this period they didn't necessarily think there was only going to be one Messiah. Right?
 
-**[[Fr. Andrew]]:** [Listen from 37:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:40:00)
+**[[Fr. Andrew]]:** [Listen from [37:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:40:00)
 Yes, yes, right, right, right.
 
-**[[Fr. Stephen]]:** [Listen from 37:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:41:00)
+**[[Fr. Stephen]]:** [Listen from [37:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=37:41:00)
 The the Messiah Ben [[David]], the Messiah the son of [[David]], right, is the one we're usually talking about, but there were other ideas about other messiahs and messianic figures going around. Um, but you can see, right, so in a certain sense, okay, we're we're we're the exile is kind kind of over because a lot of us are back here in the land. Um, and we've got the [[temple]] back, and this king, this great king over the known world has intervened on our behalf, right, and and [[God]] was working through him to do this, and this is kind of the the kind of stuff we were expecting to happen, but very incomplete.
 
-**[[Fr. Andrew]]:** [Listen from 38:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:28:00)
+**[[Fr. Andrew]]:** [Listen from [38:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:28:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 38:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:29:00)
+**[[Fr. Stephen]]:** [Listen from [38:29:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:29:00)
 Right? So, kind of Messiah-ish kind of stuff.
 
-**[[Fr. Andrew]]:** [Listen from 38:33:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:33:00)
+**[[Fr. Andrew]]:** [Listen from [38:33:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:33:00)
 Like this is the beginning of something, right?
 
-**[[Fr. Stephen]]:** [Listen from 38:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:38:00)
+**[[Fr. Stephen]]:** [Listen from [38:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=38:38:00)
 But not really the fulfillment, right? Not the end, right? Like there's, there's more here to do, right, um, that hasn't happened yet. Um, but so all of these communities then sort of soldier on, right? So, uh, as best they can, they restore the priesthood, they begin offering the sacrifices again, they begin celebrating the feasts again in Judea, right? Um, and then the the Judaites who are living in these other places will make pilgrimage to the [[temple]], but they remain living where they're living. And so, some important ideas develop here right here at the end of the exile that are critically important going forward in history. There there are some things that change in some terms, because what ends up happening is those returning Judite exiles form this province of Judea.
 
-**[[Fr. Andrew]]:** [Listen from 39:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=39:44:00)
+**[[Fr. Andrew]]:** [Listen from [39:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=39:44:00)
 Yeah, it's going to be a province of other people's empires later on.
 
-**[[Fr. Stephen]]:** [Listen from 39:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=39:48:00)
+**[[Fr. Stephen]]:** [Listen from [39:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=39:48:00)
 Right. Right. I I think sometimes people get the impression, maybe, that, you know, that the Persians or the Babylonians or whoever conquered Judea and then walk away with their people and their stuff and it's just sort of left abandoned, and then when the Israelites, you know, when they get to go back home, oh, we've got our own independent country again, you know, like we're we're Israel again. But but no, it's, no, you are allowed to move back into this region that is still conquered, occupied land.
 
-**[[Fr. Stephen]]:** [Listen from 40:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:20:00)
+**[[Fr. Stephen]]:** [Listen from [40:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:20:00)
 Right. And so, now the Greek terms are a little later, not much later, we're going to get to the Greeks here in the, uh, second half, but yeah. Uh, the Greek terms for these ideas, we get the idea of *Ioudaioi*, right, which is the plural.
 
-**[[Fr. Andrew]]:** [Listen from 40:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:36:00)
+**[[Fr. Andrew]]:** [Listen from [40:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:36:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 40:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:37:00)
+**[[Fr. Stephen]]:** [Listen from [40:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:37:00)
 Um, which literally means "Judeans."
 
-**[[Fr. Andrew]]:** [Listen from 40:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:40:00)
+**[[Fr. Andrew]]:** [Listen from [40:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:40:00)
 Yeah, people from that spot.
 
-**[[Fr. Stephen]]:** [Listen from 40:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:43:00)
+**[[Fr. Stephen]]:** [Listen from [40:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:43:00)
 Right, the people of Judea, the people of that province, right? Those people. Um, and that word often gets translated like in English New Testaments as "Jews."
 
-**[[Fr. Andrew]]:** [Listen from 40:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:58:00)
+**[[Fr. Andrew]]:** [Listen from [40:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=40:58:00)
 Yeah, which, I mean, it's a pretty straightforward etymological tour from from that to, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 41:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:00:00)
+**[[Fr. Stephen]]:** [Listen from [41:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:00:00)
 A shortening of Judeans. Although interestingly, I looked up, see, now all these people are going to be mad that I don't have the jingle ready to go because it just occurred to me, but I looked up like what was the term in Old English, because "Jew" ultimately comes through French to Middle English to Modern English, but so Old English, of course, obviously had a term for this because they had the Bible, and it was something like *Iudeisc*, something like that. So, you know, Judah-ish people.
 
-**[[Fr. Stephen]]:** [Listen from 41:34:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:34:00)
+**[[Fr. Stephen]]:** [Listen from [41:34:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:34:00)
 Yeah. You know. Um... Yeah, like, well, like "Judeite," right, if we're going to use, right? Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 41:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:39:00)
+**[[Fr. Andrew]]:** [Listen from [41:39:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:39:00)
 Yeah, yeah, exactly, exactly. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 41:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:41:00)
+**[[Fr. Stephen]]:** [Listen from [41:41:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:41:00)
 Yeah. Um, but then there is also this idea of *Ioudaismos*.
 
-**[[Fr. Andrew]]:** [Listen from 41:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:49:00)
+**[[Fr. Andrew]]:** [Listen from [41:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:49:00)
 Yeah, Judaism.
 
-**[[Fr. Stephen]]:** [Listen from 41:50:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:50:00)
+**[[Fr. Stephen]]:** [Listen from [41:50:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:50:00)
 Which gets transliterated as Judaism.
 
-**[[Fr. Andrew]]:** [Listen from 41:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:54:00)
+**[[Fr. Andrew]]:** [Listen from [41:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:54:00)
 Yes. Okay.
 
-**[[Fr. Stephen]]:** [Listen from 41:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:56:00)
+**[[Fr. Stephen]]:** [Listen from [41:56:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=41:56:00)
 Um, so, uh, and the word *Ioudaioi*, right, that as we said kind of means "Judeans," can get used in two different ways, or does get used in two different ways, right, in subsequent history. Uh, so sometimes, as we said, it's used to mean the people of Judea, that straightforward meaning, right? But sometimes it's used to mean someone who practices *Ioudaismos*.
 
-**[[Fr. Andrew]]:** [Listen from 42:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=42:37:00)
+**[[Fr. Andrew]]:** [Listen from [42:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=42:37:00)
 Yeah, so the people who live the way that those people do.
 
-**[[Fr. Stephen]]:** [Listen from 42:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=42:42:00)
+**[[Fr. Stephen]]:** [Listen from [42:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=42:42:00)
 Right. Right. The people who follow the *nomos* of of Judea, right? So there is a Judean way of life. Right? And way of life, I think, is the best way of describing it. This, of course, is the [[Torah]]. This is the way of life set out by the [[Torah]]. The [[Torah]] is the *nomos* of of the Jewish people, the Judean people. That's why *nomos* is used to translate [[Torah]] in the New Testament.
 
-**[[Fr. Andrew]]:** [Listen from 43:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=43:09:00)
+**[[Fr. Andrew]]:** [Listen from [43:09:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=43:09:00)
 Yeah. And I, I think... And, and I mean, c- correct me if I'm wrong on this, but my, my sense is that that that phenomenon of this group of people who live in this way and yet aren't on their land, that that probably would have been kind of weird to most pagans, right, where there's a sense of this [[god]] rules over this area, so since you're here, you should worship that [[god]] because they're the one in charge here.
 
-**[[Fr. Stephen]]:** [Listen from 43:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=43:40:00)
+**[[Fr. Stephen]]:** [Listen from [43:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=43:40:00)
 Well, or at least incorporate it.
 
-**[[Fr. Andrew]]:** [Listen from 43:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=43:42:00)
+**[[Fr. Andrew]]:** [Listen from [43:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=43:42:00)
 Yeah. Right? Like if you're from Thrace, right, and and you're now living in, you know, uh, Phrygia, right, uh, you would worship both, you know, the gods of your family and your ancestors from Thrace and the the gods of Phrygia.
 
-**[[Fr. Andrew]]:** [Listen from 44:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=44:07:00)
+**[[Fr. Andrew]]:** [Listen from [44:07:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=44:07:00)
 Yeah. Right? Like you would, you would just sort of incorporate those things.
 
-**[[Fr. Andrew]]:** [Listen from 44:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=44:12:00)
+**[[Fr. Andrew]]:** [Listen from [44:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=44:12:00)
 Yeah, because I mean, remember, remember everybody, like we tend to think of this in terms of what we call religion, but to ancient peoples, gods are spiritual rulers. They are [[powers]] that are in your place. You know, so it's not, oh, these are my private convictions, this is what I think, what I feel, whatever. You know, it's like, like imagine you're an expatriate, you know, an expat, you you go live in some other country, you, you okay, you're still a citizen of the United States or wherever, so you might do things like vote, you know, and have that connection with your home country, but you also have to deal with the authorities in the place that you live. Right? So that's much more like the way that what we think of as religion worked in the ancient world. And so then this people that basically say, we have this citizenship, so to speak, that follows us wherever we go, and and no other, that's a little weird for the ancient world.
 
-**[[Fr. Stephen]]:** [Listen from 45:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:12:00)
+**[[Fr. Stephen]]:** [Listen from [45:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:12:00)
 Right. Right. It says that you would not find, right? Like you wouldn't find someone who, uh, yeah, three generations ago his family lived in Athens. For the last three generations, you know, they've lived in, they've lived in Ephesus, but he refuses to celebrate any of the festivals of Ephesus.
 
-**[[Fr. Andrew]]:** [Listen from 45:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:32:00)
+**[[Fr. Andrew]]:** [Listen from [45:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:32:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 45:33:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:33:00)
+**[[Fr. Stephen]]:** [Listen from [45:33:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:33:00)
 Or worship any of the gods of Ephesus. He only worships the Athenian gods and he celebrates the festivals of Athens like by himself with his family at home.
 
-**[[Fr. Andrew]]:** [Listen from 45:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:42:00)
+**[[Fr. Andrew]]:** [Listen from [45:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:42:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 45:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:43:00)
+**[[Fr. Stephen]]:** [Listen from [45:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:43:00)
 That's not a thing.
 
-**[[Fr. Andrew]]:** [Listen from 45:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:44:00)
+**[[Fr. Andrew]]:** [Listen from [45:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:44:00)
 It's not a thing that happened.
 
-**[[Fr. Stephen]]:** [Listen from 45:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:45:00)
+**[[Fr. Stephen]]:** [Listen from [45:45:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:45:00)
 Right? Like... Yeah. Right. Um, but it's... still into Athena and Hephaestus but super into Artemis now as well.
 
-**[[Fr. Stephen]]:** [Listen from 45:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:54:00)
+**[[Fr. Stephen]]:** [Listen from [45:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:54:00)
 Right. And of course, the [[Torah]] includes everything. It is all-encompassing.
 
-**[[Fr. Andrew]]:** [Listen from 45:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:58:00)
+**[[Fr. Andrew]]:** [Listen from [45:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:58:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 45:59:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:59:00)
+**[[Fr. Stephen]]:** [Listen from [45:59:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=45:59:00)
 Right? You can't just boil it down to culture or religion or any of these disparate things. Right? The [[Torah]] covers how you dress, what you eat, where you go and don't go, when you do it, right? And what, and who you worship, how you worship who you worship, everything, right? So keeping [[Torah]], no matter where you are, right, following that nomos, following the Judean way of life, right, which is why they would just refer to you as a Judean. Right? You're still a Judean. You're not really an Athenian, even though you live, have lived in Athens for three generations, you're not really an Athenian. You're still a Judean, right, because you're practicing *Ioudaismos*, you're practicing the Judean way of life still, you're living the Judean way of life. And so the fact that you have all these people and you don't have any kind of transit where these folks can, unless they're just obscenely wealthy somehow, can can go to Jerusalem for every single feast, right, while while living somewhere very distant, right, uh, you also can't really keep [[Torah]] fully all by yourself.
 
-**[[Fr. Andrew]]:** [Listen from 47:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:17:00)
+**[[Fr. Andrew]]:** [Listen from [47:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:17:00)
 Yeah, it requires a group.
 
-**[[Fr. Stephen]]:** [Listen from 47:19:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:19:00)
+**[[Fr. Stephen]]:** [Listen from [47:19:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:19:00)
 Yes, it requires community, right?
 
-**[[Fr. Andrew]]:** [Listen from 47:21:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:21:00)
+**[[Fr. Andrew]]:** [Listen from [47:21:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:21:00)
 Yeah, even today, I think, isn't it the case, I don't know how old this rule is, but don't you have to have 12 Jewish men to have a [[synagogue]]?
 
-**[[Fr. Stephen]]:** [Listen from 47:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:28:00)
+**[[Fr. Stephen]]:** [Listen from [47:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:28:00)
 Oh, you just have to have three. Okay, I couldn't remember. I think you just have to have three adult Jewish men. Yeah. Um...
 
-**[[Fr. Andrew]]:** [Listen from 47:34:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:34:00)
+**[[Fr. Andrew]]:** [Listen from [47:34:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:34:00)
 The internet says 10, but who knows if that's true.
 
-**[[Fr. Stephen]]:** [Listen from 47:35:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:35:00)
+**[[Fr. Stephen]]:** [Listen from [47:35:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=47:35:00)
 But, and, and I think it's kind of presumed that that then includes their families, right? Like... Um... But anyway, and so this is what gives birth to synagogues. You're not gonna see anything about synagogues in the [[Torah]].
 
-**[[Fr. Andrew]]:** [Listen from 48:02:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:02:00)
+**[[Fr. Andrew]]:** [Listen from [48:02:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:02:00)
 No, it doesn't say that that's a thing.
 
-**[[Fr. Stephen]]:** [Listen from 48:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:04:00)
+**[[Fr. Stephen]]:** [Listen from [48:04:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:04:00)
 Or anything about synagogues in the, uh, the rest of the Hebrew Bible.
 
-**[[Fr. Andrew]]:** [Listen from 48:08:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:08:00)
+**[[Fr. Andrew]]:** [Listen from [48:08:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:08:00)
 It's the community center. It's the place where you, you have the scriptures, where you...
 
-**[[Fr. Stephen]]:** [Listen from 48:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:13:00)
+**[[Fr. Stephen]]:** [Listen from [48:13:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:13:00)
 It's the place where you gather. And they're not temples, you don't go there and offer sacrifice like at the [[temple]]. No sacrifices.
 
-**[[Fr. Andrew]]:** [Listen from 48:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:17:00)
+**[[Fr. Andrew]]:** [Listen from [48:17:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:17:00)
 It's teaching, it's reading of the scriptures, it's prayer.
 
-**[[Fr. Stephen]]:** [Listen from 48:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:22:00)
+**[[Fr. Stephen]]:** [Listen from [48:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:22:00)
 Right. Observing the feasts as you can in that place away from the [[temple]]. But see that "as you can" means that once the [[synagogue]] start to be established, you start to develop those "as you can."
 
-**[[Fr. Andrew]]:** [Listen from 48:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:36:00)
+**[[Fr. Andrew]]:** [Listen from [48:36:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:36:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 48:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:37:00)
+**[[Fr. Stephen]]:** [Listen from [48:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:37:00)
 Right? Like we can't do the whole thing with the two goats on the [[Day of Atonement]], right? We're not at the [[temple]].
 
-**[[Fr. Andrew]]:** [Listen from 48:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:42:00)
+**[[Fr. Andrew]]:** [Listen from [48:42:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:42:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 48:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:43:00)
+**[[Fr. Stephen]]:** [Listen from [48:43:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=48:43:00)
 So what do we do on the [[Day of Atonement]] in Athens or Alexandria? Yeah. Right? Well, we're gonna gather together as Jewish people and we're gonna pray the prayers and we're gonna read right about the [[Day of Atonement]], we're gonna repent of our sins, right? That's when these things start developing.
 
-**[[Fr. Andrew]]:** [Listen from 49:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=49:00:00)
+**[[Fr. Andrew]]:** [Listen from [49:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=49:00:00)
 It reminds me in some ways of, I mean, I don't know a huge amount about this, but a little bit, about the the priestless Old Believers from, uh, from Russian [[Orthodox]] history. Well, they still exist, that, you know, they believe that [[God]] takes away the priesthood from the world because of sin and the end of the world is coming and so forth. And and yet they continue to do church services without [[priests]]. So it's essentially a series of reader services, but then they still have to do things like baptize people and marry people and so they kind of develop ways of doing that that sort of still acknowledge that the priesthood is missing and yet, well, life goes on. Life goes on.
 
-**[[Fr. Stephen]]:** [Listen from 49:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=49:40:00)
+**[[Fr. Stephen]]:** [Listen from [49:40:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=49:40:00)
 Yeah. Yeah. And so, but this is important historically, because over the next few centuries, you have a large number of Jewish people all over the world who still are connected in various ways, spiritual, right, emotional, ancestral to Jerusalem and the [[temple]], right? And would all tell you, Jerusalem is the [[temple]], that is the place where [[God]] is, right? They would not deny any of those things. Yeah. But on a practical level, their day-to-day observance of the [[Torah]], their gathering for worship, right, their actual experience of it is very disconnected from the [[temple]].
 
-**[[Fr. Andrew]]:** [Listen from 50:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:24:00)
+**[[Fr. Andrew]]:** [Listen from [50:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:24:00)
 Hm.
 
-**[[Fr. Stephen]]:** [Listen from 50:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:25:00)
+**[[Fr. Stephen]]:** [Listen from [50:25:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:25:00)
 Right? Because they're not physically there. Right? And therefore also, right, functionally, we go from, "How can we sing the songs of [[Zion]] in a foreign land?" to, "We're going to practice the [[Torah]] in a foreign land."
 
-**[[Fr. Andrew]]:** [Listen from 50:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:44:00)
+**[[Fr. Andrew]]:** [Listen from [50:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:44:00)
 Yeah, because you got to live.
 
-**[[Fr. Stephen]]:** [Listen from 50:47:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:47:00)
+**[[Fr. Stephen]]:** [Listen from [50:47:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=50:47:00)
 Which means there develops a disconnect over time, right? In the sense that the land itself and the [[temple]] itself loses the kind of ultimacy that it had during the kingdom period that we talked about in the last episode. Right? The the fact that those were not the ultimate, that those were a sign, that those were pointing to something greater, right, becomes more clear during this period of the synagogues in [[Second Temple]] Judaism. And it allows a segment, admittedly, and we're going to talk more about the [[Pharisees]] in the next half. Um, but it allows at least a significant segment of Jewish people to become effectively prepared for the [[temple]] to go away.
 
-**[[Fr. Andrew]]:** [Listen from 51:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=51:44:00)
+**[[Fr. Andrew]]:** [Listen from [51:44:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=51:44:00)
 Hm.
 
-**[[Fr. Stephen]]:** [Listen from 51:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=51:46:00)
+**[[Fr. Stephen]]:** [Listen from [51:46:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=51:46:00)
 And for returning to the land not even being an option really anymore under the [[Romans]]. Right? That's going to happen, and horrible things are going to happen related to it, but there are going to be people who are prepared sort of for it to happen and to go on because they already know how to go on.
 
-**[[Fr. Andrew]]:** [Listen from 52:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=52:03:00)
+**[[Fr. Andrew]]:** [Listen from [52:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=52:03:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 52:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=52:03:00)
+**[[Fr. Stephen]]:** [Listen from [52:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=52:03:00)
 They've already developed the the [[synagogue]] observances and the things that they need to continue to observe the cycle of feasts and things without a [[temple]]. Um, those things sort of will have happened, right? But that also, at the same time, as we said, because that that sort of breaks a tether to the past, right? This is why when we we talk about religion and we've used this language through the whole history of this show, you have ancient Israelite religion, you have [[Second Temple]] Judaism, and then you have Rabbinic Judaism. Right? Ancient Israelite religion and [[Second Temple]] Judaism are not the same. And this is what we're talking about right now are some of the big significant changes. Because there weren't a ton of Judaites living outside Judah before the exile.
 
-**[[Fr. Andrew]]:** [Listen from 52:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=52:57:00)
+**[[Fr. Andrew]]:** [Listen from [52:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=52:57:00)
 Yeah, it just, yeah. It wasn't thinkable. It wasn't...
 
-**[[Fr. Stephen]]:** [Listen from 53:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:00:00)
+**[[Fr. Stephen]]:** [Listen from [53:00:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:00:00)
 Yeah. Right? Like that wasn't a thing. [[God]] brought them to the land, that was the whole thing. But as we said, that was always pointing forward to something else. And so this breaking of connections, this practical breaking of connections to the past, right, helps reorient these Jewish communities, not just the ones outside Judea, but all of them ultimately, helps reorient them more toward the future.
 
-**[[Fr. Andrew]]:** [Listen from 53:30:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:30:00)
+**[[Fr. Andrew]]:** [Listen from [53:30:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:30:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 53:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:31:00)
+**[[Fr. Stephen]]:** [Listen from [53:31:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:31:00)
 So it's not anymore for a lot of them, again, we're going to talk more about the [[Pharisees]], it's not about we need to get back what we had before the exile. It's we're looking forward still to [[God]] intervening in history and something different coming.
 
-**[[Fr. Andrew]]:** [Listen from 53:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:48:00)
+**[[Fr. Andrew]]:** [Listen from [53:48:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=53:48:00)
 Yeah. I mean, and... Like two things that occur to me is, you know, like it's so alters the way that Judaism works that even in Judea, you get synagogues by the time, you know, you get to the New Testament. There are synagogues in Galilee and stuff that aren't that far away. Even though there's a [[temple]] standing right there. Yeah. Um, but and then also like, I mean so much of this forms the backdrop of the conversation that we just, that we just heard in church on Sunday of [[Christ]] speaking to the Samaritan woman.
 
-**[[Fr. Stephen]]:** [Listen from 54:16:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:16:00)
+**[[Fr. Stephen]]:** [Listen from [54:16:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:16:00)
 Right. You know, like, "Where do you worship?" All of that stuff.
 
-**[[Fr. Stephen]]:** [Listen from 54:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:20:00)
+**[[Fr. Stephen]]:** [Listen from [54:20:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:20:00)
 And we're yeah, we'll get into the Samaritans a little more here in the second half. Yeah. Yeah, and what's been going on with them and their parallel development. Um... Yep. All right, well, that's the first half of this episode of Lord of Spirits. We'll be right back after this break.
 
-**Voiceover:** [Listen from 54:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:37:00)
+**Voiceover:** [Listen from [54:37:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:37:00)
 [[Fr. Andrew]] Stephen Damick and [[Fr. Stephen]] De Young will be back in a moment to take your calls on the next part of the Lord of Spirits. Give them a call at 855-237-2346. That's 855-AF-RADIO.
 
-**Ad:** [Listen from 54:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:58:00)
+**Ad:** [Listen from [54:58:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=54:58:00)
 The centuries after the Protestant Reformation brought about a radical reinterpretation of the Epistles of [[St. Paul]], disconnected from any historical reality. But Paul operated during his entire life as a faithful Pharisee within the Roman Jewish world. In "[[St. Paul]] the Pharisee: Jewish [[Apostle]] to All Nations," [[Fr. Stephen]] De Young surveys Paul's life and writings, interpreting them within the holy tradition of the [[Orthodox]] Church. This survey is followed by De Young's interpretive translation of [[St. Paul]]'s Epistles, which deliberately avoids overly familiar terminology. By using words and ideas grounded in first-century Judaism, De Young hopes to unsettle commonly held notions and help the reader reassess [[St. Paul]] in his historical context. Available now at store.ancientfaith.com. Again, that is store.ancientfaith.com.
 
-**Voiceover:** [Listen from 55:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=55:54:00)
+**Voiceover:** [Listen from [55:54:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=55:54:00)
 We're back now with the Lord of Spirits with [[Fr. Andrew]] Stephen Damick and [[Fr. Stephen]] De Young. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-**[[Fr. Andrew]]:** [Listen from 56:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:11:00)
+**[[Fr. Andrew]]:** [Listen from [56:11:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:11:00)
 Hey, welcome back. It's the second half of the third part of our series, um, on the history of Israel. And, uh, I don't know, did you say something really controversial, Father? Because suddenly we're getting all these phone calls that are coming in. You really...
 
-**[[Fr. Stephen]]:** [Listen from 56:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:28:00)
+**[[Fr. Stephen]]:** [Listen from [56:28:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:28:00)
 Everything I say is controversial. Walking controversy machine.
 
-**[[Fr. Andrew]]:** [Listen from 56:35:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:35:00)
+**[[Fr. Andrew]]:** [Listen from [56:35:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:35:00)
 Yeah. Keeping it hot. All about the spicy takes and vinegar. All right. Well, we're going to take, uh, take our first call. So we have [[David]] calling from Tennessee. [[David]], welcome to the Lord of Spirits podcast. [[Christ]] is risen.
 
-**[[David]]:** [Listen from 56:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:49:00)
+**[[David]]:** [Listen from [56:49:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:49:00)
 Indeed, he is risen.
 
-**[[Fr. Andrew]]:** [Listen from 56:53:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:53:00)
+**[[Fr. Andrew]]:** [Listen from [56:53:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:53:00)
 All right. Are you in the car there, [[David]]? You calling while you're driving?
 
-**[[David]]:** [Listen from 56:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:57:00)
+**[[David]]:** [Listen from [56:57:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=56:57:00)
 Uh, yes, sir. Sorry, I'm I'm on my way out to St. Anthony's monastery right now, so I'm uh, driving.
 
-**[[Fr. Andrew]]:** [Listen from 57:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:03:00)
+**[[Fr. Andrew]]:** [Listen from [57:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:03:00)
 Okay, well, I hope, you know, try not to to die or anything live on the radio, you know, while you're driving. Keep your hands where they need to be, buddy.
 
-**[[David]]:** [Listen from 57:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:12:00)
+**[[David]]:** [Listen from [57:12:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:12:00)
 My hands are at 10 and 2, I promise.
 
-**[[Fr. Andrew]]:** [Listen from 57:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:14:00)
+**[[Fr. Andrew]]:** [Listen from [57:14:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:14:00)
 All right. All right. All right. So... Well, how's it going? What road are you on? So you're driving all the way to St. Anthony's, that's that's a long ways from Tennessee.
 
-**[[David]]:** [Listen from 57:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:24:00)
+**[[David]]:** [Listen from [57:24:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:24:00)
 It is just a little bit. It's about, I don't know, 21 hours total, but I'm only driving to El Paso tonight, so... Only about two more hours, maybe.
 
-**[[Fr. Andrew]]:** [Listen from 57:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:32:00)
+**[[Fr. Andrew]]:** [Listen from [57:32:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:32:00)
 All right. All right. So what's on your mind, [[David]] from Tennessee on the way to Arizona?
 
-**[[Fr. Stephen]]:** [Listen from 57:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:38:00)
+**[[Fr. Stephen]]:** [Listen from [57:38:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:38:00)
 Wow, you are in a you are in a boring part of the country, too. So it was probably a good idea to call in. I think it's real pretty. Oh. Well.
 
-**[[David]]:** [Listen from 57:51:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:51:00)
+**[[David]]:** [Listen from [57:51:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:51:00)
 All the West Texas arid land is very beautiful.
 
-**[[David]]:** [Listen from 57:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:55:00)
+**[[David]]:** [Listen from [57:55:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=57:55:00)
 My my question was basically this. Um, I think it was in 2 [[Maccabees]], um, after I believe the Maccabean revolt, the [[Maccabees]] themselves offered up prayers for their dead, um, to [[God]]. But that was before the harrowing of [[Hades]], so how, how does that fit in with the [[Orthodox]] view of salvation and the harrowing of [[Hades]]?
 
-**[[Fr. Andrew]]:** [Listen from 58:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=58:22:00)
+**[[Fr. Andrew]]:** [Listen from [58:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=58:22:00)
 Oh. Well, I mean, there's a bunch of things that we could say, but I mean, there is already, and for a long time, there's there's a hope in the Hebrew Scriptures of the possibility of being rescued from [[Sheol]]. Like, that is a thing in the [[Psalms]], particularly in in the [[Psalms]] of the Sons of Korah, right? Um, so it's not like that everyone believes, "Well, when you're dead, you're dead," you know. Um, and I I mean, correct me if I'm wrong here, Father, but isn't it also the case there's a sense of, well, they do exist there, and, you know, may [[God]] have mercy on them so that things are maybe not so bad?
 
-**[[Fr. Stephen]]:** [Listen from 59:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=59:03:00)
+**[[Fr. Stephen]]:** [Listen from [59:03:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=59:03:00)
 Yeah. Well, so the the incident he's referring to, um, is, uh, after one of the battles. Yeah. Uh, Judas Maccabeus's men, they go sort of, uh, rifle through the bodies for loot. Yeah, don't they find like these these uh, talismans on some of them or whatever?
 
-**[[Fr. Stephen]]:** [Listen from 59:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=59:22:00)
+**[[Fr. Stephen]]:** [Listen from [59:22:00](https://media.ancientfaith.com/lordofspirits/los_2025-05-08.mp3#t=59:22:00)
 Pagan amulets for protection, which clearly didn't work because they're dead bodies. Um... Yeah. But, uh, so this is, you know, a divination practice, this is forbidden by the [[Torah]]. Um, but so this this is happening in the 160s BC, right? Um, the the Book of the [[Watchers]], for example, in uh, the [[book of Enoch]], that section of the [[book of Enoch]], was written about 100 years before that. And in it describes the dead in [[Hades]] and says that when the day comes that [[God]] intervenes in the world, right, there there are different groups, right? There's the four caves, right? There's the the um, the righteous who are going to be taken into paradise. There's the um, uh, the [[martyrs]] who are going to receive a special reward starting with Abel. There are, uh, the wicked who are going to get tossed into the lake of fire, and there are the sort of ignorant, right, that's your sort of limbo group who are just going to stay in [[Hades]] and [[Sheol]] forever. Um, and so there was already this kind of idea. And so the the the [[Christian]] view of the harrowing of [[Hades]] really grows out of those traditions. The idea that [[Christ]], when he descended into [[Hades]], accomplished that. He sort of did the sort, right? And, and led the righteous into paradise and uh, presumably pronounced doom, right, as [[St. Peter]] says in 1 [[Peter]] on the wicked ones, right? And brought the reward for the [[martyrs]], right? So it's it's [[Christ]] accomplishing that. So they already had, but they already had views like that in mind most likely. And so when they go and offer sacrifices, sin offerings on behalf of those dead soldiers, what they're basically praying and asking [[God]] to do is to reckon those people among the righteous, um, when that time comes.
 
 **[[Fr. Andrew]]:** [Listen from 1:01:38:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lordofspirits_2022-05-25.mp3#t=1:01:38:00)

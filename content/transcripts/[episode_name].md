@@ -17,11 +17,11 @@ The modern world doesn't acknowledge but is nevertheless haunted by spirits, ang
 
 **[[Fr. Andrew]]:** That is true. 7:01.
 
-**[[Fr. Stephen]]:** So as the sun sinks slowly in the west, that means liturgically speaking, it is now your birthday. [Listen from 01:22](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=01:22)
+**[[Fr. Stephen]]:** So as the sun sinks slowly in the west, that means liturgically speaking, it is now your birthday. [Listen from [01:22](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=01:22)
 
 **[[Fr. Andrew]]:** Oh, no.
 
-**[[Fr. Stephen]]:** And this is not just any anniversary of your natal day. This is the one that makes you eligible to join AARP. [Listen from 01:29](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=01:29)
+**[[Fr. Stephen]]:** And this is not just any anniversary of your natal day. This is the one that makes you eligible to join AARP. [Listen from [01:29](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=01:29)
 
 **[[Fr. Andrew]]:** Are you my sponsor? Is that what's going on here?
 
@@ -49,7 +49,7 @@ First, a word from our sponsors. So [[Lord of Spirits]] podcast is brought to yo
 
 **[[Fr. Stephen]]:** Oh, if this is what I think it is, this is the exception, but go ahead.
 
-**[[Fr. Andrew]]:** It might, I don't know. I'm going to just find, I'm going to ask this question. I just want to know because because I don't know, I just have to know. It's one of those things you just have to know. So, so have you seen what as of Tuesday is the most watched movie ever on Netflix, K-Pop Demon Hunters? [Listen from 05:35](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=05:35)
+**[[Fr. Andrew]]:** It might, I don't know. I'm going to just find, I'm going to ask this question. I just want to know because because I don't know, I just have to know. It's one of those things you just have to know. So, so have you seen what as of Tuesday is the most watched movie ever on Netflix, K-Pop Demon Hunters? [Listen from [05:35](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=05:35)
 
 **[[Fr. Stephen]]:** No.
 
@@ -57,7 +57,7 @@ First, a word from our sponsors. So [[Lord of Spirits]] podcast is brought to yo
 
 **[[Fr. Stephen]]:** Animated Asian things. I'm telling you, they're they're not your deal. They're the, yeah, they're the the the missing piece. And this is much to my niece's consternation, by the way.
 
-**[[Fr. Andrew]]:** I'll bet. I've been telling people, I've been telling people, if you do ever find it in your heart to watch this film, I've been telling people that in some ways it's almost like a [[Lord of Spirits]] fan decided to write a movie about K-pop, a K-pop band that that hunts demons and is trying to avoid people getting their souls sucked into a hellmouth. Like that is literally what the plot is about. [Listen from 06:10](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=06:10)
+**[[Fr. Andrew]]:** I'll bet. I've been telling people, I've been telling people, if you do ever find it in your heart to watch this film, I've been telling people that in some ways it's almost like a [[Lord of Spirits]] fan decided to write a movie about K-pop, a K-pop band that that hunts demons and is trying to avoid people getting their souls sucked into a hellmouth. Like that is literally what the plot is about. [Listen from [06:10](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=06:10)
 
 **[[Fr. Stephen]]:** So, and demonization, I mean, I'm also not a big K-pop fan.
 
@@ -115,7 +115,7 @@ First, a word from our sponsors. So [[Lord of Spirits]] podcast is brought to yo
 
 **[[Fr. Andrew]]:** Okay. I got nothing.
 
-**[[Fr. Stephen]]:** So, uh, yeah, and and so that that covenant actually, you know, that starts in in uh [[Numbers]]. Uh, there's there's this weird overlap right now between the Antiochian Men Bible study I'm doing and real time of the Whole Counsel of God Bible study where both of them are in [[Numbers]]. So like I've been talking about this passage all the time for the last month or so. Um, so that that covenant with Phinehas, uh, who is uh Aaron's grandson, right, is essentially that the high priesthood is going to be reckoned through him henceforward, right, and and eternally. And then that gets further refined, uh, around the time of the exile later in the prophetic corpus to being through one of his descendants, uh, Zadok. Uh, and that's why the idea that the restored priesthood would be Zadokite is where the [[Sadducees]] got their their name, the the Zekim, um, the the Zadokites, essentially, even though they were not in any way descended from Zadok. It was pure propaganda uh to try to legitimize their hold on the high priesthood. But if you were listening a few episodes ago, we talked about the Hasmonean period. We talked about that a little bit. Um, but so, uh, all this is going around to, uh, the Zadokite high priesthood was uh, not going to serve in a physical rebuilt temple, but they were going to serve in the temple described in [[Ezekiel]]. And if we understand, as St. [[John]] does in his gospel, and makes pretty explicit, that the temple in [[Ezekiel]] is actually [[Christ]] himself, then we ask ourselves, ourselves, who who is the the Levite, who is the descendant of Levi, the descendant of Phinehas, the descendant of Zadok, who serves [[Christ]] at the temple? And long story short, as St. [[Luke]] sets up in the first chapter of his gospel, it's St. [[John]] the Forerunner. [Listen from 13:37](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=13:37)
+**[[Fr. Stephen]]:** So, uh, yeah, and and so that that covenant actually, you know, that starts in in uh [[Numbers]]. Uh, there's there's this weird overlap right now between the Antiochian Men Bible study I'm doing and real time of the Whole Counsel of God Bible study where both of them are in [[Numbers]]. So like I've been talking about this passage all the time for the last month or so. Um, so that that covenant with Phinehas, uh, who is uh Aaron's grandson, right, is essentially that the high priesthood is going to be reckoned through him henceforward, right, and and eternally. And then that gets further refined, uh, around the time of the exile later in the prophetic corpus to being through one of his descendants, uh, Zadok. Uh, and that's why the idea that the restored priesthood would be Zadokite is where the [[Sadducees]] got their their name, the the Zekim, um, the the Zadokites, essentially, even though they were not in any way descended from Zadok. It was pure propaganda uh to try to legitimize their hold on the high priesthood. But if you were listening a few episodes ago, we talked about the Hasmonean period. We talked about that a little bit. Um, but so, uh, all this is going around to, uh, the Zadokite high priesthood was uh, not going to serve in a physical rebuilt temple, but they were going to serve in the temple described in [[Ezekiel]]. And if we understand, as St. [[John]] does in his gospel, and makes pretty explicit, that the temple in [[Ezekiel]] is actually [[Christ]] himself, then we ask ourselves, ourselves, who who is the the Levite, who is the descendant of Levi, the descendant of Phinehas, the descendant of Zadok, who serves [[Christ]] at the temple? And long story short, as St. [[Luke]] sets up in the first chapter of his gospel, it's St. [[John]] the Forerunner. [Listen from [13:37](https://media.ancientfaith.com/lordofspirits/los_2023-10-26.mp3#t=13:37)
 
 **[[Fr. Andrew]]:** Well, there you go, Dan. Was that a surprise answer or what?
 

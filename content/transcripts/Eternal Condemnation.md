@@ -6,13 +6,13 @@ tags: [lordofspirits]
 
 ## Intro
 
-[Listen from 00:00:17](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=00:00:17)
+[Listen from [00:00:17](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=00:00:17)
 
 > He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]].
 >
 > — [[1 Enoch]], chapter 48, verses 4 through 5
 
-[Listen from 01:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:05:00)
+[Listen from [01:05:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:05:00)
 
 [[Fr. Andrew Stephen Damick]]: Good evening, giant killers, dragon slayers, and serpent stompers. You are listening to the [[Lord of Spirits]] podcast. My co-host, [[Fr. Stephen De Young]], is with me from Lafayette, Louisiana.
 
@@ -34,7 +34,7 @@ tags: [lordofspirits]
 
 ## First Half
 
-[Listen from 03:01:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=03:01:00)
+[Listen from [03:01:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=03:01:00)
 
 [[Fr. Stephen De Young]]: Yeah, the, uh, I think, you know, I I read your little intro thing and I think I got the wrong idea because I have like this tray of successively spicier hot wings in front of me. I thought we were doing that when you said it was a hot one.
 
@@ -60,7 +60,7 @@ tags: [lordofspirits]
 
 [[Fr. Stephen De Young]]: And that's it. The waters have been muddied by people for various reasons. This has been made confusing by certain modern theologians deliberately, not because it's really unclear, but because they don't like what is clear. And so things get muddied, people get confused.
 
-[Listen from 06:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=06:49:00)
+[Listen from [06:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=06:49:00)
 
 [[Fr. Andrew Stephen Damick]]: So that's basically what we're going to start because this idea of going to hell when you die, which is, you know, sort of the idea of damnation that a lot of people have in their heads, is actually not Christian teaching, not really.
 
@@ -70,7 +70,7 @@ tags: [lordofspirits]
 
 [[Fr. Stephen De Young]]: Yes. It also had alliteration, so I really appreciated it. Yeah.
 
-[Listen from 10:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=10:23:00)
+[Listen from [10:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=10:23:00)
 
 [[Fr. Stephen De Young]]: So the first big disambiguation we need to make is between [[Hades]] and [[Hell]], sort of.
 
@@ -82,21 +82,21 @@ tags: [lordofspirits]
 
 [[Fr. Stephen De Young]]: Right. Look at the transition, if anybody still doubts me on this Milton thing, look at the difference between the devil in hell in Milton as romantic figure who'd rather rule in hell than serve in heaven, and the devil in Dante who's the prisoner in the deepest pit.
 
-[Listen from 13:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=13:16:00)
+[Listen from [13:16:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=13:16:00)
 
 [[Fr. Stephen De Young]]: So, [[Hades]], right, [[Hades]], and we talked about this in terms of the cosmic geography of the underworld in our episode Down to [[Hades]]: A Cthonic Odyssey. We talked about the underworld as place with place in scare quotes, because of course what do we mean by place? We don't mean an extension of physical space that you could measure.
 
-[Listen from 15:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=15:13:00)
+[Listen from [15:13:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=15:13:00)
 
 [[Fr. Stephen De Young]]: And we've talked about this in terms of what's called the intermediate state. And the reason it's called the intermediate state, when you're talking about it theologically, is that it's the state of a human soul between their physical death and their bodily resurrection.
 
 [[Fr. Andrew Stephen Damick]]: Yeah, we believe in a two-stage eschatology, as it's sometimes called. There is an eschatology of what happens to you immediately when you die, and then there's an eschatology of the general resurrection and what happens after that.
 
-[Listen from 20:12:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=20:12:00)
+[Listen from [20:12:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=20:12:00)
 
 [[Fr. Stephen De Young]]: [[Paradise]] and [[Hades]] as an experience or as a state in which the soul is... and we've talked before on the show about all the problems of how exactly we could imagine that as embodied beings. Not just accidentally embodied beings, but by nature embodied beings. Right? What that state is like and how one experiences things like time and space when one is no longer embodied. That's not something we can really conceive of. Right? So we use metaphors, but we don't mean that like your Force ghost is sitting around somewhere for years and years and years and years and years waiting for [[Christ]]'s return.
 
-[Listen from 23:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=23:25:00)
+[Listen from [23:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=23:25:00)
 
 [[Fr. Stephen De Young]]: Following [[St. John of Damascus]], our bodily life in this material world in the present age is given to us for repentance. We have mortal bodies so that we can repent. And so beings without mortal bodies—angelic beings, whatever label we want to use for them, whether they're fallen or un-fallen—and humans who have died physically, meaning their their souls have been separated from their body, are not able to repent. And so repentance is sort of confined to this life.
 
@@ -106,11 +106,11 @@ tags: [lordofspirits]
 
 [[Fr. Andrew Stephen Damick]]: Right. Forgiveness is not the opposite of feeling hurt and upset.
 
-[Listen from 31:24:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=31:24:00)
+[Listen from [31:24:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=31:24:00)
 
 [[Fr. Stephen De Young]]: And so repentance, likewise, has been sort of reduced to feeling. "Well, I feel really bad about it." That's repentance.
 
-[Listen from 31:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=31:40:00)
+[Listen from [31:40:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=31:40:00)
 
 [[Fr. Stephen De Young]]: [[Repentance]] is not about how you feel. [[Repentance]] is about when you sin, you do damage to yourself and to other people and to the world around you. And repentance is you doing everything you can to repair the damage you've done and to heal it, both yourself, to other people, and to the world around you. That's what repentance is. That kind of requires a body.
 
@@ -118,7 +118,7 @@ tags: [lordofspirits]
 
 [[Fr. Stephen De Young]]: You have to do stuff. Right? [[Demons]] can't directly do stuff in the world. And humans, after the physical death, can't directly do stuff in the world. They can't go and apologize. They can't make amends. They can't make restitution anymore. Right? That's why we say repentance isn't possible, because of what repentance really is.
 
-[Listen from 33:59:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=33:59:00)
+[Listen from [33:59:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=33:59:00)
 
 [[Fr. Stephen De Young]]: And so, as we've mentioned before in terms of prayers for the departed, right, they're not able to repent, and so in a sense, we repent for them. And so we offer our prayers to [[God]] as instruments that [[God]] can choose to use to grant forgiveness and healing to that person.
 
@@ -126,19 +126,19 @@ tags: [lordofspirits]
 
 ## Second Half
 
-[Listen from 52:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=52:10:00)
+[Listen from [52:10:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=52:10:00)
 
 [[Fr. Stephen De Young]]: We've talked about what happens to people who are in that intermediate state in this age. That's what we're doing the praying for. So it's not about, quote unquote, praying people out of hell if hell is your is means eternal condemnation to you.
 
-[Listen from 52:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=52:50:00)
+[Listen from [52:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=52:50:00)
 
 [[Fr. Stephen De Young]]: So we have to point out, we've tried to be clear here when we use the term "eternal," because of course, as we've mentioned this many times on the show, right, sort of the pop conception of eternity is endless succession of moments in the way that we currently experience time. But as we were talking about earlier in the episode, right, this whole thing about repentance... on a long enough timeline, right, I mean, wouldn't eventually everybody sort of wise up?
 
-[Listen from 54:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=54:07:00)
+[Listen from [54:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=54:07:00)
 
 [[Fr. Stephen De Young]]: What we're talking about when we're talking about universalism is not like the Unitarian Universalists. That's a whole separate thing. We're talking about people who believe in some form of apocatastasis, some form of universal reconciliation to [[God]]. At minimum, this means the idea that all humans will inevitably be reconciled to [[God]] in the age to come.
 
-[Listen from 55:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=55:34:00)
+[Listen from [55:34:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=55:34:00)
 
 [[Fr. Stephen De Young]]: The most infamous, despite recent attempts at rehabilitation, the most infamous proponent of this kind of view, who took it to the extreme point, was of course [[Origen]]. I have what is apparently news for some folks. [[Origen]], specifically on the point of apocatastasis, was condemned at the [[Fifth Ecumenical Council]].
 
@@ -152,11 +152,11 @@ tags: [lordofspirits]
 
 [[Fr. Andrew Stephen Damick]]: Yeah, I mean it is demonstrably, easily, easy to show that the Church for century upon century upon century has not only repeated what it says about the Ecumenical Councils, it has enshrined them in hymnography for I don't know exactly how long, but it's centuries at the very least, probably well over a thousand years. So there are some people who say that the council did not condemn [[Origen]], or that it only said certain kinds of things and not others or whatever. And that later Saint Justinian altered it, right? He pulled a fast one on everybody. And it's been a big mistake for all these 1600 years.
 
-[Listen from 57:42:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=57:42:00)
+[Listen from [57:42:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=57:42:00)
 
 [[Fr. Stephen De Young]]: There are a couple other figures. These are actually saints, unlike [[Origen]], who are pointed to and said to be proponents of apocatastasis. The two primary ones are [[St. Gregory of Nyssa]] and [[St. Isaac the Syrian]]. And so people who reject the church's teaching on this will point to them and say, "Oh, well, see, look, there's these two saints who we're going to say held to some kind of apocatastasis, therefore we can hold to our, albeit different, form of apocatastasis and it's okay."
 
-[Listen from 01:00:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:00:30)
+[Listen from 01:[00:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:00:30)
 
 [[Fr. Stephen De Young]]: Read what it says about the [[God]] of the [[Old Testament]], calling him a monster, calling him the devil. When it was pointed out to him, pointed out to Hart that this made him a [[Marcionite]], his defense was, he doesn't believe the [[Old Testament]] [[God]] exists, so he's not a [[Marcionite]].
 
@@ -164,7 +164,7 @@ tags: [lordofspirits]
 
 [[Fr. Stephen De Young]]: Yes. So where's he getting this? Well, he's beholden to a theological tradition that runs through 18th and 19th century Germany up into the 20th century with guys like Jürgen Moltmann. It is deeply anti-semitic. I know, shocking, 19th century Germans are deeply anti-semitic, but right. It is based on the idea that the [[God]] of the Jews, the [[God]] of the [[Hebrew Bible]], the [[God]] of the [[Old Testament]] is a false god, a pagan god, a deficient [[God]] and not the real [[God]]. And what that requires, right, if you throw out the [[Old Testament]] and then want to reinterpret the [[New Testament]], right, you can't carry over any of those Hebraic notions of who [[God]] is into the [[New Testament]]. So who is [[God]] in liberal theology if we're not going to use the [[God]] of the [[Old Testament]]? Who is the [[God]] in the [[New Testament]]? It's Plato's [[God]]. It's the [[God]] of Greek philosophy because the Greek tradition is a European tradition and not Jewish.
 
-[Listen from 01:03:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:03:30)
+[Listen from 01:[03:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:03:30)
 
 [[Fr. Stephen De Young]]: So yes, I am saying right now, [[David Bentley Hart]], his argument in that book is deeply [[Calvinist]]. It's Calvin by way of [[Karl Barth]], but it's still [[Calvinism]]. [[Karl Barth]] famously said, "Everyone is reprobate in Adam, everyone is elect in [[Christ]]." So this is where this is going. It's [[Calvinism]] where everyone is elect. It's universal election. Right? And this is based on displaying the justice of [[God]]. And as we've said before, when we're talking about penal substitutionary atonement, when we're talking about other related issues, if [[God]] has some standard of good and evil that stands above him, or some standard of justice that stands above him, why aren't we worshipping that?
 
@@ -172,15 +172,15 @@ tags: [lordofspirits]
 
 [[Fr. Stephen De Young]]: Right. This is arguing that [[God]] is subject to necessity, that [[God]] must do something. Namely, he must give eternal life to all of his human creations. And stop, pause for a minute at how patently absurd that is. Because [[God]] created a human, he must share his divine life with that human eternally? He is obligated somehow? So now there is no grace, there is no gift in regard to salvation. It is necessity. There is some old magic, there is some... to which [[God]] is beholden, right? This is absurd.
 
-[Listen from 01:09:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:09:07)
+[Listen from 01:[09:07:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:09:07)
 
 [[Fr. Stephen De Young]]: [[Universalism]] may end up being true, in the sense that every person might be [saved]. But you can't be a universalist. It is a sin to embrace the heresy of universalism, even if it turns out to be true. And again, this is about yourself. We do not as Orthodox Christians and the Church does not teach that you must accept that some particular person whom you loved is going to face eternal condemnation. Because the Church hasn't said that that person is under eternal condemnation or will be under eternal condemnation. Even being anathematized, even being condemned like [[Origen]] by an ecumenical council, doesn't say that he is going to face eternal condemnation. That judgment is up to [[Christ]] at the [[Last Judgment]].
 
-[Listen from 01:15:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:15:35)
+[Listen from 01:[15:35:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:15:35)
 
 [[Fr. Andrew Stephen Damick]]: As [[St. Silouan the Athonite]] famously said, "Understand two thoughts and fear them. One says, 'You are a saint.' The other, 'You won't be saved.' Both of these thoughts are from the enemy, and there is no truth in them. But think this way, 'I am a great sinner, but the Lord is merciful. He loves people very much, and he will forgive my sins.'"
 
-[Listen from 01:18:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:18:28)
+[Listen from 01:[18:28:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:18:28)
 
 [[Fr. Andrew Stephen Damick]]: So, you know, as as [[Fr. Stephen]] said, we we don't know, we don't know how many or if any actually will be eternally condemned. And [[God]] forbid. Like, I find it really reprehensible sometimes when certain people say that if you believe in eternal condemnation as it's laid out in the scripture and church fathers and so forth, that means you want the idea of people suffering. Excuse me. False. Utterly false. The fact that I believe that frightening things are true does not mean I want them to be true. Something is true whether or not I want it to be true. That's part of why it's true. But the whole Christian life, it's not that it's about trying to avoid eternal condemnation. But that is one of the things that's included in the broad, comprehensive, complicated, and endlessly fascinating image that the scriptures and the whole Orthodox tradition present in order for us to fix our eyes on [[Christ]] and to press forward to the prize of the high calling of [[God]], as the [[Apostle Paul]] said. Maybe you don't need to think about eternal condemnation in order to do that. But you know, some of the saints who are the holiest people, like the holiest people who really knew [[God]] and really loved him, that was part of their toolkit of salvation. If [[St. Paisios]] uses that as part of his toolkit of salvation, then who am I to think that I don't need that? I'm nobody. I'm nothing like him in terms of sanctity. And so if he needs it, then how much more do I need it? And it's not because I want to dwell on darkness and gashing of teeth and lake of fire or whatever. But it's I need to know that there's this boundary that exists there. There's a boundary. And unless I keep vigilant, I could be potentially tossed over it.
 
@@ -190,69 +190,69 @@ tags: [lordofspirits]
 
 ### [[Daniel]].md
 
-- **[[Daniel 7]]**: [Listen from 58:16](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=58:16). [[Fr. Stephen]] discusses the biblical imagery for eternal condemnation, noting that while the "lake of fire" is not in the [[Old Testament]], [[Daniel]] 7 describes a "river of fire" at the judgment. This is distinct from, but possibly related to, the later image of the lake of fire which may be where the river pools.
+- **[[Daniel 7]]**: [Listen from [58:16](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=58:16). [[Fr. Stephen]] discusses the biblical imagery for eternal condemnation, noting that while the "lake of fire" is not in the [[Old Testament]], [[Daniel]] 7 describes a "river of fire" at the judgment. This is distinct from, but possibly related to, the later image of the lake of fire which may be where the river pools.
 
 ### [[Deuteronomy]].md
 
-- **[[Deuteronomy 30:15-20]]**: [Listen from 01:18:06](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:18:06). [[Fr. Stephen]] offers this passage as a clear summary of the choice set before humanity. The choice is presented as life and good versus death and evil, with the command to choose life by loving [[God]] and keeping his commandments, which is the path to blessing.
+- **[[Deuteronomy 30:15-20]]**: [Listen from [01:18:06](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:18:06). [[Fr. Stephen]] offers this passage as a clear summary of the choice set before humanity. The choice is presented as life and good versus death and evil, with the command to choose life by loving [[God]] and keeping his commandments, which is the path to blessing.
     > "See, I have set before you today life and good, death and evil... I call heaven and earth to witness against you today, that I have set before you life and death, blessing and curse. Therefore choose life, that you and your offspring may live, loving the Lord your [[God]], obeying his voice and holding fast to him, for he is your life and length of days."
 
 ### [[Isaiah]].md
 
-- **[[Isaiah 6]]**: [Listen from 32:42](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=32:42). [[Fr. Stephen]] explains that the fire of [[God]]'s presence is experienced differently based on one's state. For [[Isaiah]], coming into [[God]]'s presence, he cries out "I am undone," showing the painful and terrifying aspect of [[God]]'s holiness for a sinner, even a righteous one.
+- **[[Isaiah 6]]**: [Listen from [32:42](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=32:42). [[Fr. Stephen]] explains that the fire of [[God]]'s presence is experienced differently based on one's state. For [[Isaiah]], coming into [[God]]'s presence, he cries out "I am undone," showing the painful and terrifying aspect of [[God]]'s holiness for a sinner, even a righteous one.
 
-- **[[Isaiah 24:21]]**: [Listen from 47:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:35). [[Fr. Andrew]] reads this verse to show the purification of the heavens. It describes the Lord punishing the "host of heaven in heaven" and the kings of the earth, indicating a judgment upon both spiritual and earthly powers.
+- **[[Isaiah 24:21]]**: [Listen from [47:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:35). [[Fr. Andrew]] reads this verse to show the purification of the heavens. It describes the Lord punishing the "host of heaven in heaven" and the kings of the earth, indicating a judgment upon both spiritual and earthly powers.
 
 ### [[John]].md
 
-- **[[John 5:24-29]]**: [Listen from 01:25:28](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:25:28). [[Fr. Andrew]] reads this passage, often used in Orthodox funerals, to describe the two-fold resurrection. [[Christ]] states that all in the tombs will hear his voice and come out, some to the resurrection of life and others to the resurrection of judgment/damnation, presenting these as two distinct and parallel eternal outcomes.
+- **[[John 5:24-29]]**: [Listen from [01:25:28](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:25:28). [[Fr. Andrew]] reads this passage, often used in Orthodox funerals, to describe the two-fold resurrection. [[Christ]] states that all in the tombs will hear his voice and come out, some to the resurrection of life and others to the resurrection of judgment/damnation, presenting these as two distinct and parallel eternal outcomes.
 
 ### [[Leviticus]].md
 
-- **[[Leviticus 10]]**: [Listen from 32:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=32:00). [[Fr. Stephen]] references the story of Nadab and Abihu to illustrate the destructive nature of [[God]]'s holiness when approached improperly. The fire that consumes them comes from [[God]]'s presence, showing that the same divine reality can be life-giving or death-dealing depending on one's state.
+- **[[Leviticus 10]]**: [Listen from [32:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=32:00). [[Fr. Stephen]] references the story of Nadab and Abihu to illustrate the destructive nature of [[God]]'s holiness when approached improperly. The fire that consumes them comes from [[God]]'s presence, showing that the same divine reality can be life-giving or death-dealing depending on one's state.
 
 ### [[Luke]].md
 
-- **[[Luke 16]]**: [Listen from 13:53](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=13:53). [[Fr. Stephen]] refers to the parable of the Rich Man and Lazarus as reflecting the concepts of [[Hades]] found in [[Second Temple]] literature like [[1 Enoch]]. The different states of comfort (Abraham's bosom) and torment within [[Hades]] are shown, prefiguring the ultimate destinies after the resurrection.
+- **[[Luke 16]]**: [Listen from [13:53](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=13:53). [[Fr. Stephen]] refers to the parable of the Rich Man and Lazarus as reflecting the concepts of [[Hades]] found in [[Second Temple]] literature like [[1 Enoch]]. The different states of comfort (Abraham's bosom) and torment within [[Hades]] are shown, prefiguring the ultimate destinies after the resurrection.
 
 ### [[Matthew]].md
 
-- **[[Matthew 8:12]]**: [Listen from 47:07](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:07). [[Fr. Stephen]] references this verse as one of the places where the image of "outer darkness" with "weeping and gnashing of teeth" appears. He explains that "gnashing of teeth" in this context signifies madness and rage, not merely pain.
+- **[[Matthew 8:12]]**: [Listen from [47:07](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:07). [[Fr. Stephen]] references this verse as one of the places where the image of "outer darkness" with "weeping and gnashing of teeth" appears. He explains that "gnashing of teeth" in this context signifies madness and rage, not merely pain.
 
-- **[[Matthew 22:13]]**: [Listen from 47:07](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:07). This is another verse cited by [[Fr. Stephen]] using the imagery of "outer darkness" to describe the state of condemnation. This state is characterized by "weeping and gnashing of teeth," which he interprets as a state of madness.
+- **[[Matthew 22:13]]**: [Listen from [47:07](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:07). This is another verse cited by [[Fr. Stephen]] using the imagery of "outer darkness" to describe the state of condemnation. This state is characterized by "weeping and gnashing of teeth," which he interprets as a state of madness.
 
-- **[[Matthew 25:30]]**: [Listen from 47:07](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:07). [[Fr. Stephen]] includes this verse as a third example of the "outer darkness" imagery for damnation. He emphasizes that the associated "gnashing of teeth" is an expression of madness and uncontrolled rage rather than just suffering.
+- **[[Matthew 25:30]]**: [Listen from [47:07](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=47:07). [[Fr. Stephen]] includes this verse as a third example of the "outer darkness" imagery for damnation. He emphasizes that the associated "gnashing of teeth" is an expression of madness and uncontrolled rage rather than just suffering.
 
-- **[[Matthew 25:41]]**: [Listen from 41:25](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=41:25). [[Fr. Andrew]] reads from the parable of the Sheep and the Goats, where [[Christ]] sentences the goats to the "eternal fire prepared for the devil and his angels." This is significant because it indicates the fire was not originally intended for humans.
+- **[[Matthew 25:41]]**: [Listen from [41:25](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=41:25). [[Fr. Andrew]] reads from the parable of the Sheep and the Goats, where [[Christ]] sentences the goats to the "eternal fire prepared for the devil and his angels." This is significant because it indicates the fire was not originally intended for humans.
 
-- **[[Matthew 25:46]]**: [Listen from 01:26:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:26:35). [[Fr. Stephen]] quotes the end of the parable of the Sheep and the Goats, "These will go away into eternal punishment, but the righteous into eternal life." He points out the parallel structure, where the same word for "eternal" is used for both punishment and life, making it difficult to argue that one is temporary while the other is not.
+- **[[Matthew 25:46]]**: [Listen from [01:26:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:26:35). [[Fr. Stephen]] quotes the end of the parable of the Sheep and the Goats, "These will go away into eternal punishment, but the righteous into eternal life." He points out the parallel structure, where the same word for "eternal" is used for both punishment and life, making it difficult to argue that one is temporary while the other is not.
 
 ### [[Revelation]].md
 
-- **[[Revelation 2:11]]**: [Listen from 51:29](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=51:29). [[Fr. Stephen]] mentions this as one of the passages that uses the term "the second death." This is contrasted with physical death, referring instead to eternal spiritual death or condemnation.
+- **[[Revelation 2:11]]**: [Listen from [51:29](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=51:29). [[Fr. Stephen]] mentions this as one of the passages that uses the term "the second death." This is contrasted with physical death, referring instead to eternal spiritual death or condemnation.
 
-- **[[Revelation 19:20]]**: [Listen from 40:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=40:35). [[Fr. Stephen]] cites this passage to show who is thrown into the lake of fire. It states that "the beast" and "the false prophet" are cast into it, showing its primary purpose as a place of punishment for demonic powers.
+- **[[Revelation 19:20]]**: [Listen from [40:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=40:35). [[Fr. Stephen]] cites this passage to show who is thrown into the lake of fire. It states that "the beast" and "the false prophet" are cast into it, showing its primary purpose as a place of punishment for demonic powers.
 
-- **[[Revelation 20:6]]**: [Listen from 51:29](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=51:29). [[Fr. Stephen]] refers to this verse as another instance of the term "the second death." The passage describes those who have part in the first resurrection as being immune to the power of the second death.
+- **[[Revelation 20:6]]**: [Listen from [51:29](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=51:29). [[Fr. Stephen]] refers to this verse as another instance of the term "the second death." The passage describes those who have part in the first resurrection as being immune to the power of the second death.
 
-- **[[Revelation 20:10]]**: [Listen from 40:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=40:35). This verse is referenced by [[Fr. Stephen]] to describe the fate of the devil. The devil is thrown into the lake of fire and sulfur where the beast and false prophet are, and they are "tormented day and night forever and ever."
+- **[[Revelation 20:10]]**: [Listen from [40:35](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=40:35). This verse is referenced by [[Fr. Stephen]] to describe the fate of the devil. The devil is thrown into the lake of fire and sulfur where the beast and false prophet are, and they are "tormented day and night forever and ever."
 
-- **[[Revelation 20:14-15]]**: [Listen from 38:05](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=38:05). [[Fr. Stephen]] quotes this passage: "Then [[Death]] and [[Hades]] were thrown into the lake of fire. This is the second death, the lake of fire." This signifies the end of the intermediate state ([[Hades]]) and death itself at the last judgment, with the lake of fire representing the final state of condemnation.
+- **[[Revelation 20:14-15]]**: [Listen from [38:05](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=38:05). [[Fr. Stephen]] quotes this passage: "Then [[Death]] and [[Hades]] were thrown into the lake of fire. This is the second death, the lake of fire." This signifies the end of the intermediate state ([[Hades]]) and death itself at the last judgment, with the lake of fire representing the final state of condemnation.
 
-- **[[Revelation 21:8]]**: [Listen from 51:29](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=51:29). This passage is used by [[Fr. Stephen]] to show that "the second death" is identified with the lake of fire and is the inheritance of the wicked. It explicitly lists those whose portion will be in the lake that burns with fire and sulfur.
+- **[[Revelation 21:8]]**: [Listen from [51:29](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=51:29). This passage is used by [[Fr. Stephen]] to show that "the second death" is identified with the lake of fire and is the inheritance of the wicked. It explicitly lists those whose portion will be in the lake that burns with fire and sulfur.
 
 ## Core Theological Concepts
 
 ### Damnation - [[Hell]]
 
 #### [[Eternal Condemnation]]
-[Listen from 01:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:49:00)
+[Listen from [01:49:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:49:00)
 
 [[Fr. Andrew]] introduces the topic of damnation, noting its prevalence in "pop theology" with various conflicting ideas: everyone is born going to hell, a simple good/bad dichotomy for heaven/hell, or the idea that hell is temporary. The episode aims to clarify the Orthodox Christian teaching on eternal condemnation based on Scripture and Tradition.
 
 **Disambiguating [[Hades]] and [[Hell]]**
 
-[Listen from 10:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=10:23:00)
+[Listen from [10:23:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=10:23:00)
 
 [[Fr. Stephen]] and [[Fr. Andrew]] distinguish between [[Hades]] and what is commonly called [[Hell]] ([[Gehenna]], the [[Lake of Fire]]).
 
@@ -264,13 +264,13 @@ tags: [lordofspirits]
 
 **[[Repentance]] and Divine Necessity**
 
-[Listen from 23:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=23:25:00)
+[Listen from [23:25:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=23:25:00)
 
 The fathers, particularly [[St. John of Damascus]], teach that this life, in our mortal bodies, is the time for repentance. [[Repentance]] is not merely a feeling of regret but the active work of repairing the damage caused by sin. Because this requires a body and action in the material world, it is not possible for bodiless souls in the intermediate state or for demons.
 
 **[[Universalism]] ([[Apokatastasis]]) and [[Annihilationism]]**
 
-[Listen from 52:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=52:50:00)
+[Listen from [52:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=52:50:00)
 
 The episode strongly refutes two alternative views to eternal condemnation:
 
@@ -279,17 +279,17 @@ The episode strongly refutes two alternative views to eternal condemnation:
 
 [[Fr. Stephen]] clarifies the Orthodox position:
 > It could turn out in the end, on the day of judgment, that every human being is reconciled to [[God]]. Now, does that contradict everything we've just said? No. If you think it does, you haven't been listening clearly. Because the problem that was condemned about apocatastasis is the idea of necessity and inevitability... We don't counter the idea that [[God]] is required to reconcile everything to himself with the idea that [[God]] is required to not reconcile some things to himself. We counter it with the idea that [[God]] is completely free.
-[Listen from 01:22:38](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:22:38)
+[Listen from [01:22:38](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=01:22:38)
 
 The possibility of eternal condemnation is a necessary teaching because it underscores the reality of human choice and the gravity of sin, motivating us toward repentance and the pursuit of eternal life, which is to become like [[Christ]].
 
 ### Targums - Enochic Literature
 
 #### [[Eternal Condemnation]]
-[Listen from 13:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=13:30:00)
+[Listen from [13:30:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=13:30:00)
 
 [[Fr. Stephen De Young]] explains that the [[New Testament]] understanding of [[Hades]] is informed by [[Second Temple]] literature, such as the [[Book of Enoch]]. He references the schema in [[1 Enoch]] of four caves in the underworld for different categories of the dead: the martyrs, the righteous, the ignorant, and the wicked. This parallels the description in the parable of the Rich Man and Lazarus, where there are different states of being within [[Hades]].
 
-[Listen from 38:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=38:50:00)
+[Listen from [38:50:00](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=38:50:00)
 
 [[Fr. Stephen]] notes that the imagery of the "lake of fire," prominent in the Book of [[Revelation]], is also found in [[1 Enoch]]. In Enochic literature, the lake of fire is the place where the rebellious [[Watchers]] are punished for their sin. This context helps clarify that the lake of fire in the [[New Testament]] is primarily understood as the place of punishment for demonic powers.

@@ -6,35 +6,35 @@ tags: [lordofspirits]
 
 **[[Fr. Andrew Stephen Damick]]:** Welcome back to the [[Lord of Spirits]] podcast. My co-host, [[Fr. Stephen De Young]], is with me from Lafayette, Louisiana, and I am [[Fr. Andrew Stephen Damick]] in Emmaus, Pennsylvania. If you're listening to us live, you can call in at 855-AF-RADIO; that's 855-237-2346, and Matushka Trudi will be taking your calls tonight, and we'll get to your calls in the second part of today's show.
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:30](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=01:30:57)
+**[[Fr. Stephen De Young]]:** [Listen from [01:30](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=01:30:57)
 So [[Lord of Spirits]] is brought to you by our listeners, with help from [[St. Athanasius]] Academy of Orthodox Theology. [[St. Athanasius]] is an online academy for kindergarten through 12th grade, offering live classrooms in core subjects, foreign languages, various electives, and Orthodox studies. To learn more about [[St. Athanasius]] Academy, please visit www.saot.edu.
 
-**[[Fr. Stephen De Young]]:** [Listen from 01:57](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=01:57:42)
+**[[Fr. Stephen De Young]]:** [Listen from [01:57](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=01:57:42)
 And let me let me add, I want to assure everyone. I I talked to Deacon Adam over at the [[St. Athanasius]] Academy, and he assured me that when you go and you take courses from them, he is not going to use your tuition money to launch himself into space.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:13:06)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:13:06)
 Hey. So you don't have to worry about that. That is a big bonus.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:18](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:18:14)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:18](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:18:14)
 Yeah, I mean, that's what I'm looking for in online education for my children.
 
-**[[Fr. Stephen De Young]]:** [Listen from 02:23](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:23:07)
+**[[Fr. Stephen De Young]]:** [Listen from [02:23](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:23:07)
 Yeah, you don't want people just using that money to go to space.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 02:26](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:26:45)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [02:26](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:26:45)
 Right, right. So we know that when we titled this episode "[[Apocalypse]] Now and Then," a lot of people got excited that we were going to talk about the end of the world. We know it. And you know, it's great. Starts with an earthquake, birds, snakes, airplanes. But that's not actually what this episode is about. [[Apocalypse]] isn't actually just a word that means the end of the world. Turns out to be a biblical genre.
 
-But before we get to that, and you know we always take a while to get where we're going, we want to back up to our previous episode on the nous because this episode is its sequel. [Listen from 02:56](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:56:48) And we got a lot of questions about thoughts from our last episode, and the one that kept coming up was this one: Does the idea that all of our thoughts coming from outside mean that every single thing we think is being whispered to us by God, an angel, or a demon?
+But before we get to that, and you know we always take a while to get where we're going, we want to back up to our previous episode on the nous because this episode is its sequel. [Listen from [02:56](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=02:56:48) And we got a lot of questions about thoughts from our last episode, and the one that kept coming up was this one: Does the idea that all of our thoughts coming from outside mean that every single thing we think is being whispered to us by God, an angel, or a demon?
 
 So, [[Fr. Stephen]], is that what we meant?
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:22](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:22:80)
+**[[Fr. Stephen De Young]]:** [Listen from [03:22](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:22:80)
 No.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 03:24](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:24:25)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [03:24](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:24:25)
 No. Yes. All right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:26](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:26:08)
+**[[Fr. Stephen De Young]]:** [Listen from [03:26](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:26:08)
 I mean, no, yes. No, yes. Right. No, not yes.
 
 **[[Fr. Andrew Stephen Damick]]:** You're confusing everyone.
@@ -43,144 +43,144 @@ I mean, no, yes. No, yes. Right. No, not yes.
 
 **[[Fr. Andrew Stephen Damick]]:** Okay, there we go.
 
-**[[Fr. Stephen De Young]]:** [Listen from 03:36](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:36:51)
+**[[Fr. Stephen De Young]]:** [Listen from [03:36](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=03:36:51)
 Yeah, for the transcript. Yeah, clarify. Right, yes. Uh, and everyone, hopefully, you've marked on your bingo cards we're about to back up to something we talked about last time to clarify it here at the beginning of this episode. So that's a free spot for everybody.
 
 Yeah, so the stuff we were talking about last time was a little bit complicated, maybe. A little bit in-depth. Uh, so, uh, now we're going to just throw everyone in the deep end at the beginning of this episode as we sort of clarify where we ended up last time.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:13:30)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:13:30)
 You know, when you said complicated, I started forming an Avril Lavigne-related joke in my head, but it just didn't quite get there. So...
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:21](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:21:95)
+**[[Fr. Stephen De Young]]:** [Listen from [04:21](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:21:95)
 Like the original Avril Lavigne or the fake crisis actor Avril Lavigne who has taken her place? Yeah.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:31](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:31:85)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:31](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:31:85)
 We should have a doppelganger episode. There we go.
 
-**[[Fr. Stephen De Young]]:** [Listen from 04:37](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:37:39)
+**[[Fr. Stephen De Young]]:** [Listen from [04:37](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:37:39)
 So, uh, to start with, and believe it or not, uh, this is hopefully going to help clarify what what we were talking about last time with the nous. Uh, we're going to start by talking about pre-reflective consciousness.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 04:51](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:51:71)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [04:51](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=04:51:71)
 When I woke up this morning, I said to myself, "Today I want to talk about pre-reflective consciousness."
 
 **[[Fr. Stephen De Young]]:** But then you'd already reflected, and so it was all over. Self-defeating.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:04](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=05:04:17)
+**[[Fr. Stephen De Young]]:** [Listen from [05:04](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=05:04:17)
 So...
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 05:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=05:05:43)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [05:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=05:05:43)
 So okay, so what what does that mean for those of us who are not, you know, reading the latest in in, uh, psychological... I don't even know the right noun for this, but yes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 05:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=05:17:15)
+**[[Fr. Stephen De Young]]:** [Listen from [05:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=05:17:15)
 Existential psychology and phenomenology. Yeah. Correct. Yes. Right. So, right. So this is this is another way of talking about uh, what we were talking about last time with the nous, uh, in terms of a point of attention, right? Uh, and the nous is a sensory organ and a point of attention or a point of focus. Uh, but the the term "pre-reflective consciousness" is talking about, it's pre-reflective because it's sort of this this level of consciousness before you get to thoughts. That's the pre-reflective, right? Before you get to the actual thoughts, before you get to the stream of consciousness.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 06:01](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:01:97)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [06:01](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:01:97)
 Yeah, this sort of kind of direct apprehension. You know, where you don't have to think about something in order to get it. You just sort of receive it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:12](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:12:20)
+**[[Fr. Stephen De Young]]:** [Listen from [06:12](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:12:20)
 Yeah. Yeah. I all of a sudden, I was about to use the term "fundamental apperception," but I realized that would not help. So, but too late. I already did it.
 
 **[[Fr. Andrew Stephen Damick]]:** Come on, I'm barely getting this stuff, so.
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:24](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:24:90)
+**[[Fr. Stephen De Young]]:** [Listen from [06:24](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:24:90)
 Right. So, this is going back to, that stream of consciousness is not you, right? And so when we talk about pre-reflective consciousness, we mean that this point of attention is back before that, which the important part of that is that that means you can focus it on, or your mind can look at, or your mind can consider, whatever language you want to use for this, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Contemplate maybe?
 
-**[[Fr. Stephen De Young]]:** [Listen from 06:47](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:47:82)
+**[[Fr. Stephen De Young]]:** [Listen from [06:47](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=06:47:82)
 Yourself. Right? You can contemplate yourself. And so that means the nous, this this kind of consciousness we're talking about has to be sort of before yourself so that you can look at and think about yourself as an object and come to know yourself. Right? So it's possible to live in an unreflective way and not know yourself, or not know yourself very well.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 07:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=07:17:80)
+**[[Fr. Stephen De Young]]:** [Listen from [07:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=07:17:80)
 Right? And this is this is something that's sort of a constant in both ancient philosophical literature and ancient uh Christian literature is the idea of coming to know oneself. Hm. Uh, that that's the beginning of knowledge, right? Is to is to come to know your own soul and your own self. And so the nous has again, has to be prior to that. It can't be when we say, "I am thinking," right? Uh, the I is our self. So that means we're starting with ourself, we're not thinking about ourself. Right? And then we're talking about, you know, something then related to ourselves. And so when we talk about the nous, this is back behind our sense of ourself.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 08:06](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=08:06:95)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [08:06](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=08:06:95)
 Yeah, so like for instance, you know, I've had a lot of pastoral conversations in which I might say something like, "Listen to your own thoughts." So if you're listening to your thoughts, you're observing your thoughts, whatever, you aren't, you know, your thoughts aren't thinking, aren't thinking your thoughts. You're thinking your thoughts. There's a you that can that can observe the thoughts. You know, that can actually kind of, it's not dissociative exactly, but but you realize that they are not, they are not you, you know. Um, I think that's, that's that's my understanding of what of what we're talking about now.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:45](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=08:45:30)
+**[[Fr. Stephen De Young]]:** [Listen from [08:45](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=08:45:30)
 Right. And and and so then you can also think about you. You can think about yourself.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 08:50](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=08:50:50)
+**[[Fr. Stephen De Young]]:** [Listen from [08:50](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=08:50:50)
 Right. Right. And to use an analogy, right? If you have a weird feeling in your gut, right? You can sit there and think about, what is going on in my gut? Right? And try to ponder what's happening. This is the same kind of thing but in your mind or in your soul.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 09:10](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=09:10:14)
+**[[Fr. Stephen De Young]]:** [Listen from [09:10](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=09:10:14)
 Right? That you can say, what is going on in my mind? Right? What is going on in my soul? Um, because there's there's this, there's this pre-reflective level of consciousness, the nous is separate. And this is this is also what's being talked about. We had a call last time where we got into a little bit whether the spirit and the soul are different things. And we talked about how some of the fathers, they're sort of used as being the same thing, just referring to the immaterial part of a person. Um, and then other fathers, there seems to be a distinction. And so when there's a distinction, the spirit is referring to this, to the nous, to the noetic part of a human person.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 10:00](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=10:00:81)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [10:00](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=10:00:81)
 Right, because sometimes spirit and soul are used as basically synonyms.
 
-**[[Fr. Stephen De Young]]:** [Listen from 10:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=10:05:37)
+**[[Fr. Stephen De Young]]:** [Listen from [10:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=10:05:37)
 Right. It's just all, it's just all lumped together.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 10:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=10:09:44)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [10:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=10:09:44)
 Yeah, right. Because yeah, some of the fathers talk about body and soul, some talk about body, soul, and spirit as three, you know, separate things. Yeah, and and, you know, I think it's, well, number one, it's important to to realize that even though we're talking about this stuff in this way, obviously we're not necessarily using strictly biblical terminology because the Bible doesn't talk in this way. But it does, it it does speak in a way that is evincing the same, uh, the same things we're discussing. So, for instance, in the [[Psalms]] where, uh, the the the the writer addresses his own soul. Right? Oh my soul, my soul. You know? And I mean, we have, you know, we have lots of church hymns like that. You know, the the big one from the Great Canon of St. Andrew of Crete, the Kontakion, my soul, my soul arise. You know? Or, you know, in the [[Psalms]], bless the Lord, oh my soul. Right? And you know, so much of what we talk about on this show is about kind of saying, okay, what if what's in the scriptures is not always a metaphor, like we seem to so often take it as being? You know? What if you actually can talk to your soul? What if you can observe your soul? You know? What if it's not quite the same thing as the you? Right?
 
 Um, and of course, that means that, uh, you know, Descartes' famous dictum, "cogito, ergo sum," I think, therefore I am, is actually wrong because you're not your thoughts. You're not your thoughts and thinking is not what makes you you.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:45](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:45:07)
+**[[Fr. Stephen De Young]]:** [Listen from [11:45](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:45:07)
 By the way, do you do you know how he died?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 11:47](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:47:33)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [11:47](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:47:33)
 I do not remember how he died.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:49](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:49:28)
+**[[Fr. Stephen De Young]]:** [Listen from [11:49](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:49:28)
 He was trampled by a horse.
 
 **[[Fr. Andrew Stephen Damick]]:** Wow.
 
-**[[Fr. Stephen De Young]]:** [Listen from 11:53](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:53:50)
+**[[Fr. Stephen De Young]]:** [Listen from [11:53](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:53:50)
 It is true. And that is the origin of the saying, never put Descartes before de horse.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 11:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:58:81)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [11:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=11:58:81)
 Oh, man. I I thought I was walking into something, but that's okay. Now I'm going to look up on Wikipedia to find out how he really did die.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:08](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:08:44)
+**[[Fr. Stephen De Young]]:** [Listen from [12:08](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:08:44)
 He did really die. He was really trampled.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:09:86)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:09:86)
 Oh man. Wow, okay. So at least it is a well-founded joke then.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:13:90)
+**[[Fr. Stephen De Young]]:** [Listen from [12:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:13:90)
 Yeah. So yeah, just a certain irony. But, but right. And yeah, as as you said, you know, and this is something the church fathers said very quickly, right? They said, you know, in order to, in our Greek language, describe what's going on in the scriptures, we sometimes have to use terms that are not themselves in the scriptures.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 12:38](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:38:00)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [12:38](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:38:00)
 Yeah, right, right, exactly.
 
-**[[Fr. Stephen De Young]]:** [Listen from 12:39](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:39:62)
+**[[Fr. Stephen De Young]]:** [Listen from [12:39](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=12:39:62)
 And that doesn't mean you're importing theology or you're importing uh philosophy that's foreign to Christianity just because those terms are used right in in uh philosophy per se. Uh this is one of the common misconceptions about the church fathers by a lot of our friends. Yeah. Um mostly our non-orthodox friends, but even some of our Orthodox friends. Um that they just brought in all of this Greek philosophy um rather than just, you know, they're using the Greek language.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 13:16](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=13:16:11)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [13:16](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=13:16:11)
 Yeah, there's, I mean, for those who have that, for those who are receiving that thought, uh there is a wonderful book called Christianity and Classical Culture by um Yaroslav Pelikan, which addresses this very directly and actually he shows how the church fathers take Greek terminology but then um put different meanings into it. They're not just simply importing philosophical concepts. They're just using the Greek language and um giving new meanings to the words that they're that they're making use of. So there is, you know, it's it's a wonderful book and of course Pelikan is an unparalleled historian uh of of Christianity. So I do recommend it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 13:57](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=13:57:90)
+**[[Fr. Stephen De Young]]:** [Listen from [13:57](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=13:57:90)
 Yes, it is a good book. Um, the uh the the the key importance, not just for understanding the hymns that you mentioned, for which this understanding is helpful, uh but also this is important, uh that the that the nous in some sense is before the self is critically important to our understanding of how humanity has free will. Uh the way [[Father]] Dumitru Staniloae, whose name I always mispronounce, uh, um describes this is that that uh humanity is in some sense absolute, meaning uh not determined by his physical and material circumstances. Uh that we're able to because we're able to uh look at our thoughts from behind our thoughts, look at our self from behind our self, that gives us the freedom to comport ourselves. We can't change reality with our will. Right. Right? We can't sort of reach out and bend, there's the brute facticity of reality. But we can choose how we are going to comport ourselves to reality.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 15:15](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=15:15:98)
+**[[Fr. Stephen De Young]]:** [Listen from [15:15](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=15:15:98)
 How we're going to receive what comes into our life and our mind. Right? We have freedom in that because of this distinction, because of this uh separation.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 15:29](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=15:29:10)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [15:29](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=15:29:10)
 Yeah, because if you are your thoughts, then that means you are at their mercy. You know, you're simply at their mercy. And and attempting, like attempting to uh you know, like I I there's been many times I've had pastoral conversations with people where it's like, I keep having this thought and I just can't make it go away and you know, I feel like something is wrong with me, you know. Um, if if you are your thoughts, then the answer to that is, yes, there's something wrong with you, right? That's, I mean, what other possible conclusion could you come to? And then people find themselves helpless to just make a thought go away. You can't just will a thought to go away unless you, you know, if you realize that you are not your thoughts, then you can actually begin to develop the discipline to do things to your thoughts. But you're still going to have thoughts that come unbidden. Um but that doesn't mean that there's something fundamentally flawed, you know. You know, I mean, I I can't peer into the mind of [[Christ]], but but [[Christ]] himself was tempted, right? So, but he is not his temptations, obviously. You know, because he did not sin. So, hopefully I'm not getting across any Christological lines I should not by saying that, but I think that seems pretty clear from the Gospels that that's what happened.
 
 So, yeah, for you know, free will is kind of based not kind of, free will is based in this that you're not your thoughts. You know, you can observe your own thoughts, you can do things with your thoughts, you can reject the thoughts, you can accept some thoughts. It's this is a thing and it's a very freeing thing. I think I think we mentioned that last time. Um it just the experience of freedom comes, I think, from from realizing that.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:12](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=17:12:87)
+**[[Fr. Stephen De Young]]:** [Listen from [17:12](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=17:12:87)
 Right. Right. And if you look at the other side, right, if your brain is just sort of a chemical machine that generates your thoughts, right, and then those generated thoughts in your stream of consciousness are you, then then, you know, Sam Harris is right and free will disappears.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 17:32](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=17:32:89)
+**[[Fr. Stephen De Young]]:** [Listen from [17:32](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=17:32:89)
 And the person who has the thought that he should kill someone or rob someone or right, there's no free will involved. It's just purely mechanical.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 17:44](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=17:44:11)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [17:44](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=17:44:11)
 Yeah, and how can you how can you ultimately blame someone who just simply obeys their thoughts?
 
 **[[Fr. Stephen De Young]]:** Right.
@@ -191,10 +191,10 @@ So yeah, so so, okay, so we have talked about where thoughts come from, that the
 
 **[[Fr. Stephen De Young]]:** Mathematical, scientific knowledge.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 18:18](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=18:18:79)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [18:18](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=18:18:79)
 Yeah, there there's there's that kind of stuff, right? Um and uh you know, this of course is is and the idea of course the nous as a sensory organ receiving thoughts and images from outside, that's contrary to solipsism. We're not just brains in a vat, you know. There is actual contact with the outside going on uh in your in your mind. Um but I think a lot of our problem is that we tend to reduce um knowledge to language, right? And then this is what we think of as thoughts, is a kind of internal monologue, like the things that are being said in my head. Um but actually, you know, an interesting thing about that is um I I occasionally see people like posting on social media, um their surprise that people experience an internal monologue because they'll say things like, I don't have an internal monologue, that's not the way that I think. You know, I don't think in words like that. And that's interesting to me. That seems to be an indication that that person has somehow just is approaching it from a different angle. Um I I don't know what that's like. I do have an internal monologue. There are words that roll through my head all the time. I'm a very word-oriented person. Uh but but you know, can we reduce thoughts to just words? I I clearly not.
 
-**[[Fr. Stephen De Young]]:** [Listen from 19:42](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=19:42:55)
+**[[Fr. Stephen De Young]]:** [Listen from [19:42](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=19:42:55)
 So you're you're more like the theatrical cut of Blade Runner rather than the director's cut of Blade Runner.
 
 **[[Fr. Andrew Stephen Damick]]:** Yes.
@@ -203,90 +203,90 @@ So you're you're more like the theatrical cut of Blade Runner rather than the di
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 19:53](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=19:53:50)
+**[[Fr. Stephen De Young]]:** [Listen from [19:53](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=19:53:50)
 Right. Well, yeah, and and you know, we spent most of the because of course, the episode is about the nous, so we spent most of the episode not talking about the nous. Um, uh, just like we're spending most of this episode not talking about apocalyptic. Uh, but the uh I think some folks, you know, we got to the nous and and settled there, right? The other four ways of knowing that we talked about are also ways that thoughts come into your yes your mind.
 
 **[[Fr. Andrew Stephen Damick]]:** Yes, your mind.
 
-**[[Fr. Stephen De Young]]:** [Listen from 20:25](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=20:25:75)
+**[[Fr. Stephen De Young]]:** [Listen from [20:25](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=20:25:75)
 Right, right. That they're just not always turned into language, right? So when you're if you're out wrenching on your car and you know what you're doing, right, then there's there's tech involved, but there is a knowledge of, this is, oh, here's the problem, this is what I need to do. Right. Right? That's not an a the angel of car repair. Um, right, or the ghosts the ghosts of click and clack coming to help you, unfortunately. So you're saying that as I'm looking at my bookcase right now, there's not an angel there sending pictures of my bookcase into my brain?
 
 **[[Fr. Stephen De Young]]:** No, that's your eyeball.
 
 **[[Fr. Andrew Stephen Damick]]:** That's my eyeball. Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 21:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=21:05:81)
+**[[Fr. Stephen De Young]]:** [Listen from [21:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=21:05:81)
 So, uh right, so these these things come we just we don't always reduce them to language. Uh but what what we're, what we call something a thought, what we talk about thought like you were saying, we're thinking about that internal monologue, right?
 
 Yeah. But so, uh, to give an give an example, right, when when you look with your eyes and and I look at the tree out the window, right, the the image of the tree is coming into my mind through my eyeballs, right? Um but I can also then turn that into language, right? The word "tree." Right. Right? But when I do that, the experience of me standing in front of a tree, touching a tree, looking at a tree, smelling a tree is very different than having the word "tree" in my brain.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=22:05:13)
+**[[Fr. Stephen De Young]]:** [Listen from [22:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=22:05:13)
 This is what we mean when we say reducing it to language.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 22:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=22:09:88)
+**[[Fr. Stephen De Young]]:** [Listen from [22:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=22:09:88)
 Right? This reduction has happened. It's been boiled down, right? And most of the content has been lost in favor of this word. Um and so the same thing happens, the same thing happens with uh the nous, right? That you can have things come in through the nous not at the level of sort of discursive language, right? That's feelings, emotions, impressions, right? You feel sad, you could put that into words. I am sad. But the words "I am sad" do not really convey the fullness of what you experience when you are sad.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 22:54](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=22:54:68)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [22:54](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=22:54:68)
 Right, at best, it can function as a kind of shorthand. You know, you can invoke the idea of sadness in someone else by saying it, but but even then there's kind of different kind, you know, and you know, of course, language tries to deal with the complications. You can see a tree, you can say, okay, it's an oak tree or it's a maple tree or it's a Japanese, you know, maple, you know, or something like that. These are all different looking trees. But the Japanese maple that's in my neighbor neighbor's backyard is not does not look like the one in my front yard, and it is an objectively different experience to see those two trees. You know, the one I have is much younger and smaller and there's is big and lovely, you know. Um so so even though language can work on those complications and try to become more precise, it's still it's still, you know, I could I could qualify it, oh, it's a small Japanese, oh, okay, it's a small one. But still the specific one in my yard, you can't, you could never describe it with language in such a way that someone would get the exact experience of being there.
 
-**[[Fr. Stephen De Young]]:** [Listen from 23:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=23:58:19)
+**[[Fr. Stephen De Young]]:** [Listen from [23:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=23:58:19)
 Right. At best, at best, you can evoke a memory.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 24:01](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=24:01:46)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [24:01](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=24:01:46)
 Yeah, right. Right. Of a similar experience. Right. You can make it. Do you remember when yeah, do you remember when you were there? You know, um even the memory of the same tree, like if someone saw the tree before I pruned it, that would not be the same the same thing as it is today. You know?
 
-**[[Fr. Stephen De Young]]:** [Listen from 24:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=24:17:66)
+**[[Fr. Stephen De Young]]:** [Listen from [24:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=24:17:66)
 And and that's that we consider someone to be a great writer when they are able to evoke those actual experiences in us in the form of memory through the use of language. But we more commonly are doing it the other way. Yeah. We're taking the experience and boiling it down. And and the same is true, right? I was just talking about a tree, but the same is true when we're talking about the nous with, for example, the word God. Right? Or even the name, right? [[Jesus]] [[Christ]]. It's a very different thing, the word, and we can use it very discursively. Right? The the sort of bad kind of theology which is, you know, like putting together tinker toys, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 25:01](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=25:01:21)
+**[[Fr. Stephen De Young]]:** [Listen from [25:01](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=25:01:21)
 You, you know, just get the pieces and put the pieces together to construct something.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 25:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=25:05:54)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [25:05](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=25:05:54)
 Right. You know, like I mean, I see this all the time on the internet, people arguing [[Christology]], and the way that they argue makes me really wonder whether they know the person they're talking about. You know? It's just yeah, yeah, even if what they're saying is correct factually, you know, it's still not the same thing as the one that they're talking about. Um, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 25:35](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=25:35:45)
+**[[Fr. Stephen De Young]]:** [Listen from [25:35](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=25:35:45)
 So, yeah, I mean, and and we've talked about uh, previously on previous episodes about, you know, sort of the the the classical four four ways of interacting with reality that humans have: language, art, music, and ritual.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 28:55](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=28:55:67)
+**[[Fr. Stephen De Young]]:** [Listen from [28:55](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=28:55:67)
 And we're going to come back to this later in the episode. Um, but this is this is important because to mention here because we as modern Western people tend to try to reduce all of these just to language. It's not just our thoughts and experiences that we reduce to language, but it's all of these things, right? So we go and we look at a beautiful icon, but then we're like, okay, well this this represents this and that represents that and we try to break it all down into language. Um but even even if you write it up really thoroughly and really well, right? And you have all your your citations from art history, right? And you have this whole thing, reading that is a very different experience than standing in front of the icon.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 29:45](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=29:45:34)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [29:45](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=29:45:34)
 Yeah, and and you know, people sometimes do the same thing with liturgy, right? They're like, well, this part means this, or it represents this. And I mean, like, while that's not entirely wrong, right, um it it it can be problematic when people are like, oh, now I get that this is this is the thing that that means. You know? And so it becomes a a meaning that you received observationally rather than an experience that you participated in through ritual. You know, it it becomes a spectator sport, so to speak. Um yeah, yeah.
 
-**[[Fr. Stephen De Young]]:** [Listen from 30:25](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=30:25:95)
+**[[Fr. Stephen De Young]]:** [Listen from [30:25](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=30:25:95)
 Or that's also why we shouldn't have our noses buried in books during liturgical services.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 31:03](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=31:03:16)
+**[[Fr. Stephen De Young]]:** [Listen from [31:03](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=31:03:16)
 I know it's very comfortable for us as modern Western people to try to, again, process everything as language. I want to follow along and read what is being sung or read what is being said, uh and try to just process that mentally in the form of language, right? Yeah. But when you do that, you're not participating in ritual. You're participating in a linguistic exercise. Right. Right? And you can sit at home and read the text of the divine liturgy. But I think we would all agree that is a very different experience than actually being in and participating in the divine liturgy.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 31:41](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=31:41:64)
+**[[Fr. Stephen De Young]]:** [Listen from [31:41](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=31:41:64)
 Right. And even though we may feel comfortable doing that, right, it's good to be uncomfortable. Right? And the same thing's true with music, obviously. We talked about ritual and and iconography or art, but uh obviously the same is true with music, right? There's a big difference between reading a lyric sheet and listening to music, right? Like these are not the same uh the same thing.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 32:06](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=32:06:9)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [32:06](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=32:06:9)
 Right, right. Unless you're like everybody in the movie Amadeus and you can just like look at sheet music and hear it in your head, in which case go ahead, but uh I'm not that person, so.
 
-**[[Fr. Stephen De Young]]:** [Listen from 32:20](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=32:20:94)
+**[[Fr. Stephen De Young]]:** [Listen from [32:20](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=32:20:94)
 Right. So okay, so so, you know, we have this problem where we kind of divide this stuff out into, you know, the physical, the material, you know, the the immaterial, the material. You know, it's I don't know, as modern western people, we like to have things categorized. And the problem when we do that is we tend to when we divide it up into pieces, then we just pick the one piece that we prefer and kind of leave the rest aside. And I think one of the projects that we're trying to pursue on this podcast is to show that everything really is is one. You know? Uh there's not uh natural and supernatural. Right? That's not like we we like the there's a deliberate reason why we use the phrase "the seen and the unseen" when we're describing what we're doing on this show because because there is a distinction there. There's things you can see and observe with your senses and there's things that you cannot see with your senses. Um but but natural and supernatural is a different kind of distinction. Um you know, there's the the Cartesian notion of the soul, which is basically that you're this you are this immaterial soul that's kind of trapped inside a body. Um you know, or or uh to use the name of a very famous anime film, "Ghost in the Machine," you know.
 
-**[[Fr. Stephen De Young]]:** [Listen from 33:40](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=33:40:91)
+**[[Fr. Stephen De Young]]:** [Listen from [33:40](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=33:40:91)
 Ghost in the Shell, noob.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 33:42](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=33:42:36)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [33:42](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=33:42:36)
 Ghost in the Shell. Oh, that's right. It is Ghost in the Shell. I have seen that, but I'm sorry. I'm sorry. Man. I'm just ashamed of myself now suddenly. I did like that movie, but it's been a long time since I saw it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 33:55](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=33:55:76)
+**[[Fr. Stephen De Young]]:** [Listen from [33:55](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=33:55:76)
 Not you like the anime one. Just to be clear.
 
 **[[Fr. Andrew Stephen Damick]]:** Yes, I have not seen the recent version.
@@ -295,34 +295,34 @@ Not you like the anime one. Just to be clear.
 
 **[[Fr. Andrew Stephen Damick]]:** I have not seen that one. No, I have not seen that. Yeah. Yeah, I appreciate I appreciated the anime film for its aesthetics largely. Um I mean, I I obviously I was not on board with its philosophy. It was interesting to watch them sort of struggle with a philosophical problem of, you know, if a person is enough of a machine, can it can it still hold their soul? Right? Obviously, it's based on this Cartesian idea of the soul.
 
-**[[Fr. Stephen De Young]]:** [Listen from 34:24](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=34:24:99)
+**[[Fr. Stephen De Young]]:** [Listen from [34:24](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=34:24:99)
 Right. Right. So yeah, so in in the ancient world, right, there's just creation, there's just the world, the cosmos, right? Yeah. Uh and that includes both material and spiritual realities. Right? Everyone just accepted that. There are gods, there are spirits, there are, etc., etc. They are also in the creation, right? We don't see them with our eyes, but there are things that we hear with our ears and don't see with our eyes. So the idea that there are certain things that we only apprehend with our minds rather than the other senses kind of made sense to ancient people, right? Just like there's things you smell but can't see or hear but can't see, right? Or hear but can't smell. Um and so these are all just different aspects of the one reality, and then modernity happens and everything gets lame.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 35:27](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=35:27:14)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [35:27](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=35:27:14)
 I feel like 19th century German theologians are about to be mentioned.
 
-**[[Fr. Stephen De Young]]:** [Listen from 35:30](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=35:30:86)
+**[[Fr. Stephen De Young]]:** [Listen from [35:30](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=35:30:86)
 We're going to get there. We're not even there yet though. We're still in like the 16th 16th, 17th century. Yeah. Um, yeah, yeah. So we're we're we're building up to them, right? And that's that is where you get, as you mentioned, the Cartesian idea. Right? Uh from Descartes was called Cartesian dualism, the idea that that the material realm and the spiritual realm are separate realms. Just that realm language. Right? That they begin to be spoken of as if, now no one's saying these are actually separate, quote unquote, places, but they're being spoken of in that way. Right? That that there is, you know, the human body is the body and we have access to that in a certain way, and then the soul is the ghost in the machine, the soul is Geist is there somewhere, connected to it in some way, right? It's not entirely clear, and we don't have access to it. Um really, in the same way. So you get the at the beginning of this division, and the division between natural and supernatural. Right. Right? Supernatural doesn't just mean uh this is a happening that is outside the things that usually happen, right? This is a very unusual occurrence. Right? But supernatural is meaning uh not material.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 36:56](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=36:56:69)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [36:56](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=36:56:69)
 Yeah, it's all the woo woo stuff. Yeah, right, right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 36:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=36:58:80)
+**[[Fr. Stephen De Young]]:** [Listen from [36:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=36:58:80)
 Right, that angels are supernatural. Yeah, that God is supernatural. You know? Yeah, which is not true, not true. Yeah. And then as that develops, um we're not even into the 19th century yet. No, yeah. Uh but uh you get the beginnings of German idealism, uh and uh you get our friend Emanuel Kant. Uh and you get not only sort of the taxonomy of these two realms, but there's sort of an iron wall between them. Yeah. now. Uh where so for Kant, sort of classically, you have the numinal realm, that's what he calls it, right? Related to the nous, related to the mind, where you have God, uh the self, meaning the soul, um the thing in itself, the essences of things, right? These are all things that can only be known by the mind through what he basically calls a kind of intuition. Um in religious circles, um especially Protestant religious circles, that's how faith ends up getting kind of defined. Faith is that sort of intuitive knowledge of those things, of God and of the soul. Um and then you have the phenomenal realm, which is all the stuff we know through the senses, which is all the material stuff.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 38:25](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=38:25:21)
+**[[Fr. Stephen De Young]]:** [Listen from [38:25](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=38:25:21)
 Right? And these are these two separate boxes. And most conservative Western theology ends up evolving out of this kind of viewpoint. Right? So there's maintained that, yes, God exists, uh the soul exists, uh the things have essences, things have natures, things are what they are. Um but that's something you know by faith or intuition or through the application of mental categories. That's not something you know through the senses or through science or through any of those things.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:08](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:08:44)
+**[[Fr. Stephen De Young]]:** [Listen from [39:08](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:08:44)
 Right? So you have these these two realms. And so this is how we end up uh as as uh conservative modern Christians sort of having this box or the this set of brackets where we put all that stuff, all that numinal stuff, right? Right. And then the rest of our life, everything outside the brackets, we basically interact with everything else the same way atheists do. Um because that's all in this just phenomenal material realm.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah. Yep.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:37](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:37:92)
+**[[Fr. Stephen De Young]]:** [Listen from [39:37](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:37:92)
 And so then, now we get to the our 19th century German friends.
 
 **[[Fr. Andrew Stephen Damick]]:** All right.
@@ -331,63 +331,63 @@ And so then, now we get to the our 19th century German friends.
 
 **[[Fr. Andrew Stephen Damick]]:** Not really. Friends, scare quotes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:47](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:47:33)
+**[[Fr. Stephen De Young]]:** [Listen from [39:47](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:47:33)
 They're not good they're not good friends. Um so, uh they'll like totally invite you to go see a movie and then flake out and not show up.
 
 **[[Fr. Andrew Stephen Damick]]:** Not text, nothing.
 
-**[[Fr. Stephen De Young]]:** [Listen from 39:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:58:65)
+**[[Fr. Stephen De Young]]:** [Listen from [39:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=39:58:65)
 That's the kind of friends they are. They just ghost you. Yeah. Yes. They geist you, even.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, there we go.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:07](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:07:95)
+**[[Fr. Stephen De Young]]:** [Listen from [40:07](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:07:95)
 So, uh and we get we get to Hegel. And so what Hegel does essentially is collapse that idea of a numinal realm, of a spiritual realm. He collapses Geist and spirit, he just collapses that into the material world.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 40:27](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:27:78)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [40:27](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:27:78)
 So what does that mean? Like, how does that play out?
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:29](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:29:85)
+**[[Fr. Stephen De Young]]:** [Listen from [40:29](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:29:85)
 So, yeah, what that means is that essentially then, right, all of these, everything from God to um to uh spirituality, to the soul, all of these things sort of get reduced to a kind of spiritual metaphor related to uh material processes.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 40:57](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:57:1)
+**[[Fr. Stephen De Young]]:** [Listen from [40:57](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=40:57:1)
 Right? So you get out of this, and this is what then liberal Western theology evolves from. So you get like the social gospel and liberation theology. Right? That it's all very this-worldly focused altogether. Right? So spiritual liberation, what spiritual liberation really means in this kind of view is the transforming of the material conditions of your life to give you freedom. Right, right. That's now spiritual liberation, right? And so sin gets replaced with tyranny and oppression, right? Everything gets reduced. So you still have a concept, right? So for Hegel, God is sort of in the creation evolving and working things out, right, along with everybody else, right? And God is just sort of this animating positive spirit within within the the uh the cosmos. Right? And so you still use this language to talk about it, and you still see the spiritual dimension, but the spiritual dimension is now more about feeling and sentiment and solidarity and kinship than an actual connection to an actually existing creator God.
 
 **[[Fr. Andrew Stephen Damick]]:** Right. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 42:23](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=42:23:44)
+**[[Fr. Stephen De Young]]:** [Listen from [42:23](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=42:23:44)
 Um and so yeah, so that's then, you know, our conservative Western theology comes from sort of more of the uh Kantian kind of view and the um liberal theology comes out of more the Hegelian kind of view, and from that comes process theology, all of that. All of our 19th century German friends. Um and so then, you know, the the the response, right, for people who then reject Christianity altogether, right? Um then this is how secularism comes about because then you just rather than collapsing the spiritual into the the physical and the material, you just sort of peel away that layer. You just rip the spiritual and material layer off the top and leave only the physical and material.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 43:16](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=43:16:32)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [43:16](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=43:16:32)
 Yeah, because if it's really just a metaphor, well, why not have some other metaphor? You know? Um if there's not actually a God that you can encounter, why not come up with some other, you know, way of of organizing your values around material flourishing? You know?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 43:37](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=43:37:11)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [43:37](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=43:37:11)
 And and what's interesting about this to me is like this seems to be the way that public discourse is just sort of expected to go now. Like there's this polite thing that we don't do, right? We we well, I should say there's this thing we politely don't do, which is, you know, you don't talk about um spiritual things in public because, well, that should be either kept private or it's kind of sort of a joke. You know, that like don't don't talk about that. And I mean, you know, when we were putting our notes together, you gave the example of, you know, uh Neil deGrasse Tyson, the the is he an astronomer? Is that what he is? Yeah, I think so.
 
 **[[Fr. Stephen De Young]]:** He's an astrophysicist.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 44:16](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=44:16:21)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [44:16](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=44:16:21)
 Astrophysicist. Okay, so I was pretty close. Um uh you know, he he made some reference, he he used the word "Godspeed" on Twitter and then had to like apologize for that because of course he doesn't actually believe in God. You know, so you shouldn't say, you know, you shouldn't say that.
 
 **[[Fr. Stephen De Young]]:** His fellow atheists came after him, the Twitter dog pile for saying Godspeed to astronauts.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 44:39](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=44:39:62)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [44:39](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=44:39:62)
 Yeah, how dare you. Yeah, what does that mean? You know, aren't they all just in rockets? Um and I, you know, it's the thing that you sort of not allowed to say, right? Like this we just politely don't do that in public. And um I was thinking about this in contrast to an experience that I have once every week or so. Um so my family, we we buy um we we get raw milk from a uh Mennonite family uh about 30 minutes or so, 35, 40 minutes south of us. Uh they have a greenhouse and a dairy farm and you know, uh they make lots of wonderful things. And um when you go there though, they will openly and easily talk to you about um about God and and about the weather, usually in relation one relation to the other, you know. Um and it's just it really strikes me how and it's not like they're not proselytizing or anything like that. It's just simply their experience of the world and that's how they talk. Um that they just don't participate in that polite agreement that everybody else has. You know, they they have no problem saying, you know, God was really good and gave us really good weather this week, you know. Like it's just it's just something they just sort of openly do. You know? So I think about that when I drink my my Mennonite milk.
 
-**[[Fr. Stephen De Young]]:** [Listen from 45:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=45:58:63)
+**[[Fr. Stephen De Young]]:** [Listen from [45:58](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=45:58:63)
 Right. Right. And even, even, again, we were talking about the brackets, right? Even most most modern Christians who uh thoroughly believe in God, right, thoroughly, wouldn't talk about it that way comfortably in like mixed company. Maybe when they're at church or with their church friends, right? Like you're not allowed to do it in church or yeah. Yeah, but not like at the mall, right? Like not like, you know, talking to a store clerk, you know. Um yeah, and so uh so that's sort of where is it all went wrong? Um Right, in the in the modern period. And so probably the the the question we've gotten most often since starting this show has been like some version of, can we really go back to like can we like unmodern our like is it possible to de-modern oneself? Right? How do you go back?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 47:07](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=47:07:22)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [47:07](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=47:07:22)
 "Unmodern" is a good Old English uh uh construction, and I affirm that. Okay.
 
-**[[Fr. Stephen De Young]]:** [Listen from 47:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=47:13:95)
+**[[Fr. Stephen De Young]]:** [Listen from [47:13](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=47:13:95)
 Um so and and you know, you you can't unlearn. There there are some things that you can't unsee, right? So like you can't sort of right, reverse things and use the wayback machine that way.
 
 **[[Fr. Andrew Stephen Damick]]:** Right. Yeah, I can't just decide not to be modern.
 
-**[[Fr. Stephen De Young]]:** [Listen from 47:35](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=47:35:89)
+**[[Fr. Stephen De Young]]:** [Listen from [47:35](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=47:35:89)
 Right. But then so what is then sort of the way back into the the ground, right, in terms of uh trying to come back to something more like that? And it's not to again, to set the clock back, but it's to we have to actively work, and that's what the rest of this episode's going to be about, um to reintegrate what's been pulled apart. Right. We can't just pretend it was never pulled apart. Yeah. Right? But we can work to bring it back together, right? And so that is uh the key to that is understanding that for every spiritual reality, there's a concomitant material reality and vice versa.
 
 **[[Fr. Andrew Stephen Damick]]:** Right.
@@ -396,22 +396,22 @@ Right. But then so what is then sort of the way back into the the ground, right,
 
 **[[Fr. Andrew Stephen Damick]]:** And vice versa.
 
-**[[Fr. Stephen De Young]]:** [Listen from 48:28](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=48:28:44)
+**[[Fr. Stephen De Young]]:** [Listen from [48:28](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=48:28:44)
 Right. These always go together. Right? And this is at the level of like we've talked about in past episodes, there being spirits or angelic beings assigned to the elements of the created world. Right. There's no neutral ground who are participating in their government, that that there are spiritual realities connected to every physical reality and physical realities connected to spiritual realities. Right. Right? And the place where we, so you know, the the this is the relationship between, you know, the mind and the brain or the mind and the heart. Right? That that, you know, um we all talk about our heart, you know, I left my heart in San Francisco. Last Christmas, I gave you my heart, the very next day, you gave it away. Oh man. Um, right, and and, you know, even when we like use the heart emoji, it doesn't actually look like a biological human heart. Right. Unless someone's doing that on purpose as a joke, right? Like, you don't see like the vena cava and right? Um, so, you know, we we we get that when we're talking about our heart, we're actually talking about a spiritual reality. Right. But we're connecting it and talking about it to this organ, right? And the same thing with the mind and the brain, right? That that, you know, yes, you've got this gray mushy thing with electricity firing around in it, right? And that's not completely unrelated to your mind and your thoughts. Right? It's not ghost in the machine, right?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 50:11](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:11:72)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [50:11](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:11:72)
 So when someone vents his spleen then?
 
 **[[Fr. Stephen De Young]]:** Yes.
 
 **[[Fr. Andrew Stephen Damick]]:** I knew it.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:18](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:18:29)
+**[[Fr. Stephen De Young]]:** [Listen from [50:18](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:18:29)
 His blood is up. Yes. Yeah, the the better one is in Greek when you have compassion, uh you spleen at someone.
 
 **[[Fr. Andrew Stephen Damick]]:** That's great.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:27](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:27:32)
+**[[Fr. Stephen De Young]]:** [Listen from [50:27](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:27:32)
 That's literally what it means. So in the gospels, [[Christ]] literally spleens at like sick people.
 
 **[[Fr. Andrew Stephen Damick]]:** Is what the Greek literally says.
@@ -420,42 +420,42 @@ That's literally what it means. So in the gospels, [[Christ]] literally spleens 
 
 **[[Fr. Andrew Stephen Damick]]:** I am standing here beside myself. Yes.
 
-**[[Fr. Stephen De Young]]:** [Listen from 50:44](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:44:81)
+**[[Fr. Stephen De Young]]:** [Listen from [50:44](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=50:44:81)
 So, right, but so these these are these aren't disassociated, right? These aren't disassociated. And what one of the key place, probably the key place, the key place and this is setting up what we're going to be talking about for the rest of the episode, the key place where we do this and we do this ritually is in the idea of sacrament or the mysteries of the church.
 
 **[[Fr. Andrew Stephen Damick]]:** Exactly. Right.
 
-**[[Fr. Stephen De Young]]:** [Listen from 51:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=51:09:59)
+**[[Fr. Stephen De Young]]:** [Listen from [51:09](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=51:09:59)
 Where you have a material reality and a spiritual reality permeating each other. Yeah. Right? Whether it's water or a male and a female human or uh a uh or bread and wine, right? There is a divine and spiritual reality that comes to permeate those material things.
 
 **[[Fr. Andrew Stephen Damick]]:** Right. Right. All right, well, on that note, um we're going to be back in just a moment and we're going to start talking about apocalypse as a genre within scripture. But first, we're going to take your calls. But before that, we're going to take a break. We'll be right back.
 
 [Commercials]
 
-**Voice of Steve:** [Listen from 53:22](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:22:15)
+**Voice of Steve:** [Listen from [53:22](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:22:15)
 We're back now with the [[Lord of Spirits]] with [[Father Andrew Stephen Damick]] and [[Father Stephen De Young]]. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:39](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:39:69)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:39](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:39:69)
 Welcome back. This is the second half of the show where we start to take your calls. Thank you very much for that, Voice of Steve. So the first caller we have on on the line is someone with an excellent name, and that is Andrew from Indiana. Andrew, are you there?
 
-**Andrew from Indiana:** [Listen from 53:56](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:56:45)
+**Andrew from Indiana:** [Listen from [53:56](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:56:45)
 Yes, I am, [[Father]]. Um, thank you for having me on.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 53:59](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:59:17)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [53:59](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=53:59:17)
 Welcome to the [[Lord of Spirits]] podcast. What's your question or your concern?
 
-**Andrew from Indiana:** [Listen from 54:03](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=54:03:36)
+**Andrew from Indiana:** [Listen from [54:03](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=54:03:36)
 Well, my question is what is accomplished in the worship of God by those who are outside of the people of God? And so that's sort of the broad question. I was thinking specifically with three, I guess you could say, circumstances. Um, the first being the people that are akin to the Israelites in the Old Testament, like the Edomites and the Midianites. On the show, you said that for the point where they were worshiping God still, but they didn't have the worship of the [[Torah]]. They didn't have the rituals that were a participation in [[Christ]]'s saving work, like the rituals of the rituals of the [[Torah]] were. Um, so that was one circumstance for those people in the Old Testament. Another one's with the Samaritans because the Samaritans did have the [[Torah]], or at least a version of the [[Torah]], I guess you could say. And they held Passover and the various other feasts and the festivals, but obviously they were they separated off and they worshiped on the wrong in the wrong location. So I guess what was accomplished in their worship? Um, and then to bring it to the present for those who are liturgical Christians who are outside of the Orthodox Church, I guess you could say what is accomplished for them?
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 55:42](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=55:42:61)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [55:42](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=55:42:61)
 Yeah. So, okay, so if I'm just going to restate your question the way that I understand it and you can tell me if I've if I've got it. You're essentially asking if someone's not actually um sort of what we might think of as canonically part of the people of God, whether that's Israel in the Old Covenant or Israel in the New Covenant, which is the church, then um does what exactly does their worship accomplish if anything? Is is that correct? Am I getting that right?
 
 **Andrew from Indiana:** Correct. Yes. That's exactly what I'm asking about their worship, what is accomplished for them.
 
-**[[Fr. Andrew Stephen Damick]]:** [Listen from 56:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=56:17:84)
+**[[Fr. Andrew Stephen Damick]]:** [Listen from [56:17](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=56:17:84)
 Yeah, yeah. Um so I I have some thoughts on this, which I'll say first, but I know that [[Fr. Stephen]] probably has a lot more to say. But I'll I'll just say this, that um whenever someone is being obedient to God, they're being obedient to God, right? Uh the idea that the idea that outside of the canonical boundaries of the people of God, there is nothing but unmitigated darkness um is is simply not true. Right? It's simply not true. And we have um we have Orthodox saints, for instance, commenting on, you know, even within the past couple of centuries, commenting especially on the the problem of, you know, what are often described of as separated brethren. And um one of the problems with that phrase, of course, is that people tend to emphasize one of those two words over the other. Like they'll really want to emphasize the word separated and forget about brethren or they really want to emphasize brethren and forget about separated. Um but, you know, like Fr. Georges Florovsky said, you really need to emphasize both words. They're both important. But there are Orthodox saints, like for instance St. Silouan the Athonite, um and uh I'm kind of blanking on the name right now, but there I think there were some uh 19th century Russian saints who commented especially on uh Catholics and Protestants in Russia, and they said, you know, when they do something that we uh agree with and recognize as our own, we should affirm that. And like they do well to do those things. Like they never say, well, they're not Orthodox, so, you know, I mean, what are they really doing, right? Um so I'm going to go ahead and then punt over to [[Fr. Stephen]] for especially if he wants to comment on that, but especially, you know, the the Old Testament piece which I don't know, I mean, I, you know, we talked about this, but but I'm sure he has a lot more to say about that. So, [[Father]].
 
-**[[Fr. Stephen De Young]]:** [Listen from 58:11](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=58:11:15)
+**[[Fr. Stephen De Young]]:** [Listen from [58:11](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=58:11:15)
 Yeah, right. So, I mean, what the what the Midianites and Ishmaelites and Edomites and it's Ishmaelites and Edomites who make up the Midianites. Um what they're doing when we re-encounter them is they're continuing the kind of worship and the patterns of worship that they got from Abraham and Ishmael or Abraham and Isaac and Esau, right? They're they're continuing those forms of worship. Right? And as you mentioned, they hadn't actually received the [[Torah]], you know, which gave the the specific uh the specific commands. Um but here's the thing. Um those commandments are commandments given to humans. And that cuts in two ways. Uh first, they're not restrictions God imposes upon himself. It's not God saying, I am telling you to worship me this way as my people, therefore I am now restricting myself to only work here in this place at all, right, and never never do anything else. Um and then secondly, right, liturgy is not the work of the people, right? So ritual isn't something, isn't a process that we do that then results in us having certain benefits. Right? Uh uh ritual and liturgy is the means given to us by God through which God tells us he will work and do certain things when we are obedient and and do the liturgy uh in that way. So the question, whether we're talking about the the Midianites or the Edomites or the Samaritans or uh Roman Catholics and Protestants or anybody else, you know, the guy living on an island who's never seen an Abrahamic religion in his life, right? Um I mean the question amounts to, what is God doing there?
 
 **[[Fr. Andrew Stephen Damick]]:** Right.

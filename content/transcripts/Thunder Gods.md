@@ -20,16 +20,16 @@ And I am [[Father Andrew]] Stephen Damick in Emmaus, Pennsylvania. This is a pre
 
 **[[Fr. Andrew]]:** You think so?
 
-**[[Fr. Stephen]]:** [Listen from 01:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=01:52)
+**[[Fr. Stephen]]:** [Listen from [01:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=01:52)
 Yes, like it needs to be is brought to you with help from Theoria School of Filmmaking and listeners like you.
 
-**[[Fr. Andrew]]:** [Listen from 01:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=01:58)
+**[[Fr. Andrew]]:** [Listen from [01:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=01:58)
 And listeners like you. Yeah, I didn't write the script.
 
-**[[Fr. Stephen]]:** [Listen from 02:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:01)
+**[[Fr. Stephen]]:** [Listen from [02:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:01)
 That to me is the correct order.
 
-**[[Fr. Andrew]]:** [Listen from 02:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:03)
+**[[Fr. Andrew]]:** [Listen from [02:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:03)
 And listeners like you.
 
 **[[Fr. Stephen]]:** Yes.
@@ -38,597 +38,597 @@ And listeners like you.
 
 So, [[Father Stephen]], who exactly is this [[Baal]] we hear so much about, especially in the [[Old Testament]]? What does that name even mean?
 
-**[[Fr. Stephen]]:** [Listen from 02:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:58)
+**[[Fr. Stephen]]:** [Listen from [02:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:58)
 He's this guy.
 
-**[[Fr. Andrew]]:** [Listen from 02:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:59)
+**[[Fr. Andrew]]:** [Listen from [02:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=02:59)
 It's just this guy, you know.
 
-**[[Fr. Stephen]]:** [Listen from 03:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:02)
+**[[Fr. Stephen]]:** [Listen from [03:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:02)
 Yeah. President of the universe? Hangs out. Yeah. Sort of vice president.
 
-**[[Fr. Andrew]]:** [Listen from 03:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:07)
+**[[Fr. Andrew]]:** [Listen from [03:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:07)
 Oh, okay.
 
-**[[Fr. Stephen]]:** [Listen from 03:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:08)
+**[[Fr. Stephen]]:** [Listen from [03:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:08)
 Um, eventually, right? Yeah. Um, so, um, yeah, we're going to talk about [[Baal]] and sort of [[Baal]] puns here. Don't bail out on our show before we're done.
 
-**[[Fr. Andrew]]:** [Listen from 03:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:21)
+**[[Fr. Andrew]]:** [Listen from [03:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:21)
 Here we go.
 
-**[[Fr. Stephen]]:** [Listen from 03:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:22)
+**[[Fr. Stephen]]:** [Listen from [03:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:22)
 Uh, you know.
 
-**[[Fr. Andrew]]:** [Listen from 03:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:23)
+**[[Fr. Andrew]]:** [Listen from [03:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:23)
 Strung together with bailing wire and duct tape.
 
-**[[Fr. Stephen]]:** [Listen from 03:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:28)
+**[[Fr. Stephen]]:** [Listen from [03:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:28)
 Yeah. It's... yeah. Even if you get sent to prison, don't pay bail. Yeah, never pay bail. So... And of course, technically, it's pronounced Ba'al.
 
-**[[Fr. Andrew]]:** [Listen from 03:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:40)
+**[[Fr. Andrew]]:** [Listen from [03:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:40)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 03:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:41)
+**[[Fr. Stephen]]:** [Listen from [03:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:41)
 But if I have to pronounce it Ba'al every time all episode, I'm going to feel like super pretentious.
 
 **[[Fr. Andrew]]:** I never stopped you before.
 
-**[[Fr. Stephen]]:** [Listen from 03:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:48)
+**[[Fr. Stephen]]:** [Listen from [03:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=03:48)
 Right? Like I don't know if you've watched... I don't know if you've watched Sandman on Netflix yet. No, no. But like every time they say Constantine. Oh. I'm like, seriously, people. I mean, I know you're British, but seriously, people. Hmm. So, we're just we're just going to say [[Baal]].
 
-**[[Fr. Andrew]]:** [Listen from 04:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:04)
+**[[Fr. Andrew]]:** [Listen from [04:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:04)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 04:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:05)
+**[[Fr. Stephen]]:** [Listen from [04:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:05)
 We're going to say [[Baal]], Baals plural. People are just going to have to deal with it. Um, so yeah, [[Baal]], um, we have to differentiate between [[Baal]] as title and [[Baal]] as proper name.
 
-**[[Fr. Andrew]]:** [Listen from 04:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:21)
+**[[Fr. Andrew]]:** [Listen from [04:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:21)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 04:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:22)
+**[[Fr. Stephen]]:** [Listen from [04:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:22)
 Right? Because [[Baal]] or Ba'al, um, means or meant in its earliest here, just sort of lord or master. Right?
 
-**[[Fr. Andrew]]:** [Listen from 04:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:35)
+**[[Fr. Andrew]]:** [Listen from [04:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:35)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 04:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:35)
+**[[Fr. Stephen]]:** [Listen from [04:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:35)
 Um, once you get into Imperial Aramaic, and it's called Imperial Aramaic because it's the form of Aramaic that was sort of the lingua franca of the first Persian Empire. Um, it starts being used more, uh, it's still used sort of in that way, but it's also often used for husband, like head of the household, pater familias kind of idea.
 
-**[[Fr. Andrew]]:** [Listen from 04:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:58)
+**[[Fr. Andrew]]:** [Listen from [04:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:58)
 The master of the house.
 
-**[[Fr. Stephen]]:** [Listen from 04:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:58)
+**[[Fr. Stephen]]:** [Listen from [04:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=04:58)
 Um, and there are still, I guess, some related words in, in Arabic that are used for husband kind of thing. Um, so, uh, but I'm not qualified to give you the details of that, but I've had some conversations recently. Um, so it it also, um, came to be used in various forms of late Hebrew and Aramaic to mean master in the way that we use sort of mister. Right? People may not be aware of that, that mister and misses come from master and mistress. Yeah, right?
 
-**[[Fr. Andrew]]:** [Listen from 05:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=05:35)
+**[[Fr. Andrew]]:** [Listen from [05:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=05:35)
 I mean, in modern Greek, they still call people Kyrios and Kyria, which is lord and lady.
 
-**[[Fr. Stephen]]:** [Listen from 05:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=05:41)
+**[[Fr. Stephen]]:** [Listen from [05:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=05:41)
 Yeah, and and sir comes from sire and all that. Right. Uh, so it was used kind of that same way. So, for example, the famous founder of Kabbalism, they call him the [[Baal]] Shem Tov, and you're like, "Wait, [[Baal]]?" Right? Like, why are they calling this Jewish guy [[Baal]]? Well, it's being used to that master, right? In the same way that in Syriac, mar or mor gets used. Um...
 
-**[[Fr. Andrew]]:** [Listen from 06:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:06)
+**[[Fr. Andrew]]:** [Listen from [06:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:06)
 Right. Yep.
 
-**[[Fr. Stephen]]:** [Listen from 06:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:08)
+**[[Fr. Stephen]]:** [Listen from [06:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:08)
 And sayyidna means master, right? We call our bishops master. So it's in that kind of sense, right? So [[Baal]] can just sort of function in that kind of way. And in in the [[Old Testament]], it's usually functioning in that kind of way when it's used in the plural.
 
-**[[Fr. Andrew]]:** [Listen from 06:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:28)
+**[[Fr. Andrew]]:** [Listen from [06:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:28)
 Baals.
 
-**[[Fr. Stephen]]:** [Listen from 06:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:29)
+**[[Fr. Stephen]]:** [Listen from [06:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=06:29)
 Right? So you'll see, you know, that [[Israel]] ran after the Baals. Right? Um, the idea there is it's just being used to refer to sort of pagan deities in general. Yeah. Right? Um, who have or are called various things. But that's that's using it more as a title. But there's also evidence from very early on, right? So not only all of our Ugaritic evidence like the [[Baal]] cycles. So we're talking about the second millennium BC, where this starts being used as a personal name. Hm. Right? In the same way that we're going to see L, which is just the sort of the generic early Semitic word for God in general, gets used as a proper name for one particular pagan deity. [[Baal]] starts to be used as a name for one particular pagan deity. Right? Um, and this this God is found having other names, uh, in other places. The most closely allied, is that the right word? But the the most closely derivative one is the God, uh, Hadad in Syria.
 
-**[[Fr. Andrew]]:** [Listen from 07:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:47)
+**[[Fr. Andrew]]:** [Listen from [07:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:47)
 Yeah, which...
 
-**[[Fr. Stephen]]:** [Listen from 07:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:48)
+**[[Fr. Stephen]]:** [Listen from [07:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:48)
 Right?
 
-**[[Fr. Andrew]]:** [Listen from 07:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:48)
+**[[Fr. Andrew]]:** [Listen from [07:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:48)
 I mean, is that, I mean, I know the the name Hadad means blacksmith in modern Arabic. Is that related at all?
 
-**[[Fr. Stephen]]:** [Listen from 07:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:54)
+**[[Fr. Stephen]]:** [Listen from [07:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:54)
 That's spelled differently.
 
-**[[Fr. Andrew]]:** [Listen from 07:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:56)
+**[[Fr. Andrew]]:** [Listen from [07:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:56)
 No, it's spelled differently. Okay, yeah, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 07:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:57)
+**[[Fr. Stephen]]:** [Listen from [07:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=07:57)
 Yeah. Um, but, um, and I'm going to I'm going to pronounce this the, uh, southern way. Uh, um, when when you see when reading the [[Old Testament]], you come upon Ben-Hadad, uh, and that's the son of Hadad, the son of this deity who's the king in Syria, right? Um, so, uh, we we know this is the one that's most closely allied because in the very early period, the very early Canaanite period, uh, where [[Baal]] is just starting to become a proper name for this deity, there is [[Baal]]-Hadad is the way he's referred to. Hm. In sort of very early what would be now called Phoenician sources, sources in the Levant, right? We find this [[Baal]]-Hadad who ends up just being referred to as [[Baal]] by the Phoenicians and just being referred to as Hadad by, uh, the Syrians.
 
-**[[Fr. Andrew]]:** [Listen from 09:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=09:04)
+**[[Fr. Andrew]]:** [Listen from [09:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=09:04)
 Gotcha. So there's a clear sense that this was one one person, one deity, and they're kind of using two different names for him.
 
-**[[Fr. Stephen]]:** [Listen from 09:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=09:12)
+**[[Fr. Stephen]]:** [Listen from [09:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=09:12)
 Right, right, that there was sort of an original name that incorporated both. Gotcha. Right? Yeah, yeah, yeah. [[Baal]]-Hadad, right? [[Baal]]-Hadad, this is the Lord Hadad, right? And so one just started calling him the Lord and the other side just started calling him Hadad. Right? By his proper name. Um, and then within that, right? We've talked about, um, the use of the word hypostasis to describe, and we're not going to go back into the discontinuities with the doctrine of the [[Trinity]] now, but the word hypostasis is used to describe the way in which, right? Sometimes within these pagan sources, you have gods in different places that are treated as aspects or versions or hypostases of the same god, and then there are other gods who are treated as different gods.
 
-**[[Fr. Andrew]]:** [Listen from 10:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=10:13)
+**[[Fr. Andrew]]:** [Listen from [10:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=10:13)
 Yeah, and there's potentially infinite localizations with these pagan gods.
 
-**[[Fr. Stephen]]:** [Listen from 10:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=10:17)
+**[[Fr. Stephen]]:** [Listen from [10:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=10:17)
 And so, the difference would be, for example, right? You have Artemis, the way she's depicted in Athens, which is as this huntress. And then you have Artemis, the way she's depicted in Ephesus, right? With all the fruit hanging off of her. Right? Artemis of the Ephesians, the Ephesian Artemis. Right? Those, those were seen as being the same goddess. Right? Right. But neither of them were seen as being the same goddess as Hera or Athena or any other. So it's it's not that a sort of all the pagan gods just devolve back into hypostases of one male and one female god. Right? Right. It's that there's this variety of spirits and gods, and then they they appear in various forms or manifest themselves in various forms in different places, in different cultures, in different times.
 
-**[[Fr. Andrew]]:** [Listen from 11:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:08)
+**[[Fr. Andrew]]:** [Listen from [11:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:08)
 Gotcha.
 
-**[[Fr. Stephen]]:** [Listen from 11:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:09)
+**[[Fr. Stephen]]:** [Listen from [11:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:09)
 And so what you end up with is they would see, for example, [[Baal]] and Hadad. And when we read about [[Baal]]-peor, right? Often you'll find a place name attached, the [[Baal]] of this place. Right? Um, these are all seen as hypostases of the same god. Right? They didn't think that the [[Baal]] of Peor and the [[Baal]] of Tyre were two different spirits. Right? Right. They said these are two manifestations or local versions, uh, of the same kind of spirit from the pagan perspective. So that's said [[Baal]] is part of a family of gods.
 
-**[[Fr. Andrew]]:** [Listen from 11:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:51)
+**[[Fr. Andrew]]:** [Listen from [11:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:51)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 11:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:52)
+**[[Fr. Stephen]]:** [Listen from [11:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:52)
 A super dysfunctional family.
 
-**[[Fr. Andrew]]:** [Listen from 11:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:53)
+**[[Fr. Andrew]]:** [Listen from [11:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:53)
 Yes, a very dysfunctional family.
 
-**[[Fr. Stephen]]:** [Listen from 11:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:56)
+**[[Fr. Stephen]]:** [Listen from [11:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=11:56)
 His, uh, and and this family tree does not branch a lot. Um, yeah. So, uh, [[Baal]]'s father is L, which as we were just mentioning, that's just the word for God.
 
-**[[Fr. Andrew]]:** [Listen from 12:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:11)
+**[[Fr. Andrew]]:** [Listen from [12:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:11)
 Semitic word for God.
 
-**[[Fr. Stephen]]:** [Listen from 12:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:12)
+**[[Fr. Stephen]]:** [Listen from [12:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:12)
 So there's God and Lord being used as proper names here, essentially. God and his son Lord. Um, but then, uh, [[Baal]] also has a sister named Anat, who we've talked about a few times before. And not only is she his sister, she's also his wife.
 
-**[[Fr. Andrew]]:** [Listen from 12:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:31)
+**[[Fr. Andrew]]:** [Listen from [12:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:31)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 12:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:32)
+**[[Fr. Stephen]]:** [Listen from [12:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:32)
 Uh, and she's also kind of crazy as we'll see more examples of.
 
-**[[Fr. Andrew]]:** [Listen from 12:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:36)
+**[[Fr. Andrew]]:** [Listen from [12:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:36)
 Yeah. You don't have to hedge it. She's super duper crazy.
 
-**[[Fr. Stephen]]:** [Listen from 12:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:39)
+**[[Fr. Stephen]]:** [Listen from [12:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=12:39)
 Yeah, yeah. Um, she's out of control. Uh, so, um, so that's sort of his immediate family tree. And as we mentioned, not a lot of branching there. They're they're keeping it close together. Um, so the, uh, the [[Baal]] cycle, which is our earliest and really only sort of comprehensive sort of story of [[Baal]], of this God, right, and his his antics. Um, comes, as we mentioned on the show before, from the city of Ugarit, uh, which, um, was destroyed, uh, right before the Bronze Age collapse. So probably was at an early part of the Bronze Age collapse. Um, and, uh, so this is, this is the text, and this is, of course, on tablets. Ugaritic, even though it's a Semitic language that's very close to Hebrew, was written in cuneiform. Hm. Um, so this is on tablets in, in cuneiform. And, uh, as we're going to see in a minute, not totally undamaged. It's not totally intact.
 
-**[[Fr. Andrew]]:** [Listen from 13:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=13:59)
+**[[Fr. Andrew]]:** [Listen from [13:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=13:59)
 Yeah. And we should say that Ugarit, I mean, we've mentioned this before, but just to remind especially for those people who don't listen to every single episode. Uh, Ugarit is roughly near the modern city of Latakia in Syria. And the ruins are there. You can go see them.
 
-**[[Fr. Stephen]]:** [Listen from 14:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=14:13)
+**[[Fr. Stephen]]:** [Listen from [14:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=14:13)
 Yeah. Ras Shamra is the name of the place now. Right, where Ugarit was dug up, um, the city-state. So, um, and, and the [[Baal]] cycle is kind of, uh, like one of our episodes in three parts. Um, there are, there are sort of three halves, three sort of movements. Uh, and it's the middle one that's got some damage, um, where everything isn't, isn't totally clear. And we've talked about all three of these parts at various times on the show before. Um, but just to kind of go through them again to get, again because this time we're focusing in on [[Baal]] and then sort of where those different [[Baal]] traditions are going to go, uh, when we get into Greek and even later European, uh, sources. Uh, the first part is sort of about [[Baal]]'s, uh, insurrection, right? And this is, uh, [[Baal]] and his dad are not the bosses.
 
-**[[Fr. Andrew]]:** [Listen from 15:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:18)
+**[[Fr. Andrew]]:** [Listen from [15:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:18)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 15:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:19)
+**[[Fr. Stephen]]:** [Listen from [15:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:19)
 They're part of this big council of gods. Uh, and the people currently in charge are Yam, the sea, right, as representing sort of chaos, and, uh, Nahar, which means river. Right? So there's King Yam and Prince Nahar, right? And Yam is sort of the the most high god who's in charge, and then Nahar is his sort of son who's, um, the one who, uh, um, presides over the council of the gods.
 
-**[[Fr. Andrew]]:** [Listen from 15:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:52)
+**[[Fr. Andrew]]:** [Listen from [15:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:52)
 Yeah, the right-hand man.
 
-**[[Fr. Stephen]]:** [Listen from 15:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:53)
+**[[Fr. Stephen]]:** [Listen from [15:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=15:53)
 Yeah. And Yam also has a couple of, as we've talked about before, Lotan and Rahab, right? He has these sort of sea beasts, right? [[Leviathan]], Lotan, water dragons, who, uh, he's going to end up sicking on [[Baal]] during this insurrection and, and that kind of thing. Um, but so these are sort of not only the previous people in charge, but these are forces of chaos, excuse me, chaos and, uh, destruction, right? Um, so, uh, [[Baal]] tries to start this insurrection. He's trying to fire up, you know, all the other gods to go and, and help him, uh, in his revolution. And these messengers, the word's literally the same word as angel, that's Malak. Um, uh, are sent from, uh, Yam and Nahar, uh, and instantly, uh, all the other gods except [[Baal]] like put their head, literally put their heads between their legs.
 
-**[[Fr. Andrew]]:** [Listen from 16:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=16:59)
+**[[Fr. Andrew]]:** [Listen from [16:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=16:59)
 Right. Like bow down on the ground.
 
-**[[Fr. Stephen]]:** [Listen from 17:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:01)
+**[[Fr. Stephen]]:** [Listen from [17:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:01)
 Right, like... Um, so like, "Oh, no, we're not doing nothing."
 
-**[[Fr. Andrew]]:** [Listen from 17:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:05)
+**[[Fr. Andrew]]:** [Listen from [17:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:05)
 Yeah, we're not with that guy.
 
-**[[Fr. Stephen]]:** [Listen from 17:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:08)
+**[[Fr. Stephen]]:** [Listen from [17:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:08)
 And, uh, so then [[Baal]] like calls them all out as as wussies, right? And gives them sort of this ra-ra speech, right? No, we can do it, right? Um...
 
-**[[Fr. Andrew]]:** [Listen from 17:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:19)
+**[[Fr. Andrew]]:** [Listen from [17:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:19)
 [[Baal]] the motivational speaker.
 
-**[[Fr. Stephen]]:** [Listen from 17:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:21)
-Yeah. And and part of that is him saying repeatedly, [listen from 17:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:25) "Lift up your heads, O ye gods."
+**[[Fr. Stephen]]:** [Listen from [17:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:21)
+Yeah. And and part of that is him saying repeatedly, [listen from [17:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:25) "Lift up your heads, O ye gods."
 
-**[[Fr. Andrew]]:** [Listen from 17:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:27)
+**[[Fr. Andrew]]:** [Listen from [17:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:27)
 Right, right.
 
-**[[Fr. Stephen]]:** [Listen from 17:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:28)
+**[[Fr. Stephen]]:** [Listen from [17:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=17:28)
 Uh, meaning quit bowing down before these, you know, lackeys of of Yam and Nahar. We need to go and, and, uh, win one for the team so they won't call us the Bad News Bears anymore. Um, and, so, of course, they ultimately have this insurrection. [[Baal]] totally wins, right? Totally defeats, uh, Yam and Nahar. Uh, totally makes his dad the boss instead of Yam, right? And he takes Nahar's place in the council of the gods. Now, what's interesting here is that despite El always sort of being there in the background and being the most high God, uh, he doesn't really do anything.
 
-**[[Fr. Andrew]]:** [Listen from 18:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:15)
+**[[Fr. Andrew]]:** [Listen from [18:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:15)
 Yeah. He doesn't show up. I mean, does he show up anywhere in the [[Baal]] cycle?
 
-**[[Fr. Stephen]]:** [Listen from 18:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:21)
+**[[Fr. Stephen]]:** [Listen from [18:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:21)
 Well, he kind of shows up later, but he's not the one doing things and motivating things.
 
-**[[Fr. Andrew]]:** [Listen from 18:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:26)
+**[[Fr. Andrew]]:** [Listen from [18:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:26)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 18:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:27)
+**[[Fr. Stephen]]:** [Listen from [18:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:27)
 Right? And he's not even the one really being worshiped.
 
-**[[Fr. Andrew]]:** [Listen from 18:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:30)
+**[[Fr. Andrew]]:** [Listen from [18:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:30)
 Hm.
 
-**[[Fr. Stephen]]:** [Listen from 18:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:31)
+**[[Fr. Stephen]]:** [Listen from [18:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:31)
 Right? It's [[Baal]] who's the focus of the worship and the temples, even though he's technically in this sort of second position.
 
-**[[Fr. Andrew]]:** [Listen from 18:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:40)
+**[[Fr. Andrew]]:** [Listen from [18:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:40)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 18:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:40)
+**[[Fr. Stephen]]:** [Listen from [18:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=18:40)
 Right? So this is part of the phenomenon that we talked about way back in the long ago time in the early episodes of the show. Um, when we were talking about how, when we were talking about the, um, the [[Tower of Babel]], and we talked about how just anthropologically, right? When you study the origins of religion, you see sort of a primitive monotheism, what we would call primitive monotheism, the idea of of there being one kind of major central most high divine figure in addition to other spirits, but who who is over the top, that that most high God figure sort of retreats into the background.
 
-**[[Fr. Andrew]]:** [Listen from 19:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:24)
+**[[Fr. Andrew]]:** [Listen from [19:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:24)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 19:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:25)
+**[[Fr. Stephen]]:** [Listen from [19:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:25)
 In favor of the worship of what are considered in the stories to be lesser sort of spirits.
 
-**[[Fr. Andrew]]:** [Listen from 19:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:33)
+**[[Fr. Andrew]]:** [Listen from [19:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:33)
 We've talked about sort of why...
 
-**[[Fr. Stephen]]:** [Listen from 19:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:35)
+**[[Fr. Stephen]]:** [Listen from [19:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:35)
 Why that seemed to happen from an anthropological perspective, and then also, obviously, from the story we're told in, in [[Genesis]] 10 and 11.
 
-**[[Fr. Andrew]]:** [Listen from 19:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:44)
+**[[Fr. Andrew]]:** [Listen from [19:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:44)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 19:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:45)
+**[[Fr. Stephen]]:** [Listen from [19:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=19:45)
 Um, but so that happens with El, too. We can see that here with El. Um, so this, this story of [[Baal]]'s insurrection gets kind of rewritten a couple of times in the [[Old Testament]], right? It gets, a, a, a, what seems to very clearly be drawing on elements of this story, but flipping them on their heads. So one of them that we've talked about relatively recently on the show is in [[Ezekiel]] 28, uh, in the prophecy against the king of Tyre.
 
-**[[Fr. Andrew]]:** [Listen from 20:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:17)
+**[[Fr. Andrew]]:** [Listen from [20:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:17)
 Yeah, right.
 
-**[[Fr. Stephen]]:** [Listen from 20:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:18)
+**[[Fr. Stephen]]:** [Listen from [20:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:18)
 Right? Um, so the the [[Baal]] was by that point firmly established as the God of Tyre, right? The central, uh, city in, uh, Phoenicia, um, and center of of Phoenician life. And the king is seen as the son of [[Baal]]. Sometimes literally, we talked about Ben-Hadad, right? Um, Ben-Hadad, uh, he's seen as sort of the the the son, and that's why in the prophecy in [[Ezekiel]] 28, it starts out pretty clearly talking about the king of the city.
 
-**[[Fr. Andrew]]:** [Listen from 20:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:56)
+**[[Fr. Andrew]]:** [Listen from [20:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:56)
 Yeah. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 20:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:57)
+**[[Fr. Stephen]]:** [Listen from [20:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=20:57)
 And then slides very easily into the spiritual king of the city.
 
-**[[Fr. Andrew]]:** [Listen from 21:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:03)
+**[[Fr. Andrew]]:** [Listen from [21:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:03)
 Yeah, I mean it starts and then it starts talking about, you know, this guardian cherub who was in Eden on the mountain of God, you know, being thrown out.
 
-**[[Fr. Stephen]]:** [Listen from 21:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:11)
+**[[Fr. Stephen]]:** [Listen from [21:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:11)
 Right. Right. And so that also describes an insurrection. It's just that [[Baal]] doesn't seem to have totally won.
 
-**[[Fr. Andrew]]:** [Listen from 21:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:17)
+**[[Fr. Andrew]]:** [Listen from [21:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:17)
 Yeah, right. In fact, quite the opposite.
 
-**[[Fr. Stephen]]:** [Listen from 21:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:20)
+**[[Fr. Stephen]]:** [Listen from [21:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:20)
 Right? He's he's hurled down into the underworld.
 
-**[[Fr. Andrew]]:** [Listen from 21:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:23)
+**[[Fr. Andrew]]:** [Listen from [21:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:23)
 Right? Not a great place to be.
 
-**[[Fr. Stephen]]:** [Listen from 21:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:26)
+**[[Fr. Stephen]]:** [Listen from [21:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:26)
 Yeah. Um, so the other place that sort of takes some of these themes that we talked about in one of our previous, uh, Paschal episodes, is Psalm 24 or 23 in the Greek numbering, uh, where, uh, that phrase, "Lift up your heads, O ye gods," uh, gets sort of borrowed and inverted to describe [[Yahweh]] coming and invading the underworld.
 
-**[[Fr. Andrew]]:** [Listen from 21:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:54)
+**[[Fr. Andrew]]:** [Listen from [21:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:54)
 Yeah. Yeah, "Lift up your heads, O ye gates."
 
-**[[Fr. Stephen]]:** [Listen from 21:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:57)
+**[[Fr. Stephen]]:** [Listen from [21:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=21:57)
 That [[Baal]] was cast down to, right? So as he's kicking in the the bronze gates of the underworld, he's sort of mocking [[Baal]]'s ra-ra speech.
 
-**[[Fr. Andrew]]:** [Listen from 22:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:09)
+**[[Fr. Andrew]]:** [Listen from [22:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:09)
 Right. "Oh yeah, you totally won down here. Yeah, now you're going to lose down here too." Right?
 
-**[[Fr. Stephen]]:** [Listen from 22:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:15)
+**[[Fr. Stephen]]:** [Listen from [22:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:15)
 Um, and we talked about how that's that's ultimately fulfilled in [[Christ]]'s harrowing of [[Hades]] and, and that's how it gets into the Paschal ritual and other parts of...
 
-**[[Fr. Andrew]]:** [Listen from 22:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:25)
+**[[Fr. Andrew]]:** [Listen from [22:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:25)
 And Gospel of [[Nicodemus]] has [[Christ]], you know, has that, those words being said during the harrowing of hell.
 
-**[[Fr. Stephen]]:** [Listen from 22:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:32)
+**[[Fr. Stephen]]:** [Listen from [22:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:32)
 Yeah. Yeah. Yeah. And it also gets into the, uh, our liturgics of the [[Ascension]], but we'll talk about that more in a minute.
 
-**[[Fr. Andrew]]:** [Listen from 22:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:38)
+**[[Fr. Andrew]]:** [Listen from [22:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:38)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 22:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:38)
+**[[Fr. Stephen]]:** [Listen from [22:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=22:38)
 Um, so that's sort of that insurrection is is round one. So then round two is [[Baal]] gets into a big fight with Mot, with, uh, Death. And, uh, he has to fight Death because he totally won that other fight. Right?
 
-**[[Fr. Andrew]]:** [Listen from 23:00](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:00)
+**[[Fr. Andrew]]:** [Listen from [23:00](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:00)
 And Death is down there, right? So...
 
-**[[Fr. Stephen]]:** [Listen from 23:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:02)
+**[[Fr. Stephen]]:** [Listen from [23:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:02)
 That's... um, and so part of, part of what's going on in a battle between [[Baal]] and Mot, right? So [[Baal]], as a storm God, the primary element, uh, of of sort of his Godhead has to do with fertility.
 
-**[[Fr. Andrew]]:** [Listen from 23:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:21)
+**[[Fr. Andrew]]:** [Listen from [23:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:21)
 Yeah, right, which may not occur to us as being a storm thing unless we're farmers.
 
-**[[Fr. Stephen]]:** [Listen from 23:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:26)
+**[[Fr. Stephen]]:** [Listen from [23:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:26)
 Right. Yeah. You need to get the rains in their season.
 
-**[[Fr. Andrew]]:** [Listen from 23:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:29)
+**[[Fr. Andrew]]:** [Listen from [23:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:29)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 23:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:30)
+**[[Fr. Stephen]]:** [Listen from [23:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:30)
 Right. Yeah. And that was seen as the masculine aspect. And then you have various goddesses associated with the earth. Mm, yeah. Right? And that's sort of the other fertility aspect.
 
-**[[Fr. Andrew]]:** [Listen from 23:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:43)
+**[[Fr. Andrew]]:** [Listen from [23:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:43)
 Yeah. Right.
 
-**[[Fr. Stephen]]:** [Listen from 23:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:44)
+**[[Fr. Stephen]]:** [Listen from [23:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=23:44)
 So the, the metaphorically, the rain comes down and sort of impregnates the earth and it brings forth life. Right? Is the idea here. Um, and that was enacted in very literal sexual ways in the [[Baal]] cult. Hm. Right? It was sort of enacted with, uh, shrine prostitutes. Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 24:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:07)
+**[[Fr. Andrew]]:** [Listen from [24:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:07)
 Because we have to remember that all these religious stories, that there's a religious ritual participation in them, which often involves, as you said, a reenactment of some element of it.
 
-**[[Fr. Stephen]]:** [Listen from 24:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:16)
+**[[Fr. Stephen]]:** [Listen from [24:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:16)
 Right. In order to get the, you know, that act is then, you know, the the fertility of the land and the rains coming in their season. Um, and, uh, Mot on the other side, right? Is not only death, I mean, that's literally what he's named death. Right? Um, nowhere near as, as cute as the one in, I'm just going to reference Sandman over and over again today.
 
-**[[Fr. Andrew]]:** [Listen from 24:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:45)
+**[[Fr. Andrew]]:** [Listen from [24:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:45)
 I guess I have to watch it now.
 
-**[[Fr. Stephen]]:** [Listen from 24:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:47)
+**[[Fr. Stephen]]:** [Listen from [24:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=24:47)
 Um, all you Neil Gaiman fans. Um, but, uh, he's not only, uh, sort of the God of death, but also of of sterility. Hm, yeah. Right? So the idea of death is so closely associated with famine. Yeah. Right? And with the desert, right? And with a lack of, right? And if if you don't have the next generation of children, then your clan, your your tribe dies, right? Um, so all of those ideas sort of surround Mot. And so that's why that that sterility element is sort of directly opposed to [[Baal]]'s sort of fertility element in a way that might we might not notice at first with a storm God. Why would a storm God and death have an issue? Right? [[Zeus]] and [[Hades]] are bros, I mean. So, um, so in this fight, um, as as I mentioned, this section is the place where we have some breaks in the tablets.
 
-**[[Fr. Andrew]]:** [Listen from 25:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=25:54)
+**[[Fr. Andrew]]:** [Listen from [25:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=25:54)
 Yeah, so we just don't know what the text was.
 
-**[[Fr. Stephen]]:** [Listen from 25:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=25:56)
+**[[Fr. Stephen]]:** [Listen from [25:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=25:56)
 So we don't have all the details, right? So we know that in this battle, Mot swallows [[Baal]]. It's not clear if he's dead. Right. Right.
 
-**[[Fr. Andrew]]:** [Listen from 26:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:07)
+**[[Fr. Andrew]]:** [Listen from [26:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:07)
 When Death swallows you, that makes it sound like you're dead.
 
-**[[Fr. Stephen]]:** [Listen from 26:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:10)
+**[[Fr. Stephen]]:** [Listen from [26:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:10)
 Right? But he could just be inside Mot and still alive, right? Or something.
 
-**[[Fr. Andrew]]:** [Listen from 26:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:18)
+**[[Fr. Andrew]]:** [Listen from [26:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:18)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 26:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:19)
+**[[Fr. Stephen]]:** [Listen from [26:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:19)
 Because what happens is, uh, Anat, his sister-wife, uh, shows up, and, uh, in this order, cuts, cuts Mot in half, right, presumably to get [[Baal]] out, uh, then, uh, runs the two halves through a sieve, then takes what she gets out of the sieve and grinds it up with a grindstone, a giant grindstone. And then takes that and like throws it out as mulch.
 
-**[[Fr. Andrew]]:** [Listen from 26:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:57)
+**[[Fr. Andrew]]:** [Listen from [26:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=26:57)
 It's like scattering ashes when someone's been cremated.
 
-**[[Fr. Stephen]]:** [Listen from 27:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:01)
+**[[Fr. Stephen]]:** [Listen from [27:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:01)
 Yeah. This is why cremation is pagan.
 
-**[[Fr. Andrew]]:** [Listen from 27:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:04)
+**[[Fr. Andrew]]:** [Listen from [27:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:04)
 This is what... Um...
 
-**[[Fr. Stephen]]:** [Listen from 27:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:07)
+**[[Fr. Stephen]]:** [Listen from [27:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:07)
 So, no, so, uh, so that happens. Uh, and this is described then in the text as [[Baal]] totally winning the fight with Mot.
 
-**[[Fr. Andrew]]:** [Listen from 27:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:18)
+**[[Fr. Andrew]]:** [Listen from [27:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:18)
 Yeah. How do you say "totally wins" in Ugaritic?
 
-**[[Fr. Stephen]]:** [Listen from 27:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:24)
+**[[Fr. Stephen]]:** [Listen from [27:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:24)
 Totally wins. Flawless victory. Um, Beshem. And then just decides to stay in the underworld anyway.
 
-**[[Fr. Andrew]]:** [Listen from 27:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:34)
+**[[Fr. Andrew]]:** [Listen from [27:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:34)
 Right. Like it's beautiful beachfront property or something.
 
-**[[Fr. Stephen]]:** [Listen from 27:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:38)
+**[[Fr. Stephen]]:** [Listen from [27:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=27:38)
 Right. Now, I should say there are some people who hypothesize, right, that, uh, this section, and again, I say hypothesize because there's chunks missing, right? Yeah. Hypothesize that this has something to do with the transition from fall to winter to spring.
 
-**[[Fr. Andrew]]:** [Listen from 28:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:01)
+**[[Fr. Andrew]]:** [Listen from [28:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:01)
 Yeah, I mean, you could see in Greek mythology, there is this association of the underworld with that, with the the kidnapping of Persephone and by [[Hades]] and, yeah, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 28:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:10)
+**[[Fr. Stephen]]:** [Listen from [28:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:10)
 So there are people who want to read it that way. You can certainly see how you can get there with what we have. There's also some points of discontinuity, right? Like that it's not that [[Baal]] like emerges from the underworld and we have spring. It's Anat comes and, you know, hacks up, mutilates, and mulches Mot on his behalf.
 
-**[[Fr. Andrew]]:** [Listen from 28:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:38)
+**[[Fr. Andrew]]:** [Listen from [28:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:38)
 We could, yeah, that could be another, uh, you know, another, um, in the next year, uh, for our, uh, you know, [[Cherubim]] zodiac tour, could be the mulching Mot tour.
 
-**[[Fr. Stephen]]:** [Listen from 28:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:48)
+**[[Fr. Stephen]]:** [Listen from [28:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=28:48)
 Yeah, yeah. Yeah, get your Mot mulch this spring. Um, so, yeah, so I mean, could be, kind of hard to tell though for sure.
 
-**[[Fr. Andrew]]:** [Listen from 29:00](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:00)
+**[[Fr. Andrew]]:** [Listen from [29:00](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:00)
 We just don't know. It makes some sense, but we just don't know.
 
-**[[Fr. Stephen]]:** [Listen from 29:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:02)
+**[[Fr. Stephen]]:** [Listen from [29:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:02)
 Yeah. Yeah. So then, uh, the third part, uh, is about, uh, [[Baal]] building a palace, right? [[Baal]] needs a palace because he's totally won all these fights, right? And so Anat is like on a roll and super mad at her dad/father-in-law, uh, El that he hasn't built [[Baal]] a palace already. Right? Because he totally deserves one.
 
-**[[Fr. Andrew]]:** [Listen from 29:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:38)
+**[[Fr. Andrew]]:** [Listen from [29:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:38)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 29:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:39)
+**[[Fr. Stephen]]:** [Listen from [29:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:39)
 Um, and threatens to crack open his skull and murder her father, uh, if he doesn't...
 
-**[[Fr. Andrew]]:** [Listen from 29:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:45)
+**[[Fr. Andrew]]:** [Listen from [29:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:45)
 Father/in-law.
 
-**[[Fr. Stephen]]:** [Listen from 29:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:48)
+**[[Fr. Stephen]]:** [Listen from [29:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=29:48)
 Yes. So [[Baal]] get, [[Baal]] gets his palace, right? Right. And, uh, this underworld palace gives us, we've talked before about chthonic [[Baal]], bull [[Baal]]. Um, and the relation between that and [[Behemoth]] or [[Behemoth]], right? The bull. Um, and I believe we briefly mentioned and we'll only briefly and euphemistically mention here that the particular stuff about chthonic [[Baal]] in the underworld has to do with him, uh, romantically coupling with a heifer.
 
-**[[Fr. Andrew]]:** [Listen from 30:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:27)
+**[[Fr. Andrew]]:** [Listen from [30:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:27)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 30:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:28)
+**[[Fr. Stephen]]:** [Listen from [30:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:28)
 And, uh, that was enacted ritually. Yeah. Not with two animals. Uh, in, um...
 
-**[[Fr. Andrew]]:** [Listen from 30:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:38)
+**[[Fr. Andrew]]:** [Listen from [30:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:38)
 Parental advisory, everybody.
 
-**[[Fr. Stephen]]:** [Listen from 30:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:40)
+**[[Fr. Stephen]]:** [Listen from [30:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=30:40)
 Yes, in, in Ugaritic, um, ritual life. Yeah. Because early paganism was beautiful until Christianity ruined everything. Um, so this sort of culminates in the enthronement of [[Baal]], right? In his, in his palace by El. And, uh, so this bit here, this is how the Psalm 24/23 in Greek, um, material ends up with our, in our [[Ascension]] liturgics.
 
-**[[Fr. Andrew]]:** [Listen from 31:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:18)
+**[[Fr. Andrew]]:** [Listen from [31:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:18)
 Yeah, because it's said in a lot of the, I think it's in the Exaposteilarion for the [[Ascension]], it says it's calling to the angels, "Lift up the gates," because, you know, the the King of Glory is entering.
 
-**[[Fr. Stephen]]:** [Listen from 31:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:30)
+**[[Fr. Stephen]]:** [Listen from [31:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:30)
 Right. And and the idea here is, again, this isn't contradicting the others. This is also throwing it in [[Baal]]'s face.
 
-**[[Fr. Andrew]]:** [Listen from 31:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:37)
+**[[Fr. Andrew]]:** [Listen from [31:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:37)
 Yeah. Yeah. Right?
 
-**[[Fr. Stephen]]:** [Listen from 31:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:39)
+**[[Fr. Stephen]]:** [Listen from [31:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=31:39)
 That it's not [[Baal]] son of El who gets enthroned. Right? That it's it's [[Jesus Christ]], the [[Son of God]], who gets enthroned. Right? Yeah. Um, and so that's a, again, a correction, a corrective rewriting of of the [[Baal]] story. Um, so a few other places where we see our our pal [[Baal]], um, show up in the [[Old Testament]]. Um, we mentioned, uh, and we talked not that long ago on the show about, uh, [[Baal]]-peor or [[Baal]] of Peor, the [[Baal]] of Peor, the high place where Balaam, um, helped instigate the priestesses, shall we say, of that high place to seduce men of [[Israel]] into participating in these fertility rituals related to [[Baal]]. Um, that resulted in a plague falling upon the people, that resulted in, uh, Phinehas, right, becoming the high priest by putting an end to it.
 
-**[[Fr. Andrew]]:** [Listen from 33:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:20)
+**[[Fr. Andrew]]:** [Listen from [33:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:20)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 33:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:21)
+**[[Fr. Stephen]]:** [Listen from [33:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:21)
 Um, probably the most famous place, though, that, uh, [[Baal]] shows up is in the story of the prophet [[Elijah]], St. Elias.
 
-**[[Fr. Andrew]]:** [Listen from 33:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:34)
+**[[Fr. Andrew]]:** [Listen from [33:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:34)
 Right. Where he becomes the patron saint of sarcasm.
 
-**[[Fr. Stephen]]:** [Listen from 33:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:37)
+**[[Fr. Stephen]]:** [Listen from [33:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=33:37)
 Yes. Um, and so, right, Jezebel, right, is the is the queen at that point, right? So Omri, uh, as we mentioned before, Omri from the perspective of just if you go by the archaeological record of the Ancient Near East, Omri is the greatest king [[Israel]], either the northern kingdom or the United Kingdom, ever had.
 
-**[[Fr. Andrew]]:** [Listen from 34:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=34:04)
+**[[Fr. Andrew]]:** [Listen from [34:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=34:04)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 34:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=34:05)
+**[[Fr. Stephen]]:** [Listen from [34:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=34:05)
 He expanded the territory the most, he was the richest, he was the most involved in trade. Uh, he established Samaria as the capital of the northern kingdom. Um, and so part of that, they called, they called [[Israel]] the House of Omri, all the neighbors, right? They didn't call it the House of [[David]], they called it the House of Omri. Um, pretty much until it got wiped out, um, by the Assyrians. So Omri was this very important king. His son is Ahab, right? And so part of his wheeling and dealing and deal-making and international trade and all that was marrying his son to the daughter of the king of Sidon. Right? Tyre and Sidon being the two most important cities in Phoenicia, right, who had the trade empire of the Mediterranean at the time. So this was this major strategic alliance that he arranged. So when we get to the time of [[Elijah]], we have Ahab and and Jezebel in charge. The bel in Jezebel is [[Baal]].
 
-**[[Fr. Andrew]]:** [Listen from 35:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:09)
+**[[Fr. Andrew]]:** [Listen from [35:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:09)
 Yeah, so it's a theophoric, is, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 35:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:11)
+**[[Fr. Stephen]]:** [Listen from [35:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:11)
 Yeah. It's a theophoric name, right? But it's interesting if you look at the dynamic of this story, because like Ahab is technically the king, right?
 
-**[[Fr. Andrew]]:** [Listen from 35:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:21)
+**[[Fr. Andrew]]:** [Listen from [35:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:21)
 Yeah. But is he in charge?
 
-**[[Fr. Stephen]]:** [Listen from 35:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:24)
+**[[Fr. Stephen]]:** [Listen from [35:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:24)
 Yeah, doesn't seem to be doing a lot. It seems like Jezebel's kind of the one doing all the stuff.
 
-**[[Fr. Andrew]]:** [Listen from 35:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:31)
+**[[Fr. Andrew]]:** [Listen from [35:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:31)
 And it's interesting to notice how that parallels the relationship between Anat and [[Baal]]. Hm. Like in the [[Baal]] cycle.
 
-**[[Fr. Andrew]]:** [Listen from 35:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:40)
+**[[Fr. Andrew]]:** [Listen from [35:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:40)
 Yeah, so Anat isn't, you know, some people have this phrase, "a Jezebel woman." It's more that Jezebel's kind of an Anat woman.
 
-**[[Fr. Stephen]]:** [Listen from 35:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:47)
+**[[Fr. Stephen]]:** [Listen from [35:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=35:47)
 Yeah, right? So [[Baal]] has this bloodthirsty sister-wife who seems to be the one doing most of the hacking and killing and threatening and bloodthirsty stuff and all this, uh, in in the [[Baal]] cycle. And he's he's a little more of a passive character at points even though he's supposed to be, you know, become sort of the king of the gods. Um, and we see this kind of enacted with Jezebel and uh Ahab, where Ahab's just kind of like, "Okay, you know." Right? Um, and she's running around slaughtering prophets of of [[Yahweh]] and, um, so she sees the cult of [[Yahweh]], shall we say? Right? The worship of [[Yahweh]]. And I call it, I think it's fair in [[Israel]] to call it the cult of [[Yahweh]] because the way [[Yahweh]] was being worshiped in the northern kingdom, remember, is based on Jeroboam, son of Nebat. Yeah. Right? The first king of the northern kingdom who set up golden calves at Bethel and Dan.
 
-**[[Fr. Andrew]]:** [Listen from 36:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=36:48)
+**[[Fr. Andrew]]:** [Listen from [36:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=36:48)
 Yeah, it was an idolatrous approach to worshiping [[Yahweh]].
 
-**[[Fr. Stephen]]:** [Listen from 36:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=36:53)
+**[[Fr. Stephen]]:** [Listen from [36:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=36:53)
 Yeah. Yeah. So they are worshiping [[Yahweh]] kind of, they're just doing it in a very pagan way that he commanded them not to do it.
 
-**[[Fr. Andrew]]:** [Listen from 37:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:01)
+**[[Fr. Andrew]]:** [Listen from [37:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:01)
 Yeah. Right, over and over. "This is job one."
 
-**[[Fr. Stephen]]:** [Listen from 37:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:05)
+**[[Fr. Stephen]]:** [Listen from [37:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:05)
 Right. Yeah. And and so Jezebel is violently opposed to that even. Right? But most especially her target is the prophets because the prophets of [[Yahweh]] stood outside of that sort of official religion.
 
-**[[Fr. Andrew]]:** [Listen from 37:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:21)
+**[[Fr. Andrew]]:** [Listen from [37:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:21)
 They weren't the priests up at the higher high places. These were guys kind of out in the wilderness.
 
-**[[Fr. Stephen]]:** [Listen from 37:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:26)
+**[[Fr. Stephen]]:** [Listen from [37:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:26)
 Right. Right. So she wasn't keen on the worship of [[Yahweh]] in general, but at least she could kind of control the official stuff, right? Whereas the the prophets were sort of wild cards, right? As as her opponents.
 
-**[[Fr. Andrew]]:** [Listen from 37:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:40)
+**[[Fr. Andrew]]:** [Listen from [37:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:40)
 As prophets tend to be.
 
-**[[Fr. Stephen]]:** [Listen from 37:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:42)
+**[[Fr. Stephen]]:** [Listen from [37:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=37:42)
 We've talked about that, that's the prophetic role. They stand kind of outside that system. Um, so she is all about propagating this fertility cult of [[Baal]], right? And so the the story of the showdown with [[Baal]] actually starts earlier than most people, most people go directly to Mount Carmel. Right? But it's important to the story that that's not actually where it starts. Where it starts is when, uh, the prophet [[Elijah]] comes walking into the throne room and says the equivalent in Hebrew, because it's really rough Hebrew, of, "Not going to rain no more." And then leaves. Yeah, right? "No more rain." "Peace out," right?
 
-**[[Fr. Andrew]]:** [Listen from 38:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=38:26)
+**[[Fr. Andrew]]:** [Listen from [38:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=38:26)
 Right, which, you know, if you're a [[Baal]] worshiper, you believe that [[Baal]] controls the rain.
 
-**[[Fr. Stephen]]:** [Listen from 38:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=38:33)
+**[[Fr. Stephen]]:** [Listen from [38:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=38:33)
 Right. That's the whole point of the fertility cult, right? Is you're going to get the rain to grow your crops, right, with [[Baal]]. Um, so then it it stops raining. And Jezebel has her [[Baal]] priest doing all their [[Baal]] priest stuff, uh, doing all the rituals, doesn't rain, doesn't rain, doesn't rain, doesn't rain. Meanwhile, St. Elias is hanging out in the Kidron Valley being fed by probably ravens. Um, I don't know if I mentioned this on the show before. Here's another ruin your Sunday school.
 
-**[[Fr. Andrew]]:** [Listen from 39:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:08)
+**[[Fr. Andrew]]:** [Listen from [39:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:08)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 39:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:10)
+**[[Fr. Stephen]]:** [Listen from [39:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:10)
 Uh, it is entirely possible to read the consonants there if you take out the Masoretic text's vowels, uh, that, uh, he was being fed by Arabs.
 
-**[[Fr. Andrew]]:** [Listen from 39:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:20)
+**[[Fr. Andrew]]:** [Listen from [39:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:20)
 Oh, I've heard of this before. Yes. That's fun.
 
-**[[Fr. Stephen]]:** [Listen from 39:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:26)
+**[[Fr. Stephen]]:** [Listen from [39:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:26)
 But, you know, our iconography depicts ravens, so we'll go with that.
 
-**[[Fr. Andrew]]:** [Listen from 39:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:30)
+**[[Fr. Andrew]]:** [Listen from [39:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:30)
 We're going to go with that. They're Arabic-speaking ravens.
 
-**[[Fr. Stephen]]:** [Listen from 39:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:34)
+**[[Fr. Stephen]]:** [Listen from [39:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=39:34)
 Sometimes, sometimes the Masoretic vowel points are correct. Right. Probably most of the time, to all you opponents of the Masoretic text. Yeah, probably most of the time. Um, so, uh, but he's there being fed, he's got water, right? He's okay. Um, so the the the final culmination then, right? That's that's really sort of the the opening battles is, "Hey, this whole fertility thing he can't really deliver on."
 
-**[[Fr. Andrew]]:** [Listen from 40:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:04)
+**[[Fr. Andrew]]:** [Listen from [40:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:04)
 Yeah, right, which is sort of the main thing.
 
-**[[Fr. Stephen]]:** [Listen from 40:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:06)
+**[[Fr. Stephen]]:** [Listen from [40:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:06)
 Yeah. Your god is weak. But then the the sort of the final battle is what happens at Mount Carmel, right? And the final battle is related to who controls the thunderbolt, right? Thunderbolts and lightning, very, very frightening. Right? So this is sort of the symbol of [[Baal]]'s power. And I know I've already ruined this Sunday school, uh, on the show before, but if you haven't heard that episode, I'll ruin it for you now. Uh, and that is that the fire from heaven that they're talking about, uh, on Mount Carmel with with [[Elijah]] and the prophets of [[Baal]], uh, that's lightning.
 
-**[[Fr. Andrew]]:** [Listen from 40:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:47)
+**[[Fr. Andrew]]:** [Listen from [40:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:47)
 Lightning. It's not some big fiery spiral. Like you see in the movies.
 
-**[[Fr. Stephen]]:** [Listen from 40:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:52)
+**[[Fr. Stephen]]:** [Listen from [40:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=40:52)
 There's no word for electricity. Yeah. Right? Because, you know, lightning strikes, it sets things on fire.
 
-**[[Fr. Andrew]]:** [Listen from 41:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:01)
+**[[Fr. Andrew]]:** [Listen from [41:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:01)
 Yeah, right. So obviously it comes from the heavens, right? Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 41:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:05)
+**[[Fr. Stephen]]:** [Listen from [41:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:05)
 Yeah. Yeah. Um, so this is about who controls the thunderbolt, the symbol of his power. So he can't deliver on the fertility thing, right? So let's go straight for his manhood, right? For his power, right? Um, and this is why, then you get the the prophets of [[Baal]] trying to get him to throw a thunderbolt and light their sacrifice on fire. And you get, uh, all the great sarcasm of maybe he's going to the bathroom.
 
-**[[Fr. Andrew]]:** [Listen from 41:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:35)
+**[[Fr. Andrew]]:** [Listen from [41:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:35)
 Right. Maybe he's on vacation.
 
-**[[Fr. Stephen]]:** [Listen from 41:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:38)
+**[[Fr. Stephen]]:** [Listen from [41:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=41:38)
 On a trip. Um, and then, you know, you get, um, [[Prophet Elijah]] doubling down and soaking everything with water and, you know, filling a moat of water around the, um, and all this. And then still, right? It gets kablooied, right, by the thunderbolt comes. And then, that's not the end of the story. Then it starts raining. Yeah. Right? Then it starts pouring down rain.
 
-**[[Fr. Andrew]]:** [Listen from 42:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:08)
+**[[Fr. Andrew]]:** [Listen from [42:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:08)
 And that's after the people always also say, [[Yahweh]] is God.
 
-**[[Fr. Stephen]]:** [Listen from 42:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:12)
+**[[Fr. Stephen]]:** [Listen from [42:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:12)
 Right.
 
-**[[Fr. Andrew]]:** [Listen from 42:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:13)
+**[[Fr. Andrew]]:** [Listen from [42:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:13)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 42:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:14)
+**[[Fr. Stephen]]:** [Listen from [42:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=42:14)
 So he is, he is the one who, right, um, has the ability to do this and and controls this, not [[Baal]], right? Um, and then the the other place where we briefly is in the story that's part of the [[Daniel]] traditions, where exactly it is in the book of [[Daniel]], etc. will vary depending on your version of the book of [[Daniel]]. Even if it's in [[Daniel]], will depend on your version of the book of [[Daniel]]. But, uh, the story of Bel and the Dragon, right? The Bel there, as with the name Jezebel, is, um, the Neo-Babylonian incorporation of [[Baal]] sort of into their pantheon. Um, we talked before about how pantheons don't sort of really exist. Right? Right? Like there's it's not like, you know, the Greeks were all sitting around and they all believed there were these 12 guys and ladies hanging around on Mount Olympus, right?
 
-**[[Fr. Andrew]]:** [Listen from 43:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:37)
+**[[Fr. Andrew]]:** [Listen from [43:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:37)
 I mean, it's not like in Clash of the Titans?
 
-**[[Fr. Stephen]]:** [Listen from 43:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:39)
+**[[Fr. Stephen]]:** [Listen from [43:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:39)
 No.
 
-**[[Fr. Andrew]]:** [Listen from 43:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:40)
+**[[Fr. Andrew]]:** [Listen from [43:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:40)
 Oh, man. Either version.
 
-**[[Fr. Stephen]]:** [Listen from 43:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:43)
+**[[Fr. Stephen]]:** [Listen from [43:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=43:43)
 Um, right. But so what happened was individual places and clans and tribes and cities had their individual gods. And as they form alliances and as these larger units, right, especially empires get established, they then incorporate, right, sort of the the various deities and spirits, right? And so you'll see like, for example, just in Mesopotamia, you've got Southern Mesopotamia is Sumer, Northern Mesopotamia is Akkad. And for a few millennia BC, which one of those was in power sort of goes back and forth.
 
-**[[Fr. Andrew]]:** [Listen from 44:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=44:24)
+**[[Fr. Andrew]]:** [Listen from [44:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=44:24)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 44:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=44:24)
+**[[Fr. Stephen]]:** [Listen from [44:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=44:24)
 And as it does, you find these stories of their gods where some of their gods become the most high god and then aren't anymore and get replaced by somebody else. And that's because different cities come rise and fall in power and different political realities, right? And so they believe that those political realities reflect these sort of spiritual realities, right? That there's a direct, a direct relationship, right? And so when Nabopolassar and his son [[Nebuchadnezzar]], or Nebuchadrezzar is actually more accurate, Nabukudurri-usur, um...
 
-**[[Fr. Andrew]]:** [Listen from 45:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=45:03)
+**[[Fr. Andrew]]:** [Listen from [45:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=45:03)
 Nabukodonosor.
 
-**[[Fr. Stephen]]:** [Listen from 45:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=45:04)
+**[[Fr. Stephen]]:** [Listen from [45:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=45:04)
 As they, as they, um, uh, put together what it becomes called the Neo-Babylonian Empire. It's Neo-Babylonian because, of course, Hammurabi's Babylonian Empire was, uh, was, uh, more than a, well, about a thousand years before that. Um, uh, as that empire gets put together, they not only have the traditional gods of Sumer and Akkad and, and Babylonia, but they expand to the west. Yeah. And so they start incorporating these Canaanite traditions and deities into their, and so Bel, [[Baal]] gets brought in as Bel. And then there's a whole, the Neo-Babylonian Empire only lasts about three generations. So there isn't a lot of time for stuff to happen. But there's very clearly an attempt being made to try to assimilate Bel and [[Marduk]] together.
 
-**[[Fr. Andrew]]:** [Listen from 46:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=46:05)
+**[[Fr. Andrew]]:** [Listen from [46:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=46:05)
 Yeah. And I recall, um, in the Bel and the Dragon, uh, text in that's in the Greek [[Daniel]], um, I can't remember now off the top of my head which king it was, goes to worship [[Baal]] specifically to kind of connect to him as the local God, right?
 
-**[[Fr. Stephen]]:** [Listen from 46:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=46:24)
+**[[Fr. Stephen]]:** [Listen from [46:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=46:24)
 Yeah. Yeah. Yeah. And so, um, yeah, and so Bel and [[Marduk]], like [[Marduk]] has a very similar succession myth story to [[Baal]]. Yeah. Is the issue. And so there's sort of this attempt, well, are they the same guy maybe? Right? Like, how do we, you know, fit this together? How do we, how do we assimilate this, uh, West Semitic stuff, right, into our, into our East Semitic stuff? Uh, but again, it doesn't sort of last long enough for that to fully happen. Yeah. But the worship of [[Baal]] in some of those areas in what's now Lebanon, Syria, what's now Iraq, right, Mesopotamia, continues until the 2nd or 3rd century AD.
 
-**[[Fr. Andrew]]:** [Listen from 47:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:12)
+**[[Fr. Andrew]]:** [Listen from [47:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:12)
 Wow. That's...
 
-**[[Fr. Stephen]]:** [Listen from 47:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:13)
+**[[Fr. Stephen]]:** [Listen from [47:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:13)
 And we have classical sources, including priests who write about it and describe it at that sort of late stage.
 
-**[[Fr. Andrew]]:** [Listen from 47:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:22)
+**[[Fr. Andrew]]:** [Listen from [47:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:22)
 Wow. That's even with Romans present in all those areas.
 
-**[[Fr. Stephen]]:** [Listen from 47:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:27)
+**[[Fr. Stephen]]:** [Listen from [47:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:27)
 Yeah. Yeah. And so, in that late stage, of course, it's assimilated with a lot of back and forth, there's been back and forth assimilation with a lot of Greek stuff.
 
-**[[Fr. Andrew]]:** [Listen from 47:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:40)
+**[[Fr. Andrew]]:** [Listen from [47:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:40)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 47:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:40)
+**[[Fr. Stephen]]:** [Listen from [47:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:40)
 Um, which, uh, will lead us into...
 
-**[[Fr. Andrew]]:** [Listen from 47:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:44)
+**[[Fr. Andrew]]:** [Listen from [47:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:44)
 Yeah, exactly. On the second half. Exactly. All right, we're going to take a short break and we'll be back with [[Zeus]]. See ya.
 
-**[[Fr. Andrew]]:** [Listen from 47:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:53)
+**[[Fr. Andrew]]:** [Listen from [47:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=47:53)
 [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young will be back in a moment to take your calls on the second half of The [[Lord of Spirits]]. Give them a call at 855-237-2346. That's 855-AF-RADIO.
 
 New from Ancient Faith Publishing, Secret Turning: A Collection of Short Stories by Stephen Senori. "So, I'm out in the lot at Odo Heaven, and up comes Father Naum from behind, grabs me, gives me a kiss, and tells me he's happy to see me, wearing his worn-out dungaree bib overalls with a beat-up straw Stetson, pulling his wire basket, going shopping on the avenue. 'How old is Naum anyway?' Sharkey asked. 'Older than he acts,' Lefty said. Two-beer Eddie said, 'Yeah, and younger than he seems.' So he says to me, 'Theodori, the church is much better when you're there. It's not the whole family when we don't see you. You know, God misses his children.' And none of Olga misses her son." Now available in paperback, ebook, and audiobook at store.ancientfaith.com.
@@ -637,1025 +637,1025 @@ We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damic
 
 Welcome to the second half of our episode on Thunder Gods. Normally, we would start to take your calls, but this is a pre-recorded episode, so no calls for this particular episode. So we just wrapped up talking about [[Baal]] and how [[Baal]] worship continued on even into a couple of centuries in after [[Christ]]. Um, so, uh, and there are, you know, classical commentaries on some of that. So connecting to the ancient Greco-Roman world. So now we're going to start talking about [[Zeus]]. So what's the deal with good old [[Zeus]], [[Father Stephen]]?
 
-**[[Fr. Stephen]]:** [Listen from 50:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:13)
+**[[Fr. Stephen]]:** [Listen from [50:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:13)
 Yes. Well, we have to, we have to disambiguate here. Okay. Right? [[Zeus]] is not to be confused with Dr. Zaius, who is an orangutan who bears an uncanny resemblance to the lawgiver, but was never a Greek god.
 
-**[[Fr. Andrew]]:** [Listen from 50:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:31)
+**[[Fr. Andrew]]:** [Listen from [50:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:31)
 Wow. There might be people from the 70s listening.
 
-**[[Fr. Stephen]]:** [Listen from 50:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:38)
+**[[Fr. Stephen]]:** [Listen from [50:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:38)
 Who knows? Wow. Not many. But somebody.
 
-**[[Fr. Andrew]]:** [Listen from 50:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:42)
+**[[Fr. Andrew]]:** [Listen from [50:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:42)
 Man, I haven't thought about, I haven't thought about those movies in a long, long time.
 
-**[[Fr. Stephen]]:** [Listen from 50:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:49)
+**[[Fr. Stephen]]:** [Listen from [50:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:49)
 Masterpieces. Yes. At least the first couple. At least the first one.
 
-**[[Fr. Andrew]]:** [Listen from 50:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:54)
+**[[Fr. Andrew]]:** [Listen from [50:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=50:54)
 At least the first 20 minutes, or something, no. Written by Rod Serling, most people don't know that.
 
-**[[Fr. Andrew]]:** [Listen from 51:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:01)
+**[[Fr. Andrew]]:** [Listen from [51:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:01)
 I feel like Charlton Heston is a thread that runs through a lot of our conversations kind of in the background, you know.
 
-**[[Fr. Stephen]]:** [Listen from 51:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:08)
+**[[Fr. Stephen]]:** [Listen from [51:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:08)
 Well, yeah, yeah. If I can find a way to work the Omega Man into this. The Omega Man is the worst remake of that story, by the way.
 
-**[[Fr. Andrew]]:** [Listen from 51:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:15)
+**[[Fr. Andrew]]:** [Listen from [51:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:15)
 Oh, I haven't seen that one. I am, I am Legend, the story by Richard Matheson has been adapted into film three times. Once as The Last Man on Earth with Vincent Price, which is actually the closest adaptation of the actual story. Once as The Omega Man, starring Charlton Heston, which has very little to do with the actual story. And, uh, a third as I Am Legend with Will Smith.
 
-**[[Fr. Andrew]]:** [Listen from 51:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:45)
+**[[Fr. Andrew]]:** [Listen from [51:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:45)
 Wow. Which the alternate ending, if you watch it with the alternate ending is decently close to the original story. With the theatrical ending is not.
 
-**[[Fr. Andrew]]:** [Listen from 51:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:57)
+**[[Fr. Andrew]]:** [Listen from [51:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=51:57)
 I have not seen any of those films. Even the Will Smith one.
 
-**[[Fr. Stephen]]:** [Listen from 52:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:01)
+**[[Fr. Stephen]]:** [Listen from [52:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:01)
 You are missing out. Richard Matheson is an unsung writing hero. He wrote most of your favorite episodes of Twilight Zone. He wrote Somewhere in Time.
 
-**[[Fr. Andrew]]:** [Listen from 52:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:13)
+**[[Fr. Andrew]]:** [Listen from [52:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:13)
 Oh, Somewhere in Time with um, Christopher Reeve?
 
-**[[Fr. Stephen]]:** [Listen from 52:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:18)
+**[[Fr. Stephen]]:** [Listen from [52:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:18)
 Chris Reeves.
 
-**[[Fr. Andrew]]:** [Listen from 52:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:19)
+**[[Fr. Andrew]]:** [Listen from [52:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:19)
 And uh, Jane Seymour.
 
-**[[Fr. Stephen]]:** [Listen from 52:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:21)
+**[[Fr. Stephen]]:** [Listen from [52:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:21)
 Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 52:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:21)
+**[[Fr. Andrew]]:** [Listen from [52:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:21)
 Uh, my mother, God rest her soul, she loved that movie. So I've watched it a few times when I was young.
 
-**[[Fr. Stephen]]:** [Listen from 52:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:28)
+**[[Fr. Stephen]]:** [Listen from [52:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:28)
 Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 52:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:29)
+**[[Fr. Andrew]]:** [Listen from [52:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:29)
 Yeah. Wow. So, that's a throwback right there.
 
-**[[Fr. Stephen]]:** [Listen from 52:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:33)
+**[[Fr. Stephen]]:** [Listen from [52:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:33)
 We've gone a bit far afield. So research the works of Richard Matheson, listeners.
 
-**[[Fr. Andrew]]:** [Listen from 52:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:37)
+**[[Fr. Andrew]]:** [Listen from [52:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:37)
 Back to [[Zeus]].
 
-**[[Fr. Stephen]]:** [Listen from 52:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:38)
+**[[Fr. Stephen]]:** [Listen from [52:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=52:38)
 You got to do something in between episodes of [[Lord of Spirits]]. You could read the works or watch the filmed works of Richard Matheson. There you go. Um, but now to [[Zeus]], um, he's loose. Um, as we mentioned before, uh, on the show, um, within this weird construct that I think is generally bogus of Western civilization, uh, Greece is often seen as sort of the first Western civilization. It's more accurately seen as sort of the last ancient Near Eastern civilization.
 
-**[[Fr. Andrew]]:** [Listen from 53:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:23)
+**[[Fr. Andrew]]:** [Listen from [53:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:23)
 Yeah, which you've said that before and and always generates a little round of questions. "Why is he saying that?" To stick it to the Greeks. No.
 
-**[[Fr. Stephen]]:** [Listen from 53:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:32)
+**[[Fr. Stephen]]:** [Listen from [53:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:32)
 To classical Greece. I don't know that that's bad for the Greeks. I don't think that's bad.
 
-**[[Fr. Andrew]]:** [Listen from 53:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:36)
+**[[Fr. Andrew]]:** [Listen from [53:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:36)
 I don't think so either. You know, the pinnacle of an earlier civilization as opposed to the, you know, initial stage of another one. You know, why not be the pinnacle?
 
-**[[Fr. Stephen]]:** [Listen from 53:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:46)
+**[[Fr. Stephen]]:** [Listen from [53:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=53:46)
 Um, but yeah, sort of here, here's sort of some of the nitty gritty of what that means and how that works, right? So there is, um, and a lot of this is, a lot of this is is tricky because when we talk about early Indo-European stuff, right? Um, we don't have a ton of written sources.
 
-**[[Fr. Andrew]]:** [Listen from 54:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=54:14)
+**[[Fr. Andrew]]:** [Listen from [54:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=54:14)
 Yeah, I mean, a lot of it is, a lot of it is, a lot of it's philological, which is, you know, they sort of reconstruct proto-Indo-European linguistic roots by looking at modern languages and kind of working backwards from there with a whole lot of, you know, if you look at linguistic, um, texts, folks, you'll see little asterisks sometimes in front of roots and stuff. And that means that we don't actually know that that root existed, but it's our best guess based on where those languages went. And so, you know, like you said, there's not a lot of written sources because writing just isn't around, uh, in in that period. And so a lot of it is, pretty good conjecture from working backwards, you know, from from later instantiations of things. But again, it's conjecture. We don't really know, right? We're just kind of making a guess based on, okay, like we see all these civilizations that are kind of outgrowths of Indo-European civilization that seem, for instance, to have the idea that cows are sacred. And so we work back from there and and, oh, by the way, look, here's an archaeological dig that has a bull's head in it. So, okay, maybe they worshiped some kind of bull deity, you know? That's the idea. That's how it goes.
 
-**[[Fr. Stephen]]:** [Listen from 55:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=55:33)
+**[[Fr. Stephen]]:** [Listen from [55:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=55:33)
 Yeah. And and the stuff we do have tends to be very specific, right? So like we have Sanskrit sources, right? Like in in India, but how how close together cultural, culturally really are sort of the early Minoans and the people of the Indus River Valley?
 
-**[[Fr. Andrew]]:** [Listen from 55:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=55:56)
+**[[Fr. Andrew]]:** [Listen from [55:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=55:56)
 Yeah, we don't super know.
 
-**[[Fr. Stephen]]:** [Listen from 55:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=55:57)
+**[[Fr. Stephen]]:** [Listen from [55:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=55:57)
 Right? Because we're geographically, obviously, a lot has happened in terms of migration and stuff. So a lot may have happened in terms of language, beliefs, culture.
 
-**[[Fr. Andrew]]:** [Listen from 56:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:06)
+**[[Fr. Andrew]]:** [Listen from [56:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:06)
 I mean, you know, just just think about, you know, the Indo-European language, uh, you know, family, you know, is is the largest in the world. And think of how different our language and culture as English speakers is from Persian speakers, is from Latvian speakers, is from, you know, I mean, all of these are Indo-European languages and once represented a single culture probably.
 
-**[[Fr. Stephen]]:** [Listen from 56:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:32)
+**[[Fr. Stephen]]:** [Listen from [56:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:32)
 Mandarin Chinese, right?
 
-**[[Fr. Andrew]]:** [Listen from 56:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:34)
+**[[Fr. Andrew]]:** [Listen from [56:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:34)
 Well, Mandarin's not connected, but yes. But yes, right.
 
-**[[Fr. Stephen]]:** [Listen from 56:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:38)
+**[[Fr. Stephen]]:** [Listen from [56:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=56:38)
 Um, so, um, the, uh, so what we have is there's an Indo-European layer, right, sort of at the bottom of Greek culture. Right? Right. But everything we find, essentially, that distinguishes Greek culture from sort of early Indo-European culture in general, right, is all stuff that seems to have come out of ancient Near Eastern culture. Hm. Right? Meaning what distinguishes Greek culture from the I'm talking about from the earliest phases, right? Like linear B, right? Like our earliest written Greek sources, um, from the Mycenaeans. What distinguishes that from other Indo-European cultures is all stuff that's been assimilated from their ancient Near Eastern neighbors, which were far larger, more established, and more developed cultures at the time that Indo-Europeans migrated into the Hellas Pond, into, um, Western Asia Minor, right? When they sort of arrived there, right? Um, so there are two sort of main places where this happens, and it happens in sort of two different directions. So at the Bronze Age collapse, right, so the 11th century BC, um, civilization collapses, at least in the area around the Mediterranean, but really worldwide.
 
-**[[Fr. Andrew]]:** [Listen from 58:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:24)
+**[[Fr. Andrew]]:** [Listen from [58:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:24)
 Yeah. And if you're and folks, if you're interested in a really long exploration of this, we once again recommend the Fall of Civilizations podcast, which has a whole episode on the Bronze Age collapse. Yeah. Like hours long.
 
-**[[Fr. Stephen]]:** [Listen from 58:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:36)
+**[[Fr. Stephen]]:** [Listen from [58:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:36)
 Yeah. And there are a ton of factors, including, including all the way back in the Bronze Age, climate change.
 
-**[[Fr. Andrew]]:** [Listen from 58:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:45)
+**[[Fr. Andrew]]:** [Listen from [58:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:45)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 58:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:45)
+**[[Fr. Stephen]]:** [Listen from [58:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=58:45)
 Right? Climate patterns changed and it caused certain land that used to be used to grow food to no longer be able to grow food, which caused people to start migrating. And when people start migrating, that causes things like wars. Because they usually migrate to some place where there's already people.
 
-**[[Fr. Andrew]]:** [Listen from 59:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:02)
+**[[Fr. Andrew]]:** [Listen from [59:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:02)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 59:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:03)
+**[[Fr. Stephen]]:** [Listen from [59:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:03)
 Um, and so all kinds of things have, there's a chain reaction, all kinds of things going on. But the the the whole thing sort of comes crashing down. And part of that is what's referred to, um, by historians as the Sea Peoples invasion. So there's a group of people, they're called the Sea Peoples not because they're like, uh...
 
-**[[Fr. Andrew]]:** [Listen from 59:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:24)
+**[[Fr. Andrew]]:** [Listen from [59:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:24)
 Mer-men?
 
-**[[Fr. Stephen]]:** [Listen from 59:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:25)
+**[[Fr. Stephen]]:** [Listen from [59:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:25)
 ...the Sea Monkeys family in in your in your old comic book. Right?
 
-**[[Fr. Andrew]]:** [Listen from 59:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:31)
+**[[Fr. Andrew]]:** [Listen from [59:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:31)
 Oh, man. I knew someone who actually bought sea monkeys and raised them. I was like, "Is that real?"
 
-**[[Fr. Stephen]]:** [Listen from 59:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:36)
+**[[Fr. Stephen]]:** [Listen from [59:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=59:36)
 And got like krill. Yeah. Right. Um, it's it's because they came from the Mediterranean. They came from the sea in boats, right? Uh, and um, we don't know where all of the sea peoples came from, but we know several of the groups were from Crete, uh, which means Philistines are also Cretans. Um, uh, and other Greek islands, right, um, and other places in that area and migrated south. And they they attempted to invade [[Egypt]], that didn't go so well. And they ended up settling along the coast of the Levant. And that's where the Philistines come from. That's most likely where the tribe of Dan comes from. Uh, they get assimilated. But like the tribe of Dan, that gets partially assimilated, I guess. They stay kind of pagan. Um, what happens over time, we see this with the Philistines archaeologically, the very earliest tier of like their pottery and their crafts and that kind of thing is looks Mycenaean. Hmm. Right? It's like confirmatory of their origin.
 
-**[[Fr. Andrew]]:** [Listen from 1:00:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:00:48)
+**[[Fr. Andrew]]:** [Listen from 1:[00:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:00:48)
 Yeah, so yeah, so that's part of how we know where they're from.
 
-**[[Fr. Stephen]]:** [Listen from 1:00:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:00:51)
+**[[Fr. Stephen]]:** [Listen from 1:[00:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:00:51)
 Yeah. And but then as over the centuries, as they're living in the ancient Near East, their pottery patterns and methods change, these things change and shift to sort of mirror their neighbors. Right? So they kind of assimilate into the ancient Near Eastern culture, the Canaanite culture over time. And part of how that happens is that the place where places where we've found their oldest stuff is often in temples to their gods, they will have these like Mycenaean pottery pieces and, you know, chariot pins made out of bronze, right? Things made out of bronze that they can't, they can't get bronze anymore, right? But so it's just or like knives, household implements and stuff, like made out of bronze, right? Because it's just this is this ancient technology that we don't really have anymore, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:01:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:01:57)
+**[[Fr. Andrew]]:** [Listen from 1:[01:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:01:57)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:01:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:01:58)
+**[[Fr. Stephen]]:** [Listen from 1:[01:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:01:58)
 And those things by virtue of being old and reflecting their past and their heritage sort of come to be seen as sacred. Hm. And the ones that sort of survive, they start putting in their temples, right? As their as their older things. So there the assimilation goes one way where any, you know, Greek aspect of their identity past a certain point disappears. Right? So when you look at the story of Goliath, Goliath's armor is still described as basically Mycenaean bronze armor. Hmm. Right? So he sort of has this ancient this ancient technology armor. It's sort of like he's got a magic item in every slot, right? Um from their perspective, because they already couldn't make any more of that. But so it's just this symbol of he sort of represents not just as a giant but as right, someone with his arm, he represents this ancient antediluvian civilization, right? Um, so that goes the one way. The the greater influence on Greek culture goes the other way and primarily happens in Asia Minor. Hm. Right? So people tend to forget that from a very early fate, before, this isn't something that happened with [[Alexander the Great]] when he came and conquered everything. Uh, that the the western end of Asia Minor, of what's now Turkey, were all Greek city-states.
 
-**[[Fr. Andrew]]:** [Listen from 1:03:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:28)
+**[[Fr. Andrew]]:** [Listen from 1:[03:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:28)
 Yeah, right, right.
 
-**[[Fr. Stephen]]:** [Listen from 1:03:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:31)
+**[[Fr. Stephen]]:** [Listen from 1:[03:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:31)
 Right? Troy, that's where Troy is.
 
-**[[Fr. Andrew]]:** [Listen from 1:03:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:33)
+**[[Fr. Andrew]]:** [Listen from 1:[03:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:33)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 1:03:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:34)
+**[[Fr. Stephen]]:** [Listen from 1:[03:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:34)
 Right? That's where Midas was king. That's where Croesus was king.
 
-**[[Fr. Andrew]]:** [Listen from 1:03:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:38)
+**[[Fr. Andrew]]:** [Listen from 1:[03:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:38)
 I mean, this is where, this is where, uh, when St. [[Ignatius of Antioch]], you know, at the beginning of the 2nd century, possibly late 1st century, where he's stopping and writing his letters from and to occasionally as well. Like these are all Greek places.
 
-**[[Fr. Stephen]]:** [Listen from 1:03:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:52)
+**[[Fr. Stephen]]:** [Listen from 1:[03:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:52)
 Yeah. Yeah. But they are places that [[Alexander]] took over and sort of hellenized. Yeah, they were...
 
-**[[Fr. Stephen]]:** [Listen from 1:03:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:57)
+**[[Fr. Stephen]]:** [Listen from 1:[03:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:57)
 They were always Greek.
 
-**[[Fr. Andrew]]:** [Listen from 1:03:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:58)
+**[[Fr. Andrew]]:** [Listen from 1:[03:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:58)
 Independent, yeah, exactly.
 
-**[[Fr. Stephen]]:** [Listen from 1:03:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:59)
+**[[Fr. Stephen]]:** [Listen from 1:[03:59](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:03:59)
 Yeah. Um, and if you go east in Asia Minor over land there, you run into, you know, the Hittites, you run into, right, Syrians, you run into... So at the border there through trade and cultural interaction, right, Greece sort of assimilates a lot of this from these older, these older, uh, cultures, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:04:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:31)
+**[[Fr. Andrew]]:** [Listen from 1:[04:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:31)
 Just like how in Cyprus you can get raised eating kippe.
 
-**[[Fr. Stephen]]:** [Listen from 1:04:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:36)
+**[[Fr. Stephen]]:** [Listen from 1:[04:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:36)
 Yes. Yeah. And and this isn't, this isn't something that like, oh, we've now uncovered the truth through archaeology. Right? Like you look at where Plato thinks Greek culture came from. Plato thinks Greek culture came from [[Egypt]] and from [[Babylon]].
 
-**[[Fr. Andrew]]:** [Listen from 1:04:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:49)
+**[[Fr. Andrew]]:** [Listen from 1:[04:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:49)
 Oh, crazy. I did not know that.
 
-**[[Fr. Stephen]]:** [Listen from 1:04:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:52)
+**[[Fr. Stephen]]:** [Listen from 1:[04:52](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:52)
 Right? Like they were kind of aware of this, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:04:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:56)
+**[[Fr. Andrew]]:** [Listen from 1:[04:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:56)
 Yeah. Like...
 
-**[[Fr. Stephen]]:** [Listen from 1:04:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:57)
+**[[Fr. Stephen]]:** [Listen from 1:[04:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:04:57)
 Um, so they saw themselves as the successors of these ancient Near Eastern civilizations, not as doing some new thing.
 
-**[[Fr. Andrew]]:** [Listen from 1:05:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:05)
+**[[Fr. Andrew]]:** [Listen from 1:[05:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:05)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 1:05:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:06)
+**[[Fr. Stephen]]:** [Listen from 1:[05:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:06)
 Um, so, um, that's sort of what, what I'm talking about, this is the nitty-gritty, right, what I when I say that it's the last ancient Near Eastern civilization, right? These are the sort of the concrete ways that influence takes place. And the figure of [[Zeus]], finally now, right, is one place where we see this, right? Because the origin of [[Zeus]]'s name is in that Indo-European layer.
 
-**[[Fr. Andrew]]:** [Listen from 1:05:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:35)
+**[[Fr. Andrew]]:** [Listen from 1:[05:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:35)
 Yeah, right.
 
-**[[Fr. Stephen]]:** [Listen from 1:05:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:37)
+**[[Fr. Stephen]]:** [Listen from 1:[05:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:05:37)
 So in that Indo-European layer, one of the constants you have is you have a divine sky and a divine earth, right? The sky generally depicted in masculine terms, the earth in feminine terms. And, uh, this part, you find this piece of that Indo-European layer in later Greek stories in the form of your your first beings, right? In in like Hesiod are Ouranos, the heavens, right? The sky, and Gaia, Gaea, the earth.
 
-**[[Fr. Andrew]]:** [Listen from 1:06:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:17)
+**[[Fr. Andrew]]:** [Listen from 1:[06:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:17)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 1:06:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:18)
+**[[Fr. Stephen]]:** [Listen from 1:[06:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:18)
 Right? Masculine and feminine, they mate, right? Um, this takes the form of sort of a bull and a cow, right? In a lot of the, uh, proto-Indo-European stuff. But so the names of for the divine sky in these Indo-European languages, right? The very early stage they're Diaos and Diaos, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:06:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:43)
+**[[Fr. Andrew]]:** [Listen from 1:[06:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:43)
 Right. Yeah. I mean...
 
-**[[Fr. Stephen]]:** [Listen from 1:06:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:45)
+**[[Fr. Stephen]]:** [Listen from 1:[06:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:45)
 That becomes Deus in Latin. Right? The word for God in general, and [[Zeus]], right? [[Zeus]] in Greek.
 
-**[[Fr. Andrew]]:** [Listen from 1:06:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:51)
+**[[Fr. Andrew]]:** [Listen from 1:[06:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:06:51)
 Right. And and Greek. Yeah, I mean the the Indo-European root, again this is one of these asterisked roots everybody, right? Is is spelled usually d-y-e-w, that's the stem that means sky, "dyeu." But then you get "dyeuos" is the... "deiwos," "deiwos," is sort of the, again, it's it's it's conjecture, but it's very very good conjecture. Um, that that's the ancient proto-Indo-European root stem for God is "deiwos," derived from this word for sky.
 
-**[[Fr. Stephen]]:** [Listen from 1:07:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:07:34)
+**[[Fr. Stephen]]:** [Listen from 1:[07:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:07:34)
 Yeah.
 
-**[[Fr. Andrew]]:** [Listen from 1:07:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:07:35)
+**[[Fr. Andrew]]:** [Listen from 1:[07:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:07:35)
 Yeah. I should mention modern Lithuanian, "dievas." So it's almost exactly like the the Sanskrit and very very close to the Indo-European.
 
-**[[Fr. Stephen]]:** [Listen from 1:07:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:07:46)
+**[[Fr. Stephen]]:** [Listen from 1:[07:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:07:46)
 So yeah, so that so that's the Indo-European layer, right? Yep. Um, and that's where the name gets sort of plucked out of, right? But then you also have this Semitic tier where we where we see parallel to like the El and [[Baal]], right? Where there's sort of this high god who's the father of the other, but it's the the the other, the storm god who's sort of the one who's really worshiped and is sort of in charge of the council of the gods. Hm. Um, and you see that manifest in the form of Kronos and [[Zeus]].
 
-**[[Fr. Andrew]]:** [Listen from 1:08:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:23)
+**[[Fr. Andrew]]:** [Listen from 1:[08:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:23)
 Yeah, and I mean, if you think about that in terms of imagery, right? You've got the sky and then storms coming out of the sky. Right? Like you can see how that idea of sort of storms and thunder and lightning is sort of derived from this larger image of the sky.
 
-**[[Fr. Stephen]]:** [Listen from 1:08:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:38)
+**[[Fr. Stephen]]:** [Listen from 1:[08:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:38)
 Yeah. Yeah. And Kronos too, by the way, um, because you use the constellations and the sun, moon, and stars to tell time.
 
-**[[Fr. Andrew]]:** [Listen from 1:08:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:45)
+**[[Fr. Andrew]]:** [Listen from 1:[08:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:45)
 Time, right. Yeah. To measure time.
 
-**[[Fr. Stephen]]:** [Listen from 1:08:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:48)
+**[[Fr. Stephen]]:** [Listen from 1:[08:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:08:48)
 And that of course is Saturn and Jupiter if you're, um, more, uh, Latin-focused folks. Um, and of course that's very obviously, um, the the the whole Roman thing is weird, uh, because, um, Roman paganism you mean. Right. Yeah. Well, hey, everything about them. Um, if you watch Italian films, it's just, anyway. Um, so I'm sure all of our Italian film aficionados are unsubscribing from the podcast right now.
 
-**[[Fr. Stephen]]:** [Listen from 1:09:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:09:25)
+**[[Fr. Stephen]]:** [Listen from 1:[09:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:09:25)
 Yes, all the Fellini fans have just written me off completely. Um, so, uh, actually Italian zombie movies are really good. I take it all back. Okay. Um, so, uh, so because you you have the Etruscans who are sort of the the precursors of the the Romans, right? And Etruscan religion is very much in the Indo-European mold. Like a very straight Indo-European mold. And then when you once you get to something that even starts resembling the Romans, it's just assimilated Greek.
 
-**[[Fr. Andrew]]:** [Listen from 1:10:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:08)
+**[[Fr. Andrew]]:** [Listen from 1:[10:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:08)
 Yeah, right? They're just using these old probably Etruscan names. And it's you know, yeah, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:10:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:15)
+**[[Fr. Stephen]]:** [Listen from 1:[10:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:15)
 But in some cases not even that, for example. Jupiter, right? So if [[Zeus]] and Jupiter are generally considered to be kind of the same person, but the name Jupiter is actually derived from the Greek Iapeter. Yeah, which...
 
-**[[Fr. Stephen]]:** [Listen from 1:10:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:31)
+**[[Fr. Stephen]]:** [Listen from 1:[10:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:31)
 Which means which means Sky Father. But who within Greek myth is the ancestor of all humans?
 
-**[[Fr. Andrew]]:** [Listen from 1:10:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:37)
+**[[Fr. Andrew]]:** [Listen from 1:[10:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:37)
 So sort of like the [[Adam]] figure.
 
-**[[Fr. Stephen]]:** [Listen from 1:10:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:39)
+**[[Fr. Stephen]]:** [Listen from 1:[10:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:39)
 Right. And interestingly is linguistically identical to Japheth, who according to the genealogies following the flood of [[Noah]] in [[Genesis]] is the father of the Indo-Europeans.
 
-**[[Fr. Andrew]]:** [Listen from 1:10:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:54)
+**[[Fr. Andrew]]:** [Listen from 1:[10:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:54)
 There you go.
 
-**[[Fr. Stephen]]:** [Listen from 1:10:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:56)
+**[[Fr. Stephen]]:** [Listen from 1:[10:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:10:56)
 Um, so they all point to the same ancestor, right? It's just again, the Greek and then the the Roman culture have made that ancestor divine. Hmm. Right?
 
-**[[Fr. Andrew]]:** [Listen from 1:11:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:11)
+**[[Fr. Andrew]]:** [Listen from 1:[11:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:11)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 1:11:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:12)
+**[[Fr. Stephen]]:** [Listen from 1:[11:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:12)
 Um, so [[Zeus]] then, uh, has a birthplace. He actually has several, but um, he's considered to have a birthplace, right? So this already is a different conception of the divine than what you find with, right? Like say [[Yahweh]].
 
-**[[Fr. Andrew]]:** [Listen from 1:11:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:35)
+**[[Fr. Andrew]]:** [Listen from 1:[11:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:35)
 Yeah, who has no beginning.
 
-**[[Fr. Stephen]]:** [Listen from 1:11:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:36)
+**[[Fr. Stephen]]:** [Listen from 1:[11:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:36)
 Who has and and has no birthplace.
 
-**[[Fr. Andrew]]:** [Listen from 1:11:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:39)
+**[[Fr. Andrew]]:** [Listen from 1:[11:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:39)
 Yeah, right. There's not a spot.
 
-**[[Fr. Stephen]]:** [Listen from 1:11:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:41)
+**[[Fr. Stephen]]:** [Listen from 1:[11:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:11:41)
 Right? Like, um, and so there there are several of these. Kronos and Rhea, right, are are [[Zeus]]'s parents in Hesiod's Theogony. Um, the first cave that's identified as the birthplace of [[Zeus]] is on Crete. That's the Dictaean Cave. That goes back all the way back to Minoan civilization. And was a shrine, right? As as [[Zeus]]'s birthplace. Um, later on at different periods in history, Mount Ida and Mount Aegion, uh, also claim to have caves that they claim are the place where [[Zeus]] was either born or hidden from his father. We'll get back to that in a second. Um, so there are sort of in in what comes to be [[Zeus]], right? As he's as the spirit is perceived in in, uh, classical Greek culture, there are actually three elements that get assimilated together. So one, we've talked about a couple, one is that sky god figure, right? That's a fatherly sky god, most high god figure. One of those is the storm god or the thunder god, right? Who is the son of Kronos, right? And then the third part is, and this is what's reflected in the birthplaces and in the caves and in the particular locations, is an actual human king and founder figure within Minoan civilization on Crete. And there are a few places here and there that actually refer to this, classical sources, that [[Zeus]] at some point had been human. Had been a human, right? This founder figure. So all three of those get assimilated together. And it's that human king, who the memory is kind of preserved of, that causes [[Zeus]] to be depicted in the way he's generally depicted. Hmm. Right? Meaning as a human or humanoid, right? In sort of human form. He's sort of a old man's head on a ripped young guy's body, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:13:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:13:58)
+**[[Fr. Andrew]]:** [Listen from 1:[13:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:13:58)
 Right. That's [[Zeus]]. That's, that's sort of how he comes to be be depicted later. Um, but that's as as distinct from, right? So we mentioned way back in the long ago time on the show that originally the Greek gods were also theriomorph. They also had animal forms.
 
-**[[Fr. Andrew]]:** [Listen from 1:14:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:19)
+**[[Fr. Andrew]]:** [Listen from 1:[14:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:19)
 Yeah, like the Egyptian gods.
 
-**[[Fr. Stephen]]:** [Listen from 1:14:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:21)
+**[[Fr. Stephen]]:** [Listen from 1:[14:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:21)
 Right. And and so we we mentioned then cow-eyed Hera. Right? Which I mean, I I've been corrected on that. I've made jokes about cow-eyed Hera not being an attractive image, uh, but a bunch of random anime fans have told me that I'm just dead wrong. Um, but I'll leave that there. Um, so it happened. It's a thing that happened. I was corrected by anime fans. I'm just reporting.
 
-**[[Fr. Andrew]]:** [Listen from 1:14:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:57)
+**[[Fr. Andrew]]:** [Listen from 1:[14:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:57)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 1:14:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:58)
+**[[Fr. Stephen]]:** [Listen from 1:[14:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:14:58)
 Um, but so the idea was that she had some kind of cow form. We talked about the bull-cow imagery, right? And so it is the assimilation of that human king into [[Zeus]] that causes him not to be depicted as a bull, like bull [[Baal]], for example, right? Uh, even when [[Baal]] is in sort of a humanoid form, he often has bull horns. Right? In depictions. Um, so this is what causes him to be depicted in sort of this human way, is this human king who he's kind of visually patterned after in most of our uh representations. So, part of the issue with understanding this and sort of sorting out the traditions is that uh, we get most of our when you when you read a book about Greek mythology, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:15:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:15:50)
+**[[Fr. Andrew]]:** [Listen from 1:[15:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:15:50)
 Yes, like Edith Hamilton for instance. Which yeah, which is funny because the book is called "Mythology" and then it's all Greek mythology and then there's like a half a chapter at the end about Norse mythology. And nothing else.
 
-**[[Fr. Stephen]]:** [Listen from 1:16:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:01)
+**[[Fr. Stephen]]:** [Listen from 1:[16:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:01)
 Or like Bulfinch, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:16:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:02)
+**[[Fr. Andrew]]:** [Listen from 1:[16:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:02)
 Yeah, Bulfinch's, yeah, yeah. I mean, I grew up on this stuff. It's it's, you know, it's a good starting point, but should not be an end point.
 
-**[[Fr. Stephen]]:** [Listen from 1:16:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:11)
+**[[Fr. Stephen]]:** [Listen from 1:[16:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:11)
 Yeah. Most of what you're getting is Hesiod.
 
-**[[Fr. Andrew]]:** [Listen from 1:16:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:14)
+**[[Fr. Andrew]]:** [Listen from 1:[16:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:14)
 Yeah, Hesiod's version of all this stuff.
 
-**[[Fr. Stephen]]:** [Listen from 1:16:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:17)
+**[[Fr. Stephen]]:** [Listen from 1:[16:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:17)
 Right. A lot of it is from his Theogony, right? The origin of the gods, the birth of the gods, right? And he's the one who puts together all these family relationships, right? And and relates all this stuff. And so again, because people have tended to see Greek religion as if it were sort of this united thing. "Oh, yes, we believe in these 12 gods who formed a club, right? And the Olympians." Um, they they take what Hesiod is writing, they sort of read it as if it were the Greek Bible.
 
-**[[Fr. Andrew]]:** [Listen from 1:16:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:51)
+**[[Fr. Andrew]]:** [Listen from 1:[16:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:51)
 Yeah. And we should, we should mention he's he's 7th, 8th century BC, roughly contemporaneous with Homer.
 
-**[[Fr. Stephen]]:** [Listen from 1:16:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:58)
+**[[Fr. Stephen]]:** [Listen from 1:[16:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:16:58)
 With Homer. Right? So he's the definitely the earliest written source we have on this stuff, right? In any kind of systematic way.
 
-**[[Fr. Andrew]]:** [Listen from 1:17:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:06)
+**[[Fr. Andrew]]:** [Listen from 1:[17:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:06)
 Right, right, right.
 
-**[[Fr. Stephen]]:** [Listen from 1:17:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:06)
+**[[Fr. Stephen]]:** [Listen from 1:[17:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:06)
 We have plenty of religious tablets in linear B, but they're just like little ritual tablets. And a lot of times it's ambiguous exactly what's going on. Um, here's what I mean by that. I'll give you an example. So one of the, one of the ritual tablets from Knossos on Crete in linear B is describing, it's a ritual in which this young woman is taken and made basically a bride of Poseidon. And is given to him. Okay? It's kind of ambiguous exactly what they're doing to her.
 
-**[[Fr. Andrew]]:** [Listen from 1:17:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:43)
+**[[Fr. Andrew]]:** [Listen from 1:[17:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:43)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:17:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:44)
+**[[Fr. Stephen]]:** [Listen from 1:[17:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:44)
 Right. Um, it very much reads like they're sacrificing her.
 
-**[[Fr. Andrew]]:** [Listen from 1:17:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:48)
+**[[Fr. Andrew]]:** [Listen from 1:[17:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:48)
 Yeah. But even that is kind of ambiguous.
 
-**[[Fr. Stephen]]:** [Listen from 1:17:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:51)
+**[[Fr. Stephen]]:** [Listen from 1:[17:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:51)
 I mean, are they throwing her in the ocean and drowning her? Are they...
 
-**[[Fr. Andrew]]:** [Listen from 1:17:55](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:55)
+**[[Fr. Andrew]]:** [Listen from 1:[17:55](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:55)
 Is she being used by a priest of the temple?
 
-**[[Fr. Stephen]]:** [Listen from 1:17:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:58)
+**[[Fr. Stephen]]:** [Listen from 1:[17:58](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:17:58)
 I mean, yeah, is she chained to a rock and the Kraken comes and eats her? Is uh, Yeah. right? Like, it's not totally clear. Or, or is she just like she's giving up her life to serve as a priestess in the temple?
 
-**[[Fr. Andrew]]:** [Listen from 1:18:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:11)
+**[[Fr. Andrew]]:** [Listen from 1:[18:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:11)
 Yeah. Right?
 
-**[[Fr. Stephen]]:** [Listen from 1:18:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:12)
+**[[Fr. Stephen]]:** [Listen from 1:[18:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:12)
 There's lots of ways you can go with it. And the language, all we have is this tablet.
 
-**[[Fr. Andrew]]:** [Listen from 1:18:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:17)
+**[[Fr. Andrew]]:** [Listen from 1:[18:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:17)
 Yeah, and everyone just at the time just sort of just knows what that means because they've seen it.
 
-**[[Fr. Stephen]]:** [Listen from 1:18:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:22)
+**[[Fr. Stephen]]:** [Listen from 1:[18:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:22)
 Right. Yeah. And so we and we don't have the stories and those kind of things connected to it. So that's what I mean when I say with Hesiod, you get a kind of a systematic portrayal at least.
 
-**[[Fr. Andrew]]:** [Listen from 1:18:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:33)
+**[[Fr. Andrew]]:** [Listen from 1:[18:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:33)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 1:18:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:34)
+**[[Fr. Stephen]]:** [Listen from 1:[18:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:34)
 So most of the English summaries like Bulfinch's or Edith Hamilton or whatever, they're basically cribbing from Hesiod.
 
-**[[Fr. Andrew]]:** [Listen from 1:18:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:40)
+**[[Fr. Andrew]]:** [Listen from 1:[18:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:40)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:18:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:41)
+**[[Fr. Stephen]]:** [Listen from 1:[18:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:18:41)
 Right? They're taking Hesiod, they're putting it into more contemporary English and and turning it into a sort of straightforward English narrative, right? Nothing wrong with that, right? But but what Hesiod is doing is not sort of writing a single story. He's making this sort of patchwork quilt, right, out of all of the stories and religious forms from a whole bunch of different Greek city-states.
 
-**[[Fr. Andrew]]:** [Listen from 1:19:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:08)
+**[[Fr. Andrew]]:** [Listen from 1:[19:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:08)
 Yeah, which are inconsistent with each other.
 
-**[[Fr. Stephen]]:** [Listen from 1:19:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:10)
+**[[Fr. Stephen]]:** [Listen from 1:[19:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:10)
 Yeah, and tribes and clans. And he's got these Indo-European bits and these Semitic assimilated bits that don't quite match up and and all this, right? And so he's trying to then construct out of that one sort of overarching story. Right? This is, this is, remember how history was done in the ancient world.
 
-**[[Fr. Andrew]]:** [Listen from 1:19:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:32)
+**[[Fr. Andrew]]:** [Listen from 1:[19:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:32)
 Yeah, we've had this conversation before.
 
-**[[Fr. Stephen]]:** [Listen from 1:19:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:34)
+**[[Fr. Stephen]]:** [Listen from 1:[19:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:19:34)
 We've now come and identified ourselves as this people, right? And so what is the story of all of us together as a people? And that's got to be sewn together from all of our individual stories. Right? Now that we've we've come together as this unit. And so that's what he's doing. And so how does he then, for example, pull together this Kronos-[[Zeus]], right? El-[[Baal]], these two figures, and the the Ouranos, uh, Gaia, bull, cow, sky, earth, right? How does he pull all these things together? He uses the succession myth to kind of turn this into three generations of gods.
 
-**[[Fr. Andrew]]:** [Listen from 1:20:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:23)
+**[[Fr. Andrew]]:** [Listen from 1:[20:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:23)
 Yeah, but as far as we know, that wasn't a thing before he did it.
 
-**[[Fr. Stephen]]:** [Listen from 1:20:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:28)
+**[[Fr. Stephen]]:** [Listen from 1:[20:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:28)
 Right. These were separate traditions before he did it.
 
-**[[Fr. Andrew]]:** [Listen from 1:20:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:33)
+**[[Fr. Andrew]]:** [Listen from 1:[20:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:33)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:20:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:34)
+**[[Fr. Stephen]]:** [Listen from 1:[20:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:20:34)
 Right? And so he turns this into three generations of gods where Kronos castrates Ouranos or Uranus. Um, and, uh, then, you know, there's the whole story with Kronos eating his children and [[Zeus]], you know, gets fed a rock and [[Zeus]] gets hidden in the cave and right? And so that very much depicts it as in Hesiod, it's very much like Kronos versus [[Zeus]].
 
-**[[Fr. Andrew]]:** [Listen from 1:21:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:02)
+**[[Fr. Andrew]]:** [Listen from 1:[21:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:02)
 Right?
 
-**[[Fr. Stephen]]:** [Listen from 1:21:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:02)
+**[[Fr. Stephen]]:** [Listen from 1:[21:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:02)
 [[Zeus]] has to like overthrow his father to become king of the gods.
 
-**[[Fr. Andrew]]:** [Listen from 1:21:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:08)
+**[[Fr. Andrew]]:** [Listen from 1:[21:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:08)
 Keeps repeating, the the succession myth.
 
-**[[Fr. Stephen]]:** [Listen from 1:21:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:11)
+**[[Fr. Stephen]]:** [Listen from 1:[21:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:11)
 Right. But we find attestations all over the place, including centuries later, like in Plato and in Philo of Byblos, that talk about Kronos and [[Zeus]].
 
-**[[Fr. Andrew]]:** [Listen from 1:21:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:23)
+**[[Fr. Andrew]]:** [Listen from 1:[21:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:23)
 Yeah, so Kronos as kind of the chief God and [[Zeus]] as his right-hand man/son. Yeah, exactly.
 
-**[[Fr. Stephen]]:** [Listen from 1:21:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:28)
+**[[Fr. Stephen]]:** [Listen from 1:[21:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:28)
 Or who presides in the council of the gods. That whole that old that old, uh, you know, ancient Near Eastern pattern.
 
-**[[Fr. Stephen]]:** [Listen from 1:21:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:34)
+**[[Fr. Stephen]]:** [Listen from 1:[21:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:34)
 Right. That pattern of like El and [[Baal]]. But that continues to exist, right? It's not that everybody says, "Oh, we're all just going to go with Hesiod now."
 
-**[[Fr. Andrew]]:** [Listen from 1:21:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:42)
+**[[Fr. Andrew]]:** [Listen from 1:[21:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:42)
 Right?
 
-**[[Fr. Stephen]]:** [Listen from 1:21:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:43)
+**[[Fr. Stephen]]:** [Listen from 1:[21:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:21:43)
 That still exists. And so you find like Plato in the Laws, uh, and in the Crito, he talks about how there was this golden age when Kronos and [[Zeus]] were, were, working together, right? And governing, governing the world. Um, and so that's a very different picture than what Hesiod gives, right? Because Hesiod is finding ways to incorporate these multiple traditions together. Right? So, um, both of those traditions continue to exist separately despite that sort of stitching.
 
-**[[Fr. Andrew]]:** [Listen from 1:22:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:18)
+**[[Fr. Andrew]]:** [Listen from 1:[22:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:18)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:22:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:18)
+**[[Fr. Stephen]]:** [Listen from 1:[22:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:18)
 And so we can't take the English Greek mythology we've read and project that into the past as like, "Oh, this is what the Greeks believed."
 
-**[[Fr. Andrew]]:** [Listen from 1:22:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:28)
+**[[Fr. Andrew]]:** [Listen from 1:[22:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:28)
 Yeah, like this single systematic religion. They just had.
 
-**[[Fr. Stephen]]:** [Listen from 1:22:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:31)
+**[[Fr. Stephen]]:** [Listen from 1:[22:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:31)
 Right? Like they read Hesiod, like they'd have a reading from Hesiod when they got together to worship at the temple, right? Like we we kind of want to try to Christianize it, right? And it's not remotely similar.
 
-**[[Fr. Andrew]]:** [Listen from 1:22:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:42)
+**[[Fr. Andrew]]:** [Listen from 1:[22:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:42)
 I mean, that stuff is useful, but we we just got to remember that's just a starting point just because you've read that doesn't mean you know that mythology.
 
-**[[Fr. Stephen]]:** [Listen from 1:22:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:50)
+**[[Fr. Stephen]]:** [Listen from 1:[22:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:22:50)
 Right. Yeah. Yeah. Um, so, uh, to talk about some more sort of [[Zeus]] traditions where there are sort of parallels, right, in the in the scriptures. Um, so, uh, I'll go ahead and say it, uh, [[Zeus]] is portrayed in a lot of the stories as a shape-shifting rapist.
 
-**[[Fr. Andrew]]:** [Listen from 1:23:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:12)
+**[[Fr. Andrew]]:** [Listen from 1:[23:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:12)
 You know, that's the thing. I'll I'll I'll just say this right now, okay? That's the thing that when, I mean, I have no problem taking shots at neo-paganism. The more I study it. But that's the thing that like there are neo-pagans who want to worship [[Zeus]]. And I'm like, "You want to worship a shape-shifting rapist?" Like you can't get around that. Like this is, this is even in the Edith Hamilton stuff. Okay? It's not, you know, right. Like, what?
 
-**[[Fr. Stephen]]:** [Listen from 1:23:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:40)
+**[[Fr. Stephen]]:** [Listen from 1:[23:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:40)
 And you you you're doing that to get away from the way Christianity has supposedly oppressed women.
 
-**[[Fr. Andrew]]:** [Listen from 1:23:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:45)
+**[[Fr. Andrew]]:** [Listen from 1:[23:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:45)
 Right. Like, come on. So we're going to go worship Harvey Weinstein. Right? Like, what?
 
-**[[Fr. Andrew]]:** [Listen from 1:23:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:51)
+**[[Fr. Andrew]]:** [Listen from 1:[23:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:23:51)
 Right. Yeah. Sorry. Rent over for the moment. I'm just like, like, come on. Have you read it? Have you read the source? Like, even the dumb down version for kids, he does not come off well. I remember, I remember hearing though when, I know we're off on this now. When, um, the Hercules movie came out in Greece, apparently there were riots because of the way that they they depicted, you know, these these Greek pagan traditions were so off. You know, like [[Zeus]] is a loving dad. I'm like, he's a lot of things. He is not a loving dad. Bogus. Yeah. Sorry. Okay, okay.
 
-**[[Fr. Stephen]]:** [Listen from 1:24:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:24:34)
+**[[Fr. Stephen]]:** [Listen from 1:[24:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:24:34)
 Much much more like, uh, Hercules, uh, the legendary journeys before Kevin Sorbo went insane. Um...
 
-**[[Fr. Andrew]]:** [Listen from 1:24:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:24:41)
+**[[Fr. Andrew]]:** [Listen from 1:[24:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:24:41)
 Yes. Where's Xena in all this? Where's Xena, Warrior Princess? Yeah, yeah. Lucy Lawless, what was she, she was just in something. Just acting.
 
-**[[Fr. Andrew]]:** [Listen from 1:25:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:01)
+**[[Fr. Andrew]]:** [Listen from 1:[25:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:01)
 She was in Parks and Recreation. Yeah. Yeah. Sorry, I need a moment here. Okay, all right. refocus.
 
-**[[Fr. Stephen]]:** [Listen from 1:25:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:10)
+**[[Fr. Stephen]]:** [Listen from 1:[25:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:10)
 [[Zeus]], the worst ever. Yeah. So yeah, yeah. But so those stories, those stories are are ultimately the the sort of late Greek version, assimilation of the the origin of the giants. Right? Of the Apkallu stories from [[Babylon]]. Right? This is sort of the late form they take because what do you have? You have [[Zeus]], this divine figure going to mortal women who he gets a hankering for and and impregnating them and they give birth to these sort of demigods and heroes, mighty men of renown.
 
-**[[Fr. Andrew]]:** [Listen from 1:25:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:54)
+**[[Fr. Andrew]]:** [Listen from 1:[25:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:54)
 Right. [[Genesis]] 6.
 
-**[[Fr. Stephen]]:** [Listen from 1:25:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:56)
+**[[Fr. Stephen]]:** [Listen from 1:[25:56](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:25:56)
 Uh, this is the same kind of story. And one of the evidences, one of the connecting tissues here is that the Apkallu, for example, are all theriomorph. Yeah, meaning beast-formed. Starting with the very first one who is is like half fish, right? Um, and you notice in these stories when [[Zeus]] does this for no apparent reason, with no apparent logic in the story, he transforms into some kind of animal.
 
-**[[Fr. Andrew]]:** [Listen from 1:26:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:26:27)
+**[[Fr. Andrew]]:** [Listen from 1:[26:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:26:27)
 Right. Yeah, it's weird. Like, uh, you know, there's the um, the swan. So I mean, so [[Zeus]] is like a were-swan, a were-bull, and a were-snake.
 
-**[[Fr. Stephen]]:** [Listen from 1:26:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:26:42)
+**[[Fr. Stephen]]:** [Listen from 1:[26:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:26:42)
 Yeah. But yeah, but like I mean, it's it's kind of counterintuitive, right? Like, if you're a guy, I mean, yes, your head looks like an old dude, but like you've got the ripped young body. Right? And you're going to go try and seduce a a woman, you turn into a swan? Right? This is somewhat counterintuitive.
 
-**[[Fr. Andrew]]:** [Listen from 1:27:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:02)
+**[[Fr. Andrew]]:** [Listen from 1:[27:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:02)
 Yeah. Yeah. Leda and the woman, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:27:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:06)
+**[[Fr. Stephen]]:** [Listen from 1:[27:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:06)
 It's it's maintaining the sort of theriomorph status of the divine beings in those older stories and retaining the fact that this is kind of a cross-species thing happening, right? That this is a mixture, an unclean mixture of things, right? Yeah. Right? So it's a way, that shapeshifting element is a way of maintaining those elements from those those older story, the older versions of the story.
 
-**[[Fr. Andrew]]:** [Listen from 1:27:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:42)
+**[[Fr. Andrew]]:** [Listen from 1:[27:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:42)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:27:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:42)
+**[[Fr. Stephen]]:** [Listen from 1:[27:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:27:42)
 It's so weird. Um, so more giant stuff, right? Um, so you have, not just through Hesiod, but you have this idea, and this is, this is common, I mean, you always have a, the succession myth sort of always has this. You find this also sometimes in other Indo-European later developments too, where you have sort of two tiers of divine beings. Um, but when you put that together with the succession myth, you end up with something like the Titans. Right? You've got the Titans, you've got the gods. And the Titans are sort of this earlier tier.
 
-**[[Fr. Andrew]]:** [Listen from 1:28:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:28:37)
+**[[Fr. Andrew]]:** [Listen from 1:[28:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:28:37)
 Right. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:28:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:28:38)
+**[[Fr. Stephen]]:** [Listen from 1:[28:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:28:38)
 Of gods that sort of went awry, right? And of course, they get imprisoned in [[Tartarus]]. Um, the one place in the [[New Testament]] where the term [[Tartarus]] shows up, uh, it's where [[St. Peter]] is referring to the place where, um, the [[Watchers]], the angels who sinned in [[Genesis]] 6 are imprisoned. Um, that's where he drops [[Tartarus]]. So he, [[St. Peter]] makes that direct connection. Um, so you have this earlier tier that's imprisoned, but they are were seen as, uh, the children of Gaia. Hm. Right? The earth. And so she is angry about it, right? There's a lot of angry, violent women in ancient paganism.
 
-**[[Fr. Andrew]]:** [Listen from 1:29:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:26)
+**[[Fr. Andrew]]:** [Listen from 1:[29:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:26)
 Yeah. Right? It's not just Anat.
 
-**[[Fr. Stephen]]:** [Listen from 1:29:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:29)
+**[[Fr. Stephen]]:** [Listen from 1:[29:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:29)
 Right. Like, Gaia sort of loses it. Hera is always going around trying to kill off [[Zeus]]'s illegitimate progeny.
 
-**[[Fr. Andrew]]:** [Listen from 1:29:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:38)
+**[[Fr. Andrew]]:** [Listen from 1:[29:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:38)
 And their moms. Or turn them into spiders or... no, that's not, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:29:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:44)
+**[[Fr. Stephen]]:** [Listen from 1:[29:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:29:44)
 Yeah. Um, and Gaia becomes sort of the mother of monsters, right? In order to avenge the Titans. Right? To take vengeance for the Titans. So she brings forth the giants, which leads to the gigantomachy. And then finally, she brings forth Typhon, who is sort of this giant beast that rises out of the sea and that is made up of all of these horrible animal parts.
 
-**[[Fr. Andrew]]:** [Listen from 1:30:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:30:07)
+**[[Fr. Andrew]]:** [Listen from 1:[30:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:30:07)
 Right. Kind of like the, uh, not the Demogorgon on, uh, Stranger Things, like the actual one, the real one from Dungeons and Dragons. Um...
 
-**[[Fr. Stephen]]:** [Listen from 1:30:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:30:23)
+**[[Fr. Stephen]]:** [Listen from 1:[30:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:30:23)
 That's the real one. But that's, that's the real one. And Typhon is this beast from the sea that's sort of wreaking destruction on behalf of these fallen angelic beings. Uh, shows up both in [[Daniel]] and [[Revelation]] in the form of the beasts, the sort of theriomorph beast that come up out of the sea.
 
-**[[Fr. Andrew]]:** [Listen from 1:30:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:30:46)
+**[[Fr. Andrew]]:** [Listen from 1:[30:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:30:46)
 Right? Are sort of referencing this. And in the case of [[Daniel]], it's talking about the Seleucids, the Greeks. In the case of [[Revelation]], it's talking about Rome. And they're again sort of subverting the story where in the mind of the Romans, for example, Rome, civilization, the greatness of Rome reflects the divine, right? Reflects their gods who defeated Typhon, who defeated the giants.
 
-**[[Fr. Andrew]]:** [Listen from 1:31:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:31:16)
+**[[Fr. Andrew]]:** [Listen from 1:[31:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:31:16)
 Right? That's sort of their...
 
-**[[Fr. Stephen]]:** [Listen from 1:31:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:31:18)
+**[[Fr. Stephen]]:** [Listen from 1:[31:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:31:18)
 And so when St. [[John]] flips that around and says, "No, you guys are the chaos monster," right? Rome is the beast from the sea. Rome is the chaos monster. Rome is [[Leviathan]]. Yeah. Right? That's whose power you represent. That's the spirit that you're enacting in the world. Right? That's a flip. And [[Daniel]] is doing the same thing, right? With with, uh, the Greeks and the other empires, other world empires who he depicts. So there's another place where our [[Zeus]] stories hook up. Um, another one that we've mentioned before on the show when we were talking about the Apkallu and we were talking about, uh, [[Genesis]] 6 and sort of the revelation of this divine knowledge to humans is the Prometheus story. Um, now notice though in the Prometheus story, who's the good guy and who's the bad guy kind of gets flipped.
 
-**[[Fr. Andrew]]:** [Listen from 1:32:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:14)
+**[[Fr. Andrew]]:** [Listen from 1:[32:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:14)
 Yeah, right? Prometheus is like an Apkallu giving that secret knowledge to human beings, fire, whatever. Uh, you know, and humans love him for that. Thank you, Prometheus. But...
 
-**[[Fr. Stephen]]:** [Listen from 1:32:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:26)
+**[[Fr. Stephen]]:** [Listen from 1:[32:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:26)
 It makes the gods mad. Right? So you have this divine being who reveals the forbidden knowledge to humanity. He here is the good guy. Right? And the mean old God comes and, right, imprisons him and and punishes him for it.
 
-**[[Fr. Andrew]]:** [Listen from 1:32:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:41)
+**[[Fr. Andrew]]:** [Listen from 1:[32:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:41)
 Yeah. Eternally. It's almost, I mean, it's almost a Christian narrative. Right? You know, that, although, except it's, you know, the good guys and bad guys are flipped, but...
 
-**[[Fr. Stephen]]:** [Listen from 1:32:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:51)
+**[[Fr. Stephen]]:** [Listen from 1:[32:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:51)
 Yeah. Making a good example of, uh, pro-devil propaganda.
 
-**[[Fr. Andrew]]:** [Listen from 1:32:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:57)
+**[[Fr. Andrew]]:** [Listen from 1:[32:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:32:57)
 Pro-devil propaganda. Exactly. "No, this is good. This was good when he did this."
 
-**[[Fr. Stephen]]:** [Listen from 1:33:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:33:02)
+**[[Fr. Stephen]]:** [Listen from 1:[33:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:33:02)
 And so, relatedly, right? Another connection here is in, uh, at the beginning of the book of [[Revelation]], in the letters to the seven churches, there's a letter to, uh, Pergamos or Pergamum, depending on whether you're using the Greek or the Latin name. Um, where, uh, St. [[John]] refers to them living in the shadow of the throne of [[Satan]].
 
-**[[Fr. Andrew]]:** [Listen from 1:33:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:33:25)
+**[[Fr. Andrew]]:** [Listen from 1:[33:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:33:25)
 Yeah, right.
 
-**[[Fr. Stephen]]:** [Listen from 1:33:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:33:27)
+**[[Fr. Stephen]]:** [Listen from 1:[33:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:33:27)
 And so if you're ever in Berlin, you can go to the museum and see the throne of [[Satan]]. Right? Because they've got it. Yeah. Um, and that is the great altar to [[Zeus]] that was there, that depicts in its, uh, carvings, uh, the, uh, defeat of the giants by [[Zeus]], right? Winning the gigantomachy, right? So again, this is how, um, the Romans saw themselves. Yeah. Right? Their civilization had conquered the earth, the monsters that come out of the earth, right? Um, and established order, civilization, right? And that was the place where in that city, that was a famous altar. And any time the emperor or any of his generals were passing through, they stopped there, especially when they were on the way to eastern campaigns to offer sacrifices there. Hmm. It's belching forth smoke all the time. Right? And St. [[John]] can very easily call it the throne of [[Satan]], even though it's an altar to [[Zeus]], right? We know the connection between altar, footstool of the throne, we've talked about that before. But, um, and the reason he can do that is that by the time St. [[John]] is writing at the end of the first century, sorry preterists, St. Irenaeus tells us when it was written. Um, we, we know, right? That by that time, the idea that [[Baal]] equals [[Zeus]], right? And therefore for a Jewish person who had read the Hebrew Bible and knew that [[Baal]] equals the devil, right? The transitive property gives us [[Zeus]] equals the devil.
 
-**[[Fr. Andrew]]:** [Listen from 1:35:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:35:17)
+**[[Fr. Andrew]]:** [Listen from 1:[35:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:35:17)
 Yeah, right. Right?
 
-**[[Fr. Stephen]]:** [Listen from 1:35:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:35:19)
+**[[Fr. Stephen]]:** [Listen from 1:[35:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:35:19)
 Right? And so these are seen to all be the same figure, right? And the reason that's firmly established by the time we get to St. [[John]] at the end of the first century is that way back in the fourth century BC, uh, [[Alexander the Great]] had already kind of established it. Yeah. So when [[Alexander the Great]] in his push eastward, right? Got into Syria, he came to one of the ancient shrines of [[Baal]], right? And he sort of publicly reconsecrated it and offered sacrifices there to [[Zeus]] Boanerges, which is roughly [[Zeus]] the Thunderer, right? Um, and in doing that, he was declaring that the spirit worshiped there, who had been worshiped there as [[Baal]], was actually a hypostasis of, uh, [[Zeus]].
 
-**[[Fr. Andrew]]:** [Listen from 1:36:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:15)
+**[[Fr. Andrew]]:** [Listen from 1:[36:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:15)
 Yeah. So they're not really two different gods, they're the same one, and this is just the local instantiation.
 
-**[[Fr. Stephen]]:** [Listen from 1:36:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:22)
+**[[Fr. Stephen]]:** [Listen from 1:[36:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:22)
 Right. This is the local ancient localization of who [[Alexander]] worshiped as [[Zeus]].
 
-**[[Fr. Andrew]]:** [Listen from 1:36:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:27)
+**[[Fr. Andrew]]:** [Listen from 1:[36:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:27)
 Yeah. And considered to be his dad in snake form. Yeah. So...
 
-**[[Fr. Andrew]]:** [Listen from 1:36:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:31)
+**[[Fr. Andrew]]:** [Listen from 1:[36:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:36:31)
 Uh, so related to that, you know, we got a question about that term Boanerges. Um, so [[David]] Thompson, who is just beginning as a seminarian at St. Tikhon's Seminary, so good luck to you, [[David]]. He sent in this question. He said, "Is the naming of [[James]] and [[John]] in [[Mark]] chapter three to be Boanerges, sons of thunder, also a reference to the twin sons of [[Zeus]], Castor and Pollux? Was there likely a temple nearby that [[Jesus]] was using for a pun? Do we have any hagiography that showed [[James]] and [[John]] to be replacements, in divine council-wise, for those gods?" So that that's his question.
 
-**[[Fr. Stephen]]:** [Listen from 1:37:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:37:16)
+**[[Fr. Stephen]]:** [Listen from 1:[37:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:37:16)
 The answer is yes. Yes. Right. So, that was a broad yes. Um, so this is said, if you look where it was said in Galilee, this is in one of those areas, right, where [[Zeus]] Boanerges had essentially become the name for [[Baal]], right? Like, where that sort of assimilation started by [[Alexander the Great]] had taken root, right? Um, but so [[Christ]] is kind of doing a pun. It's not directly referring to Castor and Pollux, I don't think. There are people, there are people who who will try and go that far. I mean, you got to write journal articles, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:38:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:38:05)
+**[[Fr. Andrew]]:** [Listen from 1:[38:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:38:05)
 Dissertations have to be written.
 
-**[[Fr. Stephen]]:** [Listen from 1:38:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:38:07)
+**[[Fr. Stephen]]:** [Listen from 1:[38:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:38:07)
 Yeah. Um, but, um, I think that's too far because I think what [[Christ]] is doing is he's actually chastising them with that title. Right? Because when you look at what instigates that, right? It's that they want to call down fire from heaven, i.e. lightning, as we already said, right? They want to throw thunderbolts and blow up these cities for not having accepted [[Jesus]], right, and his message. Right? So they're like, "We want to wipe them out," right? And, uh, I think we've mentioned on the show before, the episode in Acts where, uh, in Lystra where, uh, Saints Paul and [[Barnabas]] get worshiped as [[Zeus]] and Hermes. Yeah, right, right. Uh, that part of what's going on in the background there is there's a story that's recorded in, in, uh, Ovid, um, from that region, uh, where they believed that at some point in ancient times, it's sort of, again, a late version of Sodom and Gomorrah, uh, that [[Zeus]] and Hermes had come to that region and looked for a place to spend the night, and everybody told him to go pound sand. Um, except for this one elderly couple who welcomed them in. And so the next day, they rewarded the elderly couple by turning them into a tree. Congrats. Um, and but everybody else, they destroyed.
 
-**[[Fr. Andrew]]:** [Listen from 1:39:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:39:39)
+**[[Fr. Andrew]]:** [Listen from 1:[39:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:39:39)
 Yeah, right? So let's let's let's not have that happen again. Quick, here's the gods.
 
-**[[Fr. Stephen]]:** [Listen from 1:39:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:39:43)
+**[[Fr. Stephen]]:** [Listen from 1:[39:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:39:43)
 Right. Right. So what [[Christ]] is kind of doing here is pointing out that they're kind of imitating the wrong God. Yeah. In their attitude. Right? Because remember to be the son of something means to manifest those characteristics.
 
-**[[Fr. Andrew]]:** [Listen from 1:40:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:04)
+**[[Fr. Andrew]]:** [Listen from 1:[40:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:04)
 You don't want to be the son of Boanerges. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 1:40:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:07)
+**[[Fr. Stephen]]:** [Listen from 1:[40:07](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:07)
 Right? That's not who you want to be, right?
 
-**[[Fr. Andrew]]:** [Listen from 1:40:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:12)
+**[[Fr. Andrew]]:** [Listen from 1:[40:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:12)
 Don't act like [[Zeus]], you guys.
 
-**[[Fr. Stephen]]:** [Listen from 1:40:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:14)
+**[[Fr. Stephen]]:** [Listen from 1:[40:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:14)
 Yeah, he's he's trying to move them away from the vengeance and more toward the the mercy and the compassion.
 
-**[[Fr. Andrew]]:** [Listen from 1:40:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:21)
+**[[Fr. Andrew]]:** [Listen from 1:[40:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:21)
 Yeah, exactly. Exactly. All right, and with that, we are going to take a quick break and we'll be back with Thor.
 
-**[[Fr. Andrew]]:** [Listen from 1:40:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:30)
+**[[Fr. Andrew]]:** [Listen from 1:[40:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:40:30)
 [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young will be back in a moment to take your calls on the second half of The [[Lord of Spirits]]. Give them a call at 855-237-2346. That's 855-AF-RADIO.
 
 For all of us, male or female, parent or not, that's what it's often like, isn't it? It's at the end of our own tether that the miracle happens. It is in our greatest weakness that God's strength is known. It's when we decrease that He can increase. It's in losing our life that we find it. To put it another way, it's in the spot where Saint Monouela falls down, exhausted, that her spring rises up. It's when the people of God curse [[Moses]] in the wilderness and wish themselves back in [[Egypt]] that they hear the crack of the staff, the gush of water through the rock. It's when God Himself is spat upon and mocked and bleeding and dead that the glorious resurrection is ushered in. From Seven Holy Women: Conversations with Saints and Friends, now available as an audiobook at Audible, Amazon, and iTunes.
 
 We're back now with the [[Lord of Spirits]] with [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-**[[Fr. Andrew]]:** [Listen from 1:58:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:20)
+**[[Fr. Andrew]]:** [Listen from 1:[58:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:20)
 Welcome back. It is the unprecedented fourth half of this episode of the [[Lord of Spirits]].
 
-**[[Fr. Stephen]]:** [Listen from 1:58:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:27)
+**[[Fr. Stephen]]:** [Listen from 1:[58:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:27)
 So this is the 100-page super spectacular of [[Lord of Spirits]] episodes.
 
-**[[Fr. Andrew]]:** [Listen from 1:58:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:31)
+**[[Fr. Andrew]]:** [Listen from 1:[58:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:31)
 Exactly. This is the last episode of our second year of production. So the next episode is going to be our anniversary episode.
 
-**[[Fr. Stephen]]:** [Listen from 1:58:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:39)
+**[[Fr. Stephen]]:** [Listen from 1:[58:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:39)
 Unlike other 100-page super spectaculars, we have no reprint material.
 
-**[[Fr. Andrew]]:** [Listen from 1:58:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:44)
+**[[Fr. Andrew]]:** [Listen from 1:[58:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:58:44)
 That's right. That's it. You're not going to be able to buy a a a version that costs another 50 cents sometime in the future. This is it. Yeah. All right, so we've talked about storm gods. What about the fact that, you know, the true God, [[Yahweh]] is associated with the weather? Um, is he just some storm god who made it big, got a Bible, a big religion based on him?
 
-**[[Fr. Stephen]]:** [Listen from 1:59:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:59:14)
+**[[Fr. Stephen]]:** [Listen from 1:[59:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:59:14)
 No.
 
-**[[Fr. Andrew]]:** [Listen from 1:59:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:59:15)
+**[[Fr. Andrew]]:** [Listen from 1:[59:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:59:15)
 No. All right. And the reason we have to say that is that, uh, probably the current consensus among [[Old Testament]] scholars is that, uh, [[Yahweh]] is a storm god.
 
-**[[Fr. Andrew]]:** [Listen from 1:59:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:59:30)
+**[[Fr. Andrew]]:** [Listen from 1:[59:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=1:59:30)
 Yeah. Or started out as a storm god as part of a pantheon somewhere. Right. And then sort of over time, yeah, you know, sort of became the God of the Bible. Which... like I know we've said this before, um, you know, why would you, why would any human being take a a pagan god that you can kind of make deals with and manipulate and and do things to do to do things for you because he needs something from you, wants something from you, can take a bribe. Why would anyone ever, uh, make that kind of God into one that needs nothing from you and commands you? Like, why would you do that? It doesn't make any sense at all. That's just how it works.
 
-**[[Fr. Andrew]]:** [Listen from 2:00:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:24)
+**[[Fr. Andrew]]:** [Listen from 2:[00:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:24)
 Yeah, right. Yeah. I mean, that's not a God that any human being would ever invent, you know.
 
-**[[Fr. Stephen]]:** [Listen from 2:00:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:29)
+**[[Fr. Stephen]]:** [Listen from 2:[00:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:29)
 Right. So yeah, and and that scholarly consensus is, uh, based on nothing.
 
-**[[Fr. Andrew]]:** [Listen from 2:00:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:36)
+**[[Fr. Andrew]]:** [Listen from 2:[00:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:36)
 At nothing? Like there's no actual basis for it?
 
-**[[Fr. Stephen]]:** [Listen from 2:00:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:39)
+**[[Fr. Stephen]]:** [Listen from 2:[00:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:00:39)
 There is no actual basis for it. There is no real basis for it. Okay. So if you try to push, right? Or when they're trying to, I'm not going to say argue for it because again, that implies that they have a consistent chain of arguments that produce this result, uh, which they do not. Right? They simply do not, right? And I mean, I've criticized this to people with PhDs in [[Old Testament]] and had them literally their response is, "Well, that's the scholarly consensus." Right. Like that's the argument. Like, "No, everyone believes this." Oh, well, it must be true then. Right? Everyone's saying it. Right? Like, you know, hey.
 
-**[[Fr. Andrew]]:** [Listen from 2:01:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:01:32)
+**[[Fr. Andrew]]:** [Listen from 2:[01:32](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:01:32)
 If the rest of [[Old Testament]] scholarships going to jump off a cliff, here I go. Right. Right? Um, but so when they're presenting it, right? When they're saying, "Okay, here's our presentation of this position that [[Yahweh]] was a storm god." Here's how, here's how they try to present it. So they've got a basic problem, right? Which is that if you're going to say, "Well, [[Yahweh]] was a storm god who was part of one of these Canaanite pantheons." Right? So first of all, they're shooting this pantheon idea way back into history. Yeah. Beyond where it really belongs. But anyway, if they're going to say this kind of thing, right? Then you would expect that we would have some kind of written or other source that includes [[Yahweh]] as part of a pantheon. And there is no such thing. Right? He is not listed in any of the Ugaritic material, right? The name doesn't appear. Name doesn't appear in any, right? Any of these lists of deities, doesn't appear in like place names outside of [[Israel]], once [[Israel]] is a thing. Right? Um, none of that. If in fact, the way, I've mentioned before, I think on the show, my old Testament professor in my undergrad, Lawson Younger, the way he tracked what happened to the 10 northern tribes when the Assyrians deported them is by looking for people with theophoric names with [[Yahweh]] in them.
 
-**[[Fr. Andrew]]:** [Listen from 2:03:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:03:21)
+**[[Fr. Andrew]]:** [Listen from 2:[03:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:03:21)
 Yeah, right, right.
 
-**[[Fr. Stephen]]:** [Listen from 2:03:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:03:23)
+**[[Fr. Stephen]]:** [Listen from 2:[03:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:03:23)
 Because there's no one who's not an Israelite who had one in the ancient world. Hmm. Right? So not only is there no evidence that like [[Yahweh]] was part of a pantheon at some point in the past, right? There's no evidence that he ever was assimilated into a pantheon when [[Israel]] and [[Judah]] were conquered. Hmm. Right? Like there's there's just no evidence for any of this. So what do you go with? Well, there there's only one place, and we've mentioned it on the show before, there's only one place outside of literature directly connected to [[Israel]] where you see the name [[Yahweh]]. And that's a couple of Egyptian inscriptions from the 12th and 13th centuries.
 
-**[[Fr. Andrew]]:** [Listen from 2:04:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:04:12)
+**[[Fr. Andrew]]:** [Listen from 2:[04:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:04:12)
 Right. We've mentioned this before. Refresh everybody.
 
-**[[Fr. Stephen]]:** [Listen from 2:04:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:04:15)
+**[[Fr. Stephen]]:** [Listen from 2:[04:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:04:15)
 Where it refers to [[Yahweh]], which is an a shortened form of the name [[Yahweh]], of the Shasu Bedouins. Okay. Right? And Shasu Bedouins were a way in which the Egyptians referred to like the Edomites, the Midianites, the Ishmaelites, right? Uh, these sort of southern desert Abrahamic nomadic groups. Okay? So that they referred to [[Yahweh]] as being the God of these people. Right? And we've talked about this before on the show in connection to what are sometimes called the [[Yahweh]] from the South traditions in the [[Old Testament]] that talk about Mount Seir, which was the center of Edomite territory, as being the mountain of God, mountain of [[Yahweh]], um, of [[Yahweh]] having sort of come from there north to aid the Israelites in in conquering [[Israel]]. Um, conquering the Canaanites. Um, that language is there. Right? Of course, you know, [[Moses]] goes and encounters Jethro, right? The Midianite priest, who becomes his father-in-law. Right? So those groups were still worshiping [[Yahweh]], right? They had received it from [[Abraham]], right? From their ancestors while [[Israel]] was in [[Egypt]]. Right? So they point to that. You say, "Well, how does that help them?" Well, it doesn't really. But here's what they try to do. They try to use the Edomite dialect of old Canaanite and suggest an alternative etymology for the name [[Yahweh]] and say, "Oh, well see, [[Yahweh]] in that dialect, this could be the third masculine singular, uh, verb, 'he blows'."
 
-**[[Fr. Andrew]]:** [Listen from 2:06:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:08)
+**[[Fr. Andrew]]:** [Listen from 2:[06:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:08)
 So like... yes, he blows.
 
-**[[Fr. Stephen]]:** [Listen from 2:06:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:11)
+**[[Fr. Stephen]]:** [Listen from 2:[06:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:11)
 And...
 
-**[[Fr. Andrew]]:** [Listen from 2:06:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:11)
+**[[Fr. Andrew]]:** [Listen from 2:[06:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:11)
 And based on that...
 
-**[[Fr. Stephen]]:** [Listen from 2:06:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:14)
+**[[Fr. Stephen]]:** [Listen from 2:[06:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:14)
 And so that means, "See, he's a storm god."
 
-**[[Fr. Andrew]]:** [Listen from 2:06:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:18)
+**[[Fr. Andrew]]:** [Listen from 2:[06:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:18)
 That's not a lot to go on. I mean, we looked at these various storm gods and there was way more going on there. You know, than just...
 
-**[[Fr. Stephen]]:** [Listen from 2:06:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:26)
+**[[Fr. Stephen]]:** [Listen from 2:[06:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:26)
 So you're being kind of mean to old Snorri about his etymologies.
 
-**[[Fr. Andrew]]:** [Listen from 2:06:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:30)
+**[[Fr. Andrew]]:** [Listen from 2:[06:30](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:30)
 Right. But I mean, he's doing just as well as modern [[Old Testament]] scholars, really, when you think about it.
 
-**[[Fr. Andrew]]:** [Listen from 2:06:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:38)
+**[[Fr. Andrew]]:** [Listen from 2:[06:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:38)
 Maybe even better in a couple of cases.
 
-**[[Fr. Stephen]]:** [Listen from 2:06:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:40)
+**[[Fr. Stephen]]:** [Listen from 2:[06:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:40)
 Hector. Right. That's it. That's what they've got.
 
-**[[Fr. Andrew]]:** [Listen from 2:06:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:46)
+**[[Fr. Andrew]]:** [Listen from 2:[06:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:46)
 Wow.
 
-**[[Fr. Stephen]]:** [Listen from 2:06:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:47)
+**[[Fr. Stephen]]:** [Listen from 2:[06:47](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:47)
 That's the quote unquote evidence for this. And that's all the evidence for this, right? So what is it actually built on if it's not built on evidence? Well, it's built on a bunch of presuppositions. Right. Undefended presuppositions. And basically those amount to an evolutionary view of ancient religion.
 
-**[[Fr. Andrew]]:** [Listen from 2:07:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:11)
+**[[Fr. Andrew]]:** [Listen from 2:[07:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:11)
 Yeah, and that's this idea that you've got ancient polytheism, people worshiping a whole group of of of gods. And over time they kind of reduce the number, right? Which is primitive.
 
-**[[Fr. Stephen]]:** [Listen from 2:07:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:27)
+**[[Fr. Stephen]]:** [Listen from 2:[07:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:27)
 Right. Well, first first you get henotheism. Yeah. Right? First, one of them is kind of the boss of the other ones.
 
-**[[Fr. Andrew]]:** [Listen from 2:07:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:33)
+**[[Fr. Andrew]]:** [Listen from 2:[07:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:33)
 Right, right.
 
-**[[Fr. Stephen]]:** [Listen from 2:07:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:34)
+**[[Fr. Stephen]]:** [Listen from 2:[07:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:34)
 And then theoretically, you just keep exalting that one higher and higher and demoting the other ones. Which... And then eventually you become a quote unquote monotheist and you just forget about all the other ones and...
 
-**[[Fr. Andrew]]:** [Listen from 2:07:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:46)
+**[[Fr. Andrew]]:** [Listen from 2:[07:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:46)
 Right. The boss one is the only one left.
 
-**[[Fr. Andrew]]:** [Listen from 2:07:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:48)
+**[[Fr. Andrew]]:** [Listen from 2:[07:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:48)
 Right, which again, again posits human beings that go from a god they can manipulate, who needs something from them to God they cannot manipulate, needs nothing from them, and to whom they owe total obedience. Right? Like... It's just not a human thing to do. We don't we don't come up with that.
 
-**[[Fr. Stephen]]:** [Listen from 2:08:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:06)
+**[[Fr. Stephen]]:** [Listen from 2:[08:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:06)
 So the the presupposition is that this is just how things work, right? So evolution, this this evolution is how things work. Presupposition one. Presupposition two, polytheism is more primitive than quote unquote monotheism.
 
-**[[Fr. Andrew]]:** [Listen from 2:08:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:24)
+**[[Fr. Andrew]]:** [Listen from 2:[08:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:24)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 2:08:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:25)
+**[[Fr. Stephen]]:** [Listen from 2:[08:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:25)
 Right? Which is also a presupposition, right? Because you can equally argue, as anthropologists, etc. have, that there's actually a primitive monotheism that got complexified into polytheism.
 
-**[[Fr. Andrew]]:** [Listen from 2:08:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:38)
+**[[Fr. Andrew]]:** [Listen from 2:[08:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:38)
 Right, that it went the exact opposite way.
 
-**[[Fr. Stephen]]:** [Listen from 2:08:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:40)
+**[[Fr. Stephen]]:** [Listen from 2:[08:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:08:40)
 Right? Also with evolutionary presuppositions, right? They agree with the first presupposition. They disagree with the second one, right? So you don't even have to disagree with all of these. I disagree with all of these, but even scholars are not united in agreeing to all of these. Um, so polytheism is more primitive than monotheism. And third, monotheism is a thing, modern monotheism, the belief that only one God exists, only one divine being exists, is a viewpoint that was held by anyone in the ancient world. Even in late antiquity. Hmm. Right? All of these three things are presuppositions that are either based on nothing or in the case of the third one, demonstrably false.
 
-**[[Fr. Andrew]]:** [Listen from 2:09:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:28)
+**[[Fr. Andrew]]:** [Listen from 2:[09:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:28)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 2:09:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:29)
+**[[Fr. Stephen]]:** [Listen from 2:[09:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:29)
 Right? So that's what this is based on. This isn't, so anyone who comes to you and says this, like I said, even people who are educated, people with PhDs, their defense of this is, "It is the scholarly consensus."
 
-**[[Fr. Andrew]]:** [Listen from 2:09:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:46)
+**[[Fr. Andrew]]:** [Listen from 2:[09:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:46)
 Yeah, like but it doesn't...
 
-**[[Fr. Stephen]]:** [Listen from 2:09:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:49)
+**[[Fr. Stephen]]:** [Listen from 2:[09:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:09:49)
 The emperor has no clothes, people. Yes. There is no argument for it, right? And so the what is it actually built on if it's not built on evidence? Well, it's built on a bunch of presuppositions.
 
-**[[Fr. Andrew]]:** [Listen from 2:10:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:04)
+**[[Fr. Andrew]]:** [Listen from 2:[10:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:04)
 Undefended presuppositions. And basically those amount to an evolutionary view of ancient religion.
 
-**[[Fr. Andrew]]:** [Listen from 2:10:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:11)
+**[[Fr. Andrew]]:** [Listen from 2:[10:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:11)
 Yeah, and that's this idea that you've got ancient polytheism, people worshiping a whole group of of of gods. And over time they kind of reduce the number, right? Which is primitive.
 
-**[[Fr. Stephen]]:** [Listen from 2:10:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:27)
+**[[Fr. Stephen]]:** [Listen from 2:[10:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:27)
 Right. Well, first first you get henotheism. Yeah. Right? First, one of them is kind of the boss of the other ones.
 
-**[[Fr. Andrew]]:** [Listen from 2:10:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:33)
+**[[Fr. Andrew]]:** [Listen from 2:[10:33](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:33)
 Right, right.
 
-**[[Fr. Stephen]]:** [Listen from 2:10:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:34)
+**[[Fr. Stephen]]:** [Listen from 2:[10:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:34)
 And then theoretically, you just keep exalting that one higher and higher and demoting the other ones. Which... And then eventually you become a quote unquote monotheist and you just forget about all the other ones and...
 
-**[[Fr. Andrew]]:** [Listen from 2:10:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:46)
+**[[Fr. Andrew]]:** [Listen from 2:[10:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:46)
 Right. The boss one is the only one left.
 
-**[[Fr. Andrew]]:** [Listen from 2:10:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:48)
+**[[Fr. Andrew]]:** [Listen from 2:[10:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:10:48)
 Right, which again, again posits human beings that go from a god they can manipulate, who needs something from them to God they cannot manipulate, needs nothing from them, and to whom they owe total obedience. Right? Like... It's just not a human thing to do. We don't we don't come up with that.
 
-**[[Fr. Stephen]]:** [Listen from 2:11:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:06)
+**[[Fr. Stephen]]:** [Listen from 2:[11:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:06)
 So the the presupposition is that this is just how things work, right? So evolution, this this evolution is how things work. Presupposition one. Presupposition two, polytheism is more primitive than quote unquote monotheism.
 
-**[[Fr. Andrew]]:** [Listen from 2:11:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:24)
+**[[Fr. Andrew]]:** [Listen from 2:[11:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:24)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 2:11:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:25)
+**[[Fr. Stephen]]:** [Listen from 2:[11:25](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:25)
 Right? Which is also a presupposition, right? Because you can equally argue, as anthropologists, etc. have, that there's actually a primitive monotheism that got complexified into polytheism.
 
-**[[Fr. Andrew]]:** [Listen from 2:11:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:38)
+**[[Fr. Andrew]]:** [Listen from 2:[11:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:38)
 Right, that it went the exact opposite way.
 
-**[[Fr. Stephen]]:** [Listen from 2:11:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:40)
+**[[Fr. Stephen]]:** [Listen from 2:[11:40](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:11:40)
 Right? Also with evolutionary presuppositions, right? They agree with the first presupposition. They disagree with the second one, right? So you don't even have to disagree with all of these. I disagree with all of these, but even scholars are not united in agreeing to all of these. Um, so polytheism is more primitive than monotheism. And third, monotheism is a thing, modern monotheism, the belief that only one God exists, only one divine being exists, is a viewpoint that was held by anyone in the ancient world. Even in late antiquity. Hmm. Right? All of these three things are presuppositions that are either based on nothing or in the case of the third one, demonstrably false.
 
-**[[Fr. Andrew]]:** [Listen from 2:12:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:28)
+**[[Fr. Andrew]]:** [Listen from 2:[12:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:28)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 2:12:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:29)
+**[[Fr. Stephen]]:** [Listen from 2:[12:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:29)
 Right? So that's what this is based on. This isn't, so anyone who comes to you and says this, like I said, even people who are educated, people with PhDs, their defense of this is, "It is the scholarly consensus."
 
-**[[Fr. Andrew]]:** [Listen from 2:12:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:46)
+**[[Fr. Andrew]]:** [Listen from 2:[12:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:46)
 Yeah, like but it doesn't...
 
-**[[Fr. Stephen]]:** [Listen from 2:12:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:49)
+**[[Fr. Stephen]]:** [Listen from 2:[12:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:12:49)
 The emperor has no clothes, people. Yes. There is no argument for it, right? And so the what is the alternative? Well, we can see the alternative, right? By, you know, actually reading all the sources we have, right?
 
-**[[Fr. Andrew]]:** [Listen from 2:13:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:06)
+**[[Fr. Andrew]]:** [Listen from 2:[13:06](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:06)
 Yeah. Which is what we've just laid out. Yeah. Which is that [[Yahweh]], as we've said before on the show, is actually a Hiphil third masculine singular of the verb "to be."
 
-**[[Fr. Andrew]]:** [Listen from 2:13:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:15)
+**[[Fr. Andrew]]:** [Listen from 2:[13:15](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:15)
 Yes, so the one who causes things to be. Who causes...
 
-**[[Fr. Stephen]]:** [Listen from 2:13:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:18)
+**[[Fr. Stephen]]:** [Listen from 2:[13:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:18)
 So he who causes to be. Right? He who causes things to be.
 
-**[[Fr. Andrew]]:** [Listen from 2:13:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:22)
+**[[Fr. Andrew]]:** [Listen from 2:[13:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:22)
 The creator. Right. Basically the creator.
 
-**[[Fr. Stephen]]:** [Listen from 2:13:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:23)
+**[[Fr. Stephen]]:** [Listen from 2:[13:23](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:23)
 Yeah. You you you don't have to look very far. Yeah. In the Hebrew Bible to see that the preeminent attribute that is ascribed to [[Yahweh]] the God of [[Israel]] is creator. Right? Not fertility.
 
-**[[Fr. Andrew]]:** [Listen from 2:13:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:39)
+**[[Fr. Andrew]]:** [Listen from 2:[13:39](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:13:39)
 Right. Right. Okay? So that that that it is the creator, right? He who causes things to be. Right? Who causes things to live. Not then they will know that I am he who blows. Right.
 
-**[[Fr. Stephen]]:** [Listen from 2:14:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:10)
+**[[Fr. Stephen]]:** [Listen from 2:[14:10](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:10)
 Then they will know that I am the storm god who brings fertility. That doesn't even make sense.
 
-**[[Fr. Andrew]]:** [Listen from 2:14:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:14)
+**[[Fr. Andrew]]:** [Listen from 2:[14:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:14)
 Right. Yeah. Yeah. They're related to creation, they're not having to do with a storm and fertility god.
 
-**[[Fr. Stephen]]:** [Listen from 2:14:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:21)
+**[[Fr. Stephen]]:** [Listen from 2:[14:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:21)
 And not only that, right? Uh, one might notice that El, right? Even though it's just El, is just the word for God, right? Like Allah in Arabic.
 
-**[[Fr. Andrew]]:** [Listen from 2:14:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:36)
+**[[Fr. Andrew]]:** [Listen from 2:[14:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:36)
 Right? Just the word for God.
 
-**[[Fr. Stephen]]:** [Listen from 2:14:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:37)
+**[[Fr. Stephen]]:** [Listen from 2:[14:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:14:37)
 Or the word "God" in English. Right? It's the word for God. Uh, it's very rarely used to refer to [[Yahweh]] in the Hebrew Bible. And if it is used, it's used with a suffix, like [[El Elyon]], right? God Most High. Hmm. Right? Or [[El Shaddai]] or, you know, fill in the blank. Right? There's some suffix. What you get instead is [[Elohim]] in the plural. Hmm. Right? Why? Well, because the Hebrew Bible is everywhere disambiguating that they're not talking about [[Baal]]'s dad.
 
-**[[Fr. Andrew]]:** [Listen from 2:15:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:13)
+**[[Fr. Andrew]]:** [Listen from 2:[15:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:13)
 Yeah, right, right. Because [[Baal]] is a a going concern right nearby.
 
-**[[Fr. Stephen]]:** [Listen from 2:15:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:17)
+**[[Fr. Stephen]]:** [Listen from 2:[15:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:17)
 They're not using El as a the proper name, right? They're not talking about the same, right? And so I know we've said this before on the show, but it was a long time ago. Um, you'll often hear that [[Elohim]] is this plural of majesty. Right? And it's compared to like Queen Victoria, you know, "We are not amused." Right? Like, um, the, uh, and so that's what [[Elohim]] is, right? That's why it's in the plural. That's not exactly right.
 
-**[[Fr. Andrew]]:** [Listen from 2:15:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:49)
+**[[Fr. Andrew]]:** [Listen from 2:[15:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:49)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 2:15:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:49)
+**[[Fr. Stephen]]:** [Listen from 2:[15:49](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:15:49)
 Right? Because people who know their Hebrew will immediately throw back at you that there is no plural of majesty in Hebrew, and they're right, there isn't. Uh, but what there is is in Hebrew, the plural used as an intensifier.
 
-**[[Fr. Andrew]]:** [Listen from 2:16:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:16:03)
+**[[Fr. Andrew]]:** [Listen from 2:[16:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:16:03)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 2:16:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:16:05)
+**[[Fr. Stephen]]:** [Listen from 2:[16:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:16:05)
 Right? So that means [[Elohim]] is like "God of gods" or "the great God" or "the capital G God" or "the God with T, you know, with the definite article."
 
-**[[Fr. Andrew]]:** [Listen from 2:16:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:16:16)
+**[[Fr. Andrew]]:** [Listen from 2:[16:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:16:16)
 Right. Yeah, I mean, English does this too, right? We mentioned, you know, capital letters, uh, definite article. But like, for instance, there is a repetition that exists in spoken English. You know, you almost never see this in written English. Uh, I don't recall ever seeing it because it would be hard to convey because it requires inflection. So, um, you know, we will sometimes repeat a word if we want to indicate that what we're talking about is the most authentic, the most real, right? So, for instance, let's say someone has, uh, you know, a biological father and a step-father, right? Uh, so I might say, "I'm talking about your dad-dad." And by repeating the word and by inflecting it that way, they mean your biological father. You know? That's what they mean.
 
-**[[Fr. Stephen]]:** [Listen from 2:17:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:08)
+**[[Fr. Stephen]]:** [Listen from 2:[17:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:08)
 Yeah. Or, or it's not just like a YouTube video, it's like a movie-movie. Yeah, right.
 
-**[[Fr. Andrew]]:** [Listen from 2:17:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:12)
+**[[Fr. Andrew]]:** [Listen from 2:[17:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:12)
 A movie-movie. Yeah, right, exactly. Like a movie-movie, like in theaters. Right?
 
-**[[Fr. Stephen]]:** [Listen from 2:17:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:17)
+**[[Fr. Stephen]]:** [Listen from 2:[17:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:17)
 Right. Yeah. So it's that kind of idea.
 
-**[[Fr. Andrew]]:** [Listen from 2:17:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:22)
+**[[Fr. Andrew]]:** [Listen from 2:[17:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:22)
 Right. And [[Behemoth]] is the same kind of word, "behemoth," the beast of beasts, you know.
 
-**[[Fr. Stephen]]:** [Listen from 2:17:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:26)
+**[[Fr. Stephen]]:** [Listen from 2:[17:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:26)
 Right, the super beast.
 
-**[[Fr. Andrew]]:** [Listen from 2:17:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:28)
+**[[Fr. Andrew]]:** [Listen from 2:[17:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:28)
 Yeah. The one that you want.
 
-**[[Fr. Stephen]]:** [Listen from 2:17:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:31)
+**[[Fr. Stephen]]:** [Listen from 2:[17:31](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:17:31)
 Um, so yeah, so that's what's going on with the name, right? And with [[Elohim]] that's used to refer, right, to the same God. Right? And and that's really clear in the Hebrew. Hmm. Right? Like, this isn't something that like, this isn't like, "Oh, well, only a Christian would say." Like, you don't have to be a Christian, you don't have to be Jewish. You don't have to believe that any of this is real and true. This is, that's like, you know, linguistic data.
 
-**[[Fr. Andrew]]:** [Listen from 2:18:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:02)
+**[[Fr. Andrew]]:** [Listen from 2:[18:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:02)
 Yeah, it's just from Hebrew.
 
-**[[Fr. Stephen]]:** [Listen from 2:18:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:04)
+**[[Fr. Stephen]]:** [Listen from 2:[18:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:04)
 Right? It's just language.
 
-**[[Fr. Stephen]]:** [Listen from 2:18:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:05)
+**[[Fr. Stephen]]:** [Listen from 2:[18:05](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:05)
 You can agree or disagree with what the Hebrew Bible is saying, but that's what it's saying.
 
-**[[Fr. Andrew]]:** [Listen from 2:18:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:11)
+**[[Fr. Andrew]]:** [Listen from 2:[18:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:11)
 Right. We should all be able to agree on that.
 
-**[[Fr. Stephen]]:** [Listen from 2:18:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:14)
+**[[Fr. Stephen]]:** [Listen from 2:[18:14](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:14)
 Right? Whether we we may disagree on whether it's true, but we could at least agree on what it is saying.
 
-**[[Fr. Andrew]]:** [Listen from 2:18:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:19)
+**[[Fr. Andrew]]:** [Listen from 2:[18:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:19)
 Right? [[New Testament]] scholars do this all the time. I don't know why [[Old Testament]] scholars can't do this. But, uh, [[New Testament]] scholars, we agree all the time, hey, this is what [[St. Paul]] is saying. And people who think he's making it all up and people who believe every word of it agree this is what he is saying. It's not that hard. Um, so then what do we do with there are all these times, right, some of which we've already mentioned tonight, uh, where language about [[Baal]] in particular, so storm God language from the Ancient Near East about [[Baal]] or Hadad or whomever, uh, get sort of attached to [[Yahweh]]. Right? Um, so for example, one of [[Baal]]'s titles as we already mentioned is the Cloud Rider. Right? You see the son of man on the clouds in [[Daniel]] 7. We already talked about [[Daniel]] 7, how this is like an inversion or flipping of the the enthronement of [[Baal]] story. Yeah. But, uh, Psalm 104 or 103 in the Greek verses 3 and 4, this is the vespers Psalm, uh, in the [[Orthodox Church]]. Right? They talk about God walking upon the wings of the wind, right? That's [[Baal]] language. [[Isaiah]] 19 verse 1, this happens again, right? Or [[Baal]]'s defeat of [[Leviathan]], of Yam, of Nahar, right? That language is is applied to [[Yahweh]] the God of [[Israel]], like in Psalm 74 or 73 Greek, 89 or 88 Greek, 93 or 92 Greek. [[Job]] 26:12 through 13. I feel like Jack Van Impe just rattling these. Um, [[Isaiah]] 51:9 and 10, [[Isaiah]] 40:26, 45 verse 12. Right? Um, these are all passages, you can you can look them up or or you could just believe me, that talk about [[Yahweh]] defeating [[Leviathan]] or the sea or the rivers, right, um, dominating them, commanding them, right, ruling over them, that are things that the [[Baal]] cycle attributes to [[Baal]]. Right? So you say, okay, well, that well that could be more evidence for that other theory, right? Just, you know, [[Yahweh]] and [[Baal]] are like the same the same guy.
 
-**[[Fr. Andrew]]:** [Listen from 2:18:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:38)
+**[[Fr. Andrew]]:** [Listen from 2:[18:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:38)
 Yeah. Right? Or, you know, like, you know, Thor is also a god who fights against the Midgard serpent, you know.
 
-**[[Fr. Stephen]]:** [Listen from 2:18:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:41)
+**[[Fr. Stephen]]:** [Listen from 2:[18:41](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:18:41)
 Or parallel guys. Yeah. Yeah. Yeah. These are these are these see, these are all just the same guy. So here's the problem with that, right? Because the other view assumes that [[Yahweh]] was at some point in a pantheon with [[Baal]]. Right? And with these other gods, right? And so it doesn't make a whole heck of a lot of sense for the same attributes, the same deeds, the same titles to be ascribed to multiple gods within the same quote-unquote pantheon because that's not how pantheons work.
 
-**[[Fr. Andrew]]:** [Listen from 2:19:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:19:18)
+**[[Fr. Andrew]]:** [Listen from 2:[19:18](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:19:18)
 Yeah, the most, the most you get, right, is where you get a kind of greater and lesser version of a thing. Like, for instance, Apollo, right, is a sun god. And he's got all these other things, but then he has Helios, his his son, who kind of drives the thing, you know?
 
-**[[Fr. Stephen]]:** [Listen from 2:19:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:19:38)
+**[[Fr. Stephen]]:** [Listen from 2:[19:38](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:19:38)
 Right. But, but you don't have like equal, you know, deities that are the same kind of deity within a pantheon.
 
-**[[Fr. Stephen]]:** [Listen from 2:19:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:19:48)
+**[[Fr. Stephen]]:** [Listen from 2:[19:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:19:48)
 Right? Because that's what happens when we we have practical examples of assimilation, including the assimilation of [[Baal]]. Yeah. Right? Like that we talked about tonight. So when the when this when some, you know, new territory gets conquered or a new trade deal gets made or, you know, enters into the consciousness of this larger unit, right? That already has this group of gods and goddesses, right? The attempt is made to fold it in, right? So if there's a a god in in the, we'll say the major culture and the minor culture. If there's a god in the major culture that has these attributes and these titles and these deeds, and this new deity that's become aware of seems to have the same ones, they just get assimilated. Yeah. Right? So [[Baal]] becomes [[Zeus]] Boanerges. Right. Right? They say, "Okay, this is just a hypostasis of [[Zeus]]."
 
-**[[Fr. Andrew]]:** [Listen from 2:20:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:20:45)
+**[[Fr. Andrew]]:** [Listen from 2:[20:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:20:45)
 Yeah. Right?
 
-**[[Fr. Stephen]]:** [Listen from 2:20:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:20:46)
+**[[Fr. Stephen]]:** [Listen from 2:[20:46](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:20:46)
 So we do not have any ancient evidence of that kind of assimilation with [[Yahweh]] and [[Baal]]. Right? Because if you say that's what we're looking at with those passages I just referenced, okay, "Oh, see, [[Baal]] has been assimilated into [[Yahweh]]." Then I say, "Okay, where's the rest of the pantheon in the Israelite literature we're reading?"
 
-**[[Fr. Andrew]]:** [Listen from 2:21:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:09)
+**[[Fr. Andrew]]:** [Listen from 2:[21:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:09)
 Yeah. Yeah, exactly.
 
-**[[Fr. Stephen]]:** [Listen from 2:21:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:11)
+**[[Fr. Stephen]]:** [Listen from 2:[21:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:11)
 Right? And in fact, the only, the only times you ever get [[Israel]] worshiping other gods, it's explicitly foreign gods and the whole thing is condemned. Right? Yeah. So...
 
-**[[Fr. Stephen]]:** [Listen from 2:21:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:22)
+**[[Fr. Stephen]]:** [Listen from 2:[21:22](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:22)
 And people like our friend Jezebel, [[Israel]]'s neighbors do not seem to recognize [[Yahweh]] as another as a hypostasis of [[Baal]]. Right? So that's going the other way.
 
-**[[Fr. Andrew]]:** [Listen from 2:21:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:35)
+**[[Fr. Andrew]]:** [Listen from 2:[21:35](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:35)
 Yeah, so even the pagans aren't into it.
 
-**[[Fr. Stephen]]:** [Listen from 2:21:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:37)
+**[[Fr. Stephen]]:** [Listen from 2:[21:37](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:37)
 So the pagans aren't trying to assimilate [[Yahweh]] into their local storm god.
 
-**[[Fr. Andrew]]:** [Listen from 2:21:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:43)
+**[[Fr. Andrew]]:** [Listen from 2:[21:43](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:43)
 They recognize them as different.
 
-**[[Fr. Stephen]]:** [Listen from 2:21:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:45)
+**[[Fr. Stephen]]:** [Listen from 2:[21:45](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:45)
 They recognize them as different. And there's an antipathy. Right? Pagans are kind of famous for not really having antipathy toward each other's religions.
 
-**[[Fr. Andrew]]:** [Listen from 2:21:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:53)
+**[[Fr. Andrew]]:** [Listen from 2:[21:53](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:53)
 But they have antipathy towards [[Israel]] and their religion.
 
-**[[Fr. Stephen]]:** [Listen from 2:21:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:57)
+**[[Fr. Stephen]]:** [Listen from 2:[21:57](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:21:57)
 Right. Yeah. Which shows us that at the stage of these contacts, right? Which go back far before the exile, centuries before the exile, by the way. Uh, there is seen to be something incompatible about at least a particular version of the worship of [[Yahweh]] and these other gods. But even in a place like the northern kingdom of [[Israel]], where they're worshiping [[Yahweh]] with golden calves, Jezebel doesn't seem to think that [[Baal]] and [[Yahweh]] can be assimilated to each other.
 
-**[[Fr. Andrew]]:** [Listen from 2:22:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:29)
+**[[Fr. Andrew]]:** [Listen from 2:[22:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:29)
 Yeah, even with that common calf or bull, you know, thing going on.
 
-**[[Fr. Stephen]]:** [Listen from 2:22:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:34)
+**[[Fr. Stephen]]:** [Listen from 2:[22:34](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:34)
 So the attributes and the deeds and the titles that were ascribed to [[Yahweh]], even in the northern kingdom post Jeroboam, son of Nebat, were not seen by ancient people who worshiped [[Baal]] to be a version of [[Baal]].
 
-**[[Fr. Andrew]]:** [Listen from 2:22:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:50)
+**[[Fr. Andrew]]:** [Listen from 2:[22:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:50)
 The guy whose name gets, you know, becomes emblematic, "the sin of Jeroboam."
 
-**[[Fr. Stephen]]:** [Listen from 2:22:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:54)
+**[[Fr. Stephen]]:** [Listen from 2:[22:54](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:22:54)
 Right. Yeah. Right. So for modern scholars to do this, they have to be really sloppy and they have to ignore the people who actually practice these religions. And all the evidence we have about it.
 
-**[[Fr. Andrew]]:** [Listen from 2:23:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:23:08)
+**[[Fr. Andrew]]:** [Listen from 2:[23:08](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:23:08)
 Right? There's also no evidence of sort of dissimilation. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 2:23:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:23:13)
+**[[Fr. Stephen]]:** [Listen from 2:[23:13](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:23:13)
 Right? That one god's splitting out into sort of multiple...
 
-**[[Fr. Stephen]]:** [Listen from 2:23:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:23:16)
+**[[Fr. Stephen]]:** [Listen from 2:[23:16](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:23:16)
 Right. So we have that evidence with like we and we talked about it, [[Baal]] and Hadad, right? We have this [[Baal]]-Hadad, right? In the very earliest sources, right? And we see that this same, then sort of spirit, the same sort of being is referred to as [[Baal]] in one place and Hadad in the neighboring place, right? But we not only have evidence of that split, but following the split in name, the Syrians and the Phoenicians don't, they acknowledge, "Yes, this is the same guy." Hmm. Right? So even though they might not know the history that at one point the two names were directly ascribed to one being, they still have the idea, which again, no one in the ancient world had about [[Yahweh]] the God of [[Israel]]. Yeah. Right? And this is storm God in particular. But we don't have to be, we could say the same thing, the only reason we're treating with storm God is that that's the current scholarly consensus based on nothing. Right?
 
-**[[Fr. Andrew]]:** [Listen from 2:24:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:24:20)
+**[[Fr. Andrew]]:** [Listen from 2:[24:20](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:24:20)
 And it's kind of a fun theme.
 
-**[[Fr. Stephen]]:** [Listen from 2:24:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:24:21)
+**[[Fr. Stephen]]:** [Listen from 2:[24:21](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:24:21)
 There's just as much sort of borrowed language like this about other gods in other nations. Right? So we've mentioned before on the show, every time [[Egypt]] comes up in the [[Old Testament]], there are all these references to the right arm. Starting with the Song of the Sea, right? After the the passage through the Red Sea, but going all the way through into the the later prophets where they talk about [[Egypt]], they talk about [[Yahweh]] breaking the right arm of [[Egypt]]. Right? Because the right arm of [[Egypt]] or the right arm of Ra was one of the titles given to at different points the war god of [[Egypt]] and the Pharaoh. Right? And there's this language of [[Yahweh]] doing mighty acts with his right arm. Right? Now, current scholarly consensus isn't that, "Oh, see, [[Yahweh]] evolved from the Egyptian war god." Right? Because to do that, they'd have to argue the [[Exodus]] was true or something. So they're not inclined in that way. But that's just to show you this this language, this phenomenon in the [[Old Testament]] of taking the language used about the gods of the other nations and applying it to [[Yahweh]] as a way of saying that [[Yahweh]] is the true most high God. He's the one who brings the rains. He's the one who controls the thunderbolt. He's the one who gives victory in war, etc., etc., etc. And by the way, he's the creator God, right? Who created everything and caused things to be that before were not. Right? That practice is all through the [[Old Testament]], and [[Israel]]'s neighbors understood what [[Israel]] was doing when they did it. That's why there was this antipathy.
 
-**[[Fr. Andrew]]:** [Listen from 2:26:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:03)
+**[[Fr. Andrew]]:** [Listen from 2:[26:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:03)
 Yeah, because it was a...
 
-**[[Fr. Stephen]]:** [Listen from 2:26:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:04)
+**[[Fr. Stephen]]:** [Listen from 2:[26:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:04)
 They understood that [[Israel]] was taking shots at [[Baal]]. They understood that the [[Prophet Elijah]] was mocking [[Baal]].
 
-**[[Fr. Andrew]]:** [Listen from 2:26:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:12)
+**[[Fr. Andrew]]:** [Listen from 2:[26:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:12)
 Yes.
 
-**[[Fr. Stephen]]:** [Listen from 2:26:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:12)
+**[[Fr. Stephen]]:** [Listen from 2:[26:12](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:12)
 They understood that [[Israel]] was saying, "Your religion is bogus and ours is the truth." Right? They they fully, their neighbors fully understood that.
 
-**[[Fr. Andrew]]:** [Listen from 2:26:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:24)
+**[[Fr. Andrew]]:** [Listen from 2:[26:24](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:24)
 Right. And it probably pissed them off because like, they're like, "Hello, our other neighboring religions don't do that to us. You know, like, we're we're fine with they want to worship their gods, we worship our gods, whatever."
 
-**[[Fr. Stephen]]:** [Listen from 2:26:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:36)
+**[[Fr. Stephen]]:** [Listen from 2:[26:36](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:36)
 Yes. You see this when Sennacherib shows up to lay siege to [[Jerusalem]] for the Assyrians. Right? He says that, he's like, "I know, I know, you've got your god who you think is going to protect you, but lots of cities I've destroyed had gods."
 
-**[[Fr. Andrew]]:** [Listen from 2:26:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:50)
+**[[Fr. Andrew]]:** [Listen from 2:[26:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:50)
 Yeah. Right?
 
-**[[Fr. Stephen]]:** [Listen from 2:26:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:51)
+**[[Fr. Stephen]]:** [Listen from 2:[26:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:26:51)
 And then, you know, things don't go so well for old Sennacherib. But, uh, right? But like they they they [[Israel]]'s neighbors understood what was going on.
 
-**[[Fr. Andrew]]:** [Listen from 2:27:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:27:03)
+**[[Fr. Andrew]]:** [Listen from 2:[27:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:27:03)
 Yeah. And and and then there's this constant refrain, like it's over and over, especially in the [[Old Testament]], but then you get echoes of it and, you know, repackaging of it in the [[New Testament]], "Who among the gods is like unto thee, O Lord?" Like there's this constant rhetorical question being asked or occasionally, you know, the statement being made that God is different from all the rest, all the rest. Like none of them are like him. Right. Because there's no monotheism going on.
 
-**[[Fr. Andrew]]:** [Listen from 2:27:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:27:29)
+**[[Fr. Andrew]]:** [Listen from 2:[27:29](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:27:29)
 Right. Right. And then, you know, what you especially get, and you get this in the [[Old Testament]] too, but especially in like the [[New Testament]], for instance, I think of [[St. Paul]]'s, um, you know, comments on the Areopagus where he says, you know, "This is the God who made all things." Right? There's the, you know, he's the creator, which pagan gods don't make that claim. They're kind of reside within the world. I mean, they're sometimes are that they were involved in creation, right? But not that there's one who made everything.
 
-**[[Fr. Stephen]]:** [Listen from 2:28:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:01)
+**[[Fr. Stephen]]:** [Listen from 2:[28:01](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:01)
 He he does more than that in Athens.
 
-**[[Fr. Andrew]]:** [Listen from 2:28:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:03)
+**[[Fr. Andrew]]:** [Listen from 2:[28:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:03)
 Yeah, yeah, sure.
 
-**[[Fr. Stephen]]:** [Listen from 2:28:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:04)
+**[[Fr. Stephen]]:** [Listen from 2:[28:04](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:04)
 [[St. Paul]] continues this trend. He quotes a hymn to [[Zeus]] and applies it to [[Yahweh]] the God of [[Israel]].
 
-**[[Fr. Andrew]]:** [Listen from 2:28:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:09)
+**[[Fr. Andrew]]:** [Listen from 2:[28:09](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:09)
 Exactly. Exactly. Yeah. And says, "This is the one who actually made all men from one man and who actually in whom we live and move and have our being."
 
-**[[Fr. Andrew]]:** [Listen from 2:28:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:19)
+**[[Fr. Andrew]]:** [Listen from 2:[28:19](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:19)
 Yeah. Right? Not not your boy, uh, [[Zeus]], right?
 
-**[[Fr. Stephen]]:** [Listen from 2:28:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:26)
+**[[Fr. Stephen]]:** [Listen from 2:[28:26](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:26)
 Right? Um, yeah. So this is and this is totally clear. And so what I just did in not even that long a time, especially for this show, is lay out a bunch of evidence and an argument, which the other side on this that [[Yahweh]] was a storm god fundamentally doesn't have.
 
-**[[Fr. Andrew]]:** [Listen from 2:28:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:44)
+**[[Fr. Andrew]]:** [Listen from 2:[28:44](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:44)
 Hmm. They just have, "Well, this is the scholarly consensus."
 
-**[[Fr. Stephen]]:** [Listen from 2:28:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:48)
+**[[Fr. Stephen]]:** [Listen from 2:[28:48](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:48)
 Yep. Yep.
 
-**[[Fr. Andrew]]:** [Listen from 2:28:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:51)
+**[[Fr. Andrew]]:** [Listen from 2:[28:51](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:28:51)
 So... All right. Well, to wrap up this thunderous episode of the [[Lord of Spirits]] podcast, um, I just wanted to, you know, make a few observations, uh, to sort of summarize. And I think the first thing that we should point out is that, like, you see this in kind of internet religion memology, uh, this idea that, you know, "Look at these pagan gods that have these aspects or these stories or whatever, and then look at the God of Christianity. Look, here there are some similarities. That therefore must mean that the God of Christianity is derived from..." Right? As we were saying, you know, in this case that he was a storm god because, "Look, they're the same image or the same title or the same story," right? Often leaving aside whatever the actual discontinuities are, which as we like to point out on this on this podcast, are super important, as much as the continuities. To note that things are the same or similar is a correlation. Okay? That does not mean that there is a causative relationship between those things. You know, or that they're the same thing. Just because there's a correlation does not mean there's a causation, right? This is a basic logical fallacy making them the same thing. They're not. Correlation does not equal causation, right? And often, as we've mentioned, a lot of what's going on in the scripture and, um, in subsequent Christian history is it's a correction of pagan stories. It's a polemic against them. You know? The true rider of the clouds is the son of man who is [[Christ]]. Right? The true, you know, commander of the weather who controls the thunderbolt is God, is [[Yahweh]], not [[Baal]], not [[Zeus]], not Thor. Right? That's what's going on as well. And then there's also, and we saw this especially with the Norse material, but as as [[Father Stephen]] just pointed out with [[St. Paul]] in the Areopagus, there is an assimilation of the the pagan stories as pagan stories. We'll take that and we're going to use it to our purposes. Right? So [[St. Paul]] is just quoting a little verse and he's saying this actually applies to [[Yahweh]] the God of [[Israel]]. But you get Norse Christians telling pagan stories sometimes for the purpose of, you know, poetry, right? But he didn't see a problem with it. He didn't see it as a sinful thing to do as a Christian surrounded by Christians. Like he wasn't trying to make nice with any pagans. There weren't any around, you know? It wasn't a kind of ecumenical gesture, you know? Um, they felt that these stories were helpful within their Christian context. Right? And many of the stories are told sometimes as an example of what not to do. Sometimes saying you can, look, you can emulate and admire this heroism, this virtue, this perseverance, whatever it is. And they were just doing, and we didn't mention this yet in this episode, but they were just doing exactly what [[St. Basil]] in his very famous address to young men on the right use of Greek literature, by that he means Homer and Hesiod and and so on, um, that there is a right use of these things, right? If there's any virtue, if there's any praise, think on these things, right? And critique the things that are not virtuous and praiseworthy. That's what's going on as well. So Christianity has always made use of these stories. That's how it's always been, whether it's to completely co-opt pieces of them or to tell the stories and offer commentary on it, like these are things that Christians have always done. We should not be scared of that at all, right? Um, I I saw someone actually commenting on this show and saying, you know, these guys are using pagan mythology to try to quote unquote re-enchant the world. And with this sort of implication of like they're encouraging people to be become interested in paganism. By no means, by no means. What I encourage people to do is to become interested in stories and to become interested in the way that Christianity has used paganism, right? Which always includes this polemic against the gods. Right? It's not about smuggling anything in or making nice or any of that stuff. Always includes that. "Who among the gods is like unto thee, O Lord?" That no one, no one at all. Right? So understanding all that, then we can make an application of this kind of thing ourselves as we interpret this world and its stories and use them for preaching the gospel. Like we mentioned a bunch of times, uh, Marvel Comics and the Marvel Cinematic Universe, especially we're talking about Norse stuff. And, um, you can tell that my opinion of that is lower than the Norse mythology mythological stories, but, you know, I like watching those movies. I have read those comic books. Um, and I find them useful, right? It is a place that we can have conversations that can lead to a a conversation about the gospel or lead to discussions of virtue or whatever it might be. And critique the characters and, you know, say, "This one is good, this one didn't do something that was not so good." Right? We can subvert even stories that may be by their creators intended to be subversive. We can subvert the subversion because Christianity has always done that. It's okay to continue doing it, especially because we know that we have the great hope of the resurrection, that we know that [[Christ]] has won the victory, that he is the one who has defeated the serpent. He actually did do that. And that his enemy, our enemy, death, its power has been broken forever. Since we know that, then none of the rest of this has to threaten us, and indeed we can make use of it because, again, that is what Christianity has always done. [[Father Stephen]]?
 
-**[[Fr. Stephen]]:** [Listen from 2:05:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:05:03)
+**[[Fr. Stephen]]:** [Listen from 2:[05:03](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:05:03)
 So, yeah, there at the end in the, uh, unprecedented fourth half of this evening's show, um, I took some shots at a scholarly consensus, right? And, um, we've talked before about how, thanks to our 19th-century German friends, um, pretty much all of academic scholarship has been transformed into a sort of a wissenschaft, a scientific mode, a mode of aping the procedures of science. And that's had a lot of really bad results in a lot of ways because a lot of fields have been turned into pseudoscience, essentially, um, by trying to use a methodology that, uh, isn't really compatible with the field of inquiry. Um, but, um, one positive effect that it could have had, which unfortunately in a lot of cases it doesn't, would be that the term scholarly consensus would be interpreted as a bullseye. Something being the scholarly consensus would make it a target.
 
-**[[Fr. Andrew]]:** [Listen from 2:06:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:27)
+**[[Fr. Andrew]]:** [Listen from 2:[06:27](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:27)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 2:06:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:28)
+**[[Fr. Stephen]]:** [Listen from 2:[06:28](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:28)
 And this is true in science, right? Uh, everybody wants to be Einstein and come along and overturn the consensus of Newtonian physics. Right? And you can prove that everyone wants to be that guy because what did Stephen Hawking do? He started going after the consensus around Einstein on several topics, right? That's how it works in science. Right? But most of the time, when you get into any liberal arts or quote-unquote social science field, all of a sudden, right, we we descience and whatever the scholarly consensus is is just true now. It's not something we attack, it's not something we try to disassemble and take apart, it's not now the thrust of, okay, we need to find out why we're wrong. Maybe completely wrong. Right? And this boils down outside of scholarship. What you find in a lot of academia at the graduate school level is that graduate students tend to break down into factions of students who spend most of their time simping for one of their professors. They will sit in classes and argue with other students who are simping for different professors about which of their professors are right. And I've got bad news for those of you who aren't clergy out there, but this is what seminary is like, including Orthodox seminaries. You have seminary students break off into factions and simp for one of their professors. And in some cases, they spend the rest of their lives in ministry simping for that professor. And what a genius they were and whatever their unique views are trying to promote them in the church, right? And for clergy listening, right, embrace your secret shame of past simping. We've all fallen into it at one time or another. It happens. But how does this affect, right, the the average listener to this who isn't clergy? If you are clergy, stop simping. If you're not, right, how does this affect you? Well, especially in our modern, unfortunately internet-based world, this has gone well outside of just academia and just graduate students. It's not really anything new, right? [[St. Paul]] told us about how, you know, one claims they're of Paul and one claims they're of Apollos and one claims they're of [[Peter]] and one claims they're of [[Christ]]. But seemingly everyone out there now is part of some fandom, is part of some camp, is is simping for some public figure. They've developed some parasocial relationship with that public figure where they feel like they know them and they're known by them. And they're out there having fights on the internet about, you know, "No, my guy who I like is better than your guy who you like." Uh, "And your guy isn't really Orthodox, and my guy is really Orthodox, and he's a better Christian, and his books are better." And all of this is a monumental distraction from what our Christian life is supposed to be about. Right? Which is not dividing into factions, which is not finding somebody to follow, which is not finding some father figure on the internet who is is going to guide us into all truth and who we must now defend. Right? And I'm including myself in this. And [[Father Andrew]], whether he wants me to or not. Right? I hope things I've written and things in this show and things in the whole Council of God podcast, I hope they've been helpful to you. Right? That's why I do them, is because I'm hoping they'll be helpful to people. Right? Otherwise, I wouldn't do them. If people stop listening to this show, I'll stop doing it. If people stop buying my books, I'll stop writing them. It won't bother me. I have hobbies. Other things I can do. It's not to get people to become DeYoungites or to to follow me or to create a fandom or any of that. Right? Not what I'm about. Right? Um, I can't be your dad. I can't be the spiritual father of everyone who listens to this show and everyone who buys one of my books. I can't. It's just not going to happen. Right? But every one of us who are Orthodox Christians or Christians today, right? are in a unique position in the history of the world. Because that same internet that's led us down this distracted path of dividing into factions and following people and becoming fans, that same internet has also given us at least hypothetically access to an unprecedented amount of information, an unprecedented amount of material about the faith, about the world, about history, about [[Orthodoxy]], about theology, about Christianity, about the Bible. Right? And I hope the stuff I do, including this podcast, is a small part of that, that's that's helpful to people. All of that is available to us, and that makes every one of us responsible for it. So not only do we not need to get distracted by fanishness or simping or or anything related to that, but we have a positive responsibility now. We're not living in a village in Greece before the revolution under the Turks where we can't get printed Christian books, let alone have an internet. And where we have to just, you know, do the best we can to maintain our faith in the face of oppression, in the face of being second-class citizens, and just continue to attend the services as much as we can, even if we don't really understand what's going on because they're in a Greek that we don't understand anymore. Right? But we need to keep that alive. We're in a position where every single one of us has the ability to really appropriate Christianity, to really understand at a level that our forefathers and mothers in the faith would have been desperate to have. Most of our ancestors in faith would be desperate just to own a Bible in a language they could read, let alone have 100 translations at their fingertips, let alone have all the instruction and all the teaching that we have available through ancient faith and other outlets. Right? And we're going to be held accountable one day with what we did with it. But with all of this available to us, it's not just a question of this threatening kind of thing about the Last Judgment, though that's there and that's real, that we will be held accountable for what we did with what we had. But with all of this available to us, the church today should be the strongest it's ever been. The people in our churches should have the deepest understanding of the faith, should be living the Christian life with a nuance and depth that was never before possible. I don't feel like I'm doing that. I don't know if anyone listening feels like they're doing that, but if there's anything unprecedented about our current church life, I think it's in the opposite direction. And we don't have an excuse. So my final thought today, right, is that we're not just working on, doing the best we can like Snorri, old Snorri, to understand, right, our newfound Christian faith in the light of the cultural traditions of our people and how those fit together. We have this wealth available to us. And if we take advantage of it, if we stop getting distracted by all the the stupidities that come along with the internet giving us access to it, if we commit to it, then this is going to benefit us, this is going to transform our generation, this is going to transform the world into the future. This can be the time where Christianity, real Christianity, historic Christianity blossoms and comes forth and becomes a force in the world as it never has before. Or it can get just turned into another fandom on the internet. Of "Oh yeah, the Orthodox folks, they're over there in between the Bronies and the furries." And in terms of the real world, they've accomplished nothing. And it's up to each of us because each one of us, right, if you're able to listen to this show and get things out of it, right, then you have what it takes to take advantage of the resources available to you and become the kind of Christian in this historical and cultural moment that God is calling each of us to be.
 
-**[[Fr. Andrew]]:** [Listen from 2:06:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:17)
+**[[Fr. Andrew]]:** [Listen from 2:[06:17](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:17)
 Amen. Well, that is our show for today. Thank you very much everyone for listening to this pre-recorded episode. Uh, you couldn't get through to us live this time, but, uh, we still want to hear from you. You can email us at lordofspirits@ancientfaith.com. You can message us at our Facebook page or you can leave us a voicemail at speakpipe.com/lordofspirits.
 
-**[[Fr. Stephen]]:** [Listen from 2:06:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:42)
+**[[Fr. Stephen]]:** [Listen from 2:[06:42](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:42)
 And even if you're stuck in the middle of a railroad track, you should join us for our live broadcast on the second and fourth Thursdays of the month at 7 p.m. Eastern, 4 p.m. Pacific.
 
-**[[Fr. Andrew]]:** [Listen from 2:06:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:50)
+**[[Fr. Andrew]]:** [Listen from 2:[06:50](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:06:50)
 And if you are on Facebook, you can like our page, join our discussion group. You can leave reviews and ratings everywhere, but please most importantly, share this show with a friend that you know is going to love it and benefit from it.
 
-**[[Fr. Stephen]]:** [Listen from 2:07:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:02)
+**[[Fr. Stephen]]:** [Listen from 2:[07:02](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:02)
 And when you look around and you realize that there's no turning back, be sure to go to ancientfaith.com/support and help make sure we and lots of other AFR podcasters stay on the air.
 
-**[[Fr. Andrew]]:** [Listen from 2:07:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:11)
+**[[Fr. Andrew]]:** [Listen from 2:[07:11](https://media.ancientfaith.com/lordofspirits/los_2022-08-25.mp3#t=2:07:11)
 Thank you very much. Good night, all. Have a God bless you.
 
 **Outro:** (Various musical and promotional snippets)

@@ -6,574 +6,574 @@ tags: [lordofspirits]
 
 ## Introduction
 
-**[[Fr. Andrew]]:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=00:00:00)
+**[[Fr. Andrew]]:** [Listen from [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=00:00:00)
 He will be a staff for the righteous with which for them to stand and not to [[fall]]. And he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will [[fall]] down and worship him. And they will praise and bless and celebrate with song the Lord of Spirits. 1 [[Enoch]], chapter 48, verses 4 through 5.
 
-**Introductory Voice:** [Listen from 00:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=00:21:00)
+**Introductory Voice:** [Listen from [00:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=00:21:00)
 The modern world doesn't acknowledge but is nevertheless haunted by spirits, [[angels]], [[demons]], and [[saints]]. In our time, many yearn to break free of the prison of a flat, secular materialism to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? [[Orthodox]] [[Christian]] [[priests]] Father Andrew Stephen Damick and Father Stephen De Young host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to The Lord of Spirits.
 
-**[[Fr. Andrew]]:** [Listen from 01:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=01:06:00)
+**[[Fr. Andrew]]:** [Listen from [01:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=01:06:00)
 Good evening. It's the 33rd episode of the Lord of Spirits podcast and the last episode of 2021. My co-host Father Stephen De Young is with me from Lafayette, Louisiana, and I'm Father Andrew Stephen Damick in Emmaus, Pennsylvania. And if you're listening to us live, you can call in at 855-AF-RADIO. That's 855-237-22346. Matushka Trudi will be taking your calls tonight, and we're going to get to those in the second part of our show.
 
-**[[Fr. Andrew]]:** [Listen from 01:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=01:38:00)
+**[[Fr. Andrew]]:** [Listen from [01:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=01:38:00)
 So, when the [[prophets]] ascend in heavenly visions, they see the [[Divine Council - [[Unseen Realm]]|Divine Council]]: the throne of [[God]], the [[cherubim]], the [[seraphim]], the [[angels]], and a man. And sometimes, outside of prophetic visions, that man shows up on earth, and he talks and even eats with people. Who is this man in heaven? Who is this man from heaven?
 
-**[[Fr. Andrew]]:** [Listen from 02:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:01:00)
+**[[Fr. Andrew]]:** [Listen from [02:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:01:00)
 Well, tonight we're going to wrap up our four-part series on the [[Old Testament [[Christology]]|[[Christology]] of the Old Testament]]. In our first episode, we looked at the title "The [[Angel of the Lord]]." In the second, it was "The Word of the Lord" or "The Word of [[God]]." And last time, we looked at the phrase "The [[Son of Man]]." All of these appear in the Scriptures and get used by the Fathers and the divine services.
 
-**[[Fr. Andrew]]:** [Listen from 02:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:24:00)
+**[[Fr. Andrew]]:** [Listen from [02:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:24:00)
 So tonight, we're going to look at, well, almost everything else from the Old Testament where [[God]] appears in some kind of physical form, but especially in a human form to us, his creatures. Father Stephen, I was told that no one has ever seen [[God]], ever, like ever ever. So, so what's going on?
 
-**[[Fr. Stephen]]:** [Listen from 02:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:47:00)
+**[[Fr. Stephen]]:** [Listen from [02:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:47:00)
 Except for all the times that they do.
 
-**[[Fr. Andrew]]:** [Listen from 02:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:50:00)
+**[[Fr. Andrew]]:** [Listen from [02:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:50:00)
 Yeah, right. Right, exactly.
 
-**[[Fr. Stephen]]:** [Listen from 02:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:52:00)
+**[[Fr. Stephen]]:** [Listen from [02:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:52:00)
 Yes, it is the the eve of Christmas Eve.
 
-**[[Fr. Andrew]]:** [Listen from 02:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:55:00)
+**[[Fr. Andrew]]:** [Listen from [02:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:55:00)
 Yes, Christmas Eve Eve.
 
-**[[Fr. Stephen]]:** [Listen from 02:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:56:00)
+**[[Fr. Stephen]]:** [Listen from [02:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=02:56:00)
 Yes, and so this is our Christmas Eve Eve episode. Christmas Eve squared. And and I want to I want to do I want to try something.
 
-**[[Fr. Andrew]]:** [Listen from 03:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:06:00)
+**[[Fr. Andrew]]:** [Listen from [03:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:06:00)
 Okay, I'm I'm ready for anything.
 
-**[[Fr. Stephen]]:** [Listen from 03:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:07:00)
+**[[Fr. Stephen]]:** [Listen from [03:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:07:00)
 Because the the the revival of Dexter at the beginning of each episode, they show a in quick succession these one-second clips from later in the episode.
 
-**[[Fr. Andrew]]:** [Listen from 03:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:19:00)
+**[[Fr. Andrew]]:** [Listen from [03:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:19:00)
 Oh.
 
-**[[Fr. Stephen]]:** [Listen from 03:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:20:00)
+**[[Fr. Stephen]]:** [Listen from [03:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:20:00)
 Right, to like tease what's going to happen and get you interested.
 
-**[[Fr. Andrew]]:** [Listen from 03:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:23:00)
+**[[Fr. Andrew]]:** [Listen from [03:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:23:00)
 Okay.
 
-**[[Fr. Stephen]]:** [Listen from 03:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:24:00)
+**[[Fr. Stephen]]:** [Listen from [03:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:24:00)
 So I want to tell people that if they stay tuned tonight, they will hear about the pleasing man. They will hear about the [[Cherubim]] Zodiac, and they will get another example of why time and space don't exist.
 
-**[[Fr. Andrew]]:** [Listen from 03:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:38:00)
+**[[Fr. Andrew]]:** [Listen from [03:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:38:00)
 There we go. So stick with us, everyone.
 
-**[[Fr. Stephen]]:** [Listen from 03:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:40:00)
+**[[Fr. Stephen]]:** [Listen from [03:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:40:00)
 Yes, so that's what awaits you.
 
-**[[Fr. Andrew]]:** [Listen from 03:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:43:00)
+**[[Fr. Andrew]]:** [Listen from [03:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:43:00)
 Yes, and as you're about to found your new uh prog rock band, you can call your lead singer [[Cherubim]] Zodiac.
 
-**[[Fr. Stephen]]:** [Listen from 03:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:49:00)
+**[[Fr. Stephen]]:** [Listen from [03:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:49:00)
 Yes, yes, you could find a way to work, call your first album Pleasing Man, you could work this all in.
 
-**[[Fr. Stephen]]:** [Listen from 03:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:59:00)
+**[[Fr. Stephen]]:** [Listen from [03:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=03:59:00)
 One of the ways of talking about this that we mentioned way back in the episode about [[God]]'s body, which was what, like the fifth or sixth episode or something? I don't even remember.
 
-**[[Fr. Andrew]]:** [Listen from 04:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:11:00)
+**[[Fr. Andrew]]:** [Listen from [04:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:11:00)
 No, it was um, it was it was early this year, but but we had done a, you know, a few a few months. Yeah, we had done a few months of stuff.
 
-**[[Fr. Stephen]]:** [Listen from 04:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:19:00)
+**[[Fr. Stephen]]:** [Listen from [04:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:19:00)
 Oh, okay. Yeah, yeah, yeah. It all blurs together. Anyway, we talked about this term that was used, well, sort of attempted to be repurposed by St. [[Mark]] the Ascetic, or sometimes called St. [[Mark]] the Monk, [[Kyriakos Anthropos]] in Greek.
 
-**[[Fr. Andrew]]:** [Listen from 04:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:42:00)
+**[[Fr. Andrew]]:** [Listen from [04:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:42:00)
 Yeah, he shows up in the Philokalia, right?
 
-**[[Fr. Stephen]]:** [Listen from 04:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:45:00)
+**[[Fr. Stephen]]:** [Listen from [04:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=04:45:00)
 Right. And uh, that gets sort of brought through Latin as the dominical man, or the lordly man, uh, is the idea. Now, that term, I say he attempted to repurpose it because that term was used by the Apollinarians to describe sort of their composite [[Christology]].
 
-**[[Fr. Andrew]]:** [Listen from 05:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:04:00)
+**[[Fr. Andrew]]:** [Listen from [05:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:04:00)
 Yeah, right?
 
-**[[Fr. Stephen]]:** [Listen from 05:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:05:00)
+**[[Fr. Stephen]]:** [Listen from [05:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:05:00)
 Uh, and St. [[Mark]] tried to sort of take the terminology and repurpose it and it didn't really catch on. Right. So, the other father, other later fathers didn't sort of pick up on it uh, and and use it the way he did. But it was a way for him to talk about uh, the in scare quotes, uh, pre-incarnate [[Christ]], more on that later. Um, places where the second person of the Holy Trinity outside of the [[incarnation]] in the New Testament appears in bodily form.
 
-**[[Fr. Andrew]]:** [Listen from 05:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:41:00)
+**[[Fr. Andrew]]:** [Listen from [05:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:41:00)
 Right. It seems to have some sort of particularly human bodily form.
 
-**[[Fr. Stephen]]:** [Listen from 05:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:45:00)
+**[[Fr. Stephen]]:** [Listen from [05:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:45:00)
 Uh, and that was a, which I think if the Apollinarians hadn't already used it, probably would have caught on and been helpful, but...
 
-**[[Fr. Andrew]]:** [Listen from 05:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:55:00)
+**[[Fr. Andrew]]:** [Listen from [05:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=05:55:00)
 Yeah, I mean it's a pretty good phrase. Kyriakos, just reading it literally, Kyriakos Anthropos, lordly man, or you know, yeah. Yeah, I mean it it it it works, but unfortunately the heretics got a hold of it and wouldn't let go.
 
-**[[Fr. Stephen]]:** [Listen from 06:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=06:08:00)
+**[[Fr. Stephen]]:** [Listen from [06:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=06:08:00)
 Poisoned the well as it were. Right. Yeah, so, um, tonight we're going to kind of be going through some passages in some detail as is our want, uh, because there are a few sort of key passages. And as you also mentioned, this is this is kind of uh, well, the last three episodes were very, well, for us, tightly themed. That's, um, this one we're going to touch on a lot more stuff along the way, uh, that's that's maybe not directly related, but because we're going to be working through these passages, there are going to be other sort of related things uh that come into play that we'll talk about.
 
-**[[Fr. Andrew]]:** [Listen from 06:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=06:52:00)
+**[[Fr. Andrew]]:** [Listen from [06:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=06:52:00)
 Yes, although I I should say by the way, though, we did get a comment from someone that described our last episode as quote, a rather torturous and winding journey around the issue.
 
-**[[Fr. Stephen]]:** [Listen from 07:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:03:00)
+**[[Fr. Stephen]]:** [Listen from [07:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:03:00)
 Oh, well that's cool.
 
-**[[Fr. Andrew]]:** [Listen from 07:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:04:00)
+**[[Fr. Andrew]]:** [Listen from [07:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:04:00)
 Yeah, so not everybody thinks it was very focused.
 
-**[[Fr. Stephen]]:** [Listen from 07:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:07:00)
+**[[Fr. Stephen]]:** [Listen from [07:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:07:00)
 Those are my favorite comments. Well, that's why I put in for us.
 
-**[[Fr. Andrew]]:** [Listen from 07:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:10:00)
+**[[Fr. Andrew]]:** [Listen from [07:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:10:00)
 Yeah, for us, exactly.
 
-**[[Fr. Stephen]]:** [Listen from 07:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:11:00)
+**[[Fr. Stephen]]:** [Listen from [07:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:11:00)
 Yes, for us it was good.
 
-**[[Fr. Andrew]]:** [Listen from 07:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:13:00)
+**[[Fr. Andrew]]:** [Listen from [07:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:13:00)
 Yeah, I I I mean, I I think that part of the reason that it that it comes to be that way is that if we just simply say, okay, here's the question and here's the answer, good night everybody, that we miss the way that the answer needs to be received, right? And often there's a whole lot of, you know, unlearning what you have learned kind of thing that we have to do along the way. So, I I don't know. I'm not going to make any apologies for our rather torturous and winding journey around the issue. But [[God]] bless you, reviewer. Thank you very much for that.
 
-**[[Fr. Stephen]]:** [Listen from 07:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:48:00)
+**[[Fr. Stephen]]:** [Listen from [07:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=07:48:00)
 Yeah, no. Yeah. I mean, that reminds me of someone, someone asked Alfred Hitchcock once why nobody in his movies ever called the police. And he said, because then the movie would be over in five minutes and that would be boring, was his response, right? So, yeah, come on, man.
 
-**[[Fr. Andrew]]:** [Listen from 08:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:05:00)
+**[[Fr. Andrew]]:** [Listen from [08:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:05:00)
 How it should have ended, Lord of Spirits edition.
 
-**[[Fr. Stephen]]:** [Listen from 08:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:08:00)
+**[[Fr. Stephen]]:** [Listen from [08:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:08:00)
 Yeah, have some fun. Have some fun with it.
 
-**[[Fr. Andrew]]:** [Listen from 08:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:10:00)
+**[[Fr. Andrew]]:** [Listen from [08:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:10:00)
 Exactly.
 
-**[[Fr. Stephen]]:** [Listen from 08:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:11:00)
+**[[Fr. Stephen]]:** [Listen from [08:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:11:00)
 We're all here to have a good time and...
 
-**[[Fr. Andrew]]:** [Listen from 08:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:13:00)
+**[[Fr. Andrew]]:** [Listen from [08:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:13:00)
 That's right. Hear hear song lyrics from They Might Be [[Giants]]. Get Trudi home late for dinner.
 
-**[[Fr. Stephen]]:** [Listen from 08:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:19:00)
+**[[Fr. Stephen]]:** [Listen from [08:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:19:00)
 Yeah. Right? Yeah. That's our goal.
 
-**[[Fr. Andrew]]:** [Listen from 08:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:21:00)
+**[[Fr. Andrew]]:** [Listen from [08:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:21:00)
 Right. Okay, well, back to back to [[Daniel]] 10.
 
-**[[Fr. Stephen]]:** [Listen from 08:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:27:00)
+**[[Fr. Stephen]]:** [Listen from [08:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=08:27:00)
 Back to [[Daniel]]'s prophesizations. Back to [[Daniel]], yeah. So yeah, the first the first one of these texts that we're going to go through in uh some detail uh is from uh [[Daniel]] chapter 10. We spent a lot of time in and around [[Daniel]] 7 last time and we've sort of gone through [[Daniel]] 7 from three or four different trajectories by this point. But [[Daniel]] 10 uh is less read. We have touched on it before, actually, way back in one of the early episodes, but I won't guess which one because apparently I'm way off, so um but uh in the before times.
 
-**[[Fr. Andrew]]:** [Listen from 09:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:02:00)
+**[[Fr. Andrew]]:** [Listen from [09:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:02:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 09:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:03:00)
+**[[Fr. Stephen]]:** [Listen from [09:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:03:00)
 So, way back in the long ago time, we we briefly uh touched on it, but we're going to now go through it in some detail because this is one of the, I I wouldn't go so far as I did last time. Last time, I mean, [[Daniel]] 7 really is for the the sort of eschatological [[Son of Man]] figure is the locus classicus for discussing it. But [[Daniel]] 10 is not really the locus classicus for discussing the heavenly man, but it's one of the most significant passages for this discussion. So that's why we're starting there.
 
-**[[Fr. Andrew]]:** [Listen from 09:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:34:00)
+**[[Fr. Andrew]]:** [Listen from [09:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:34:00)
 Right. Right. Okay. Well, I'm going to read the passage. Um, and this is uh, well, you'll you'll hear this is [[Daniel]] speaking.
 
-**[[Fr. Andrew]]:** [Listen from 09:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:44:00)
+**[[Fr. Andrew]]:** [Listen from [09:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=09:44:00)
 In the third year of Cyrus king of Persia, a word was revealed to [[Daniel]], who was named Belteshazzar, and the word was true, and it was a great conflict. And he understood the word and had understanding of the vision. In those days, I, [[Daniel]], was mourning for three weeks. I ate no pleasing food, no meat or wine entered my mouth, nor did I anoint myself at all for the full three weeks. On the 24th day of the first month, as I was standing on the bank of the great river, which is the Tigris, I lifted up my eyes and looked, and there suddenly appeared a man clothed in linen with a belt of fine gold from Uphaz around his waist. His body was like a beryl, that's B E R Y L, the the gem. His body was like a beryl, his face like the appearance of lightning, his eyes like flaming torches, his arms and legs like the gleam of burnished bronze, and the sound of his words like the sound of a multitude. And only I, [[Daniel]], saw the vision, for the men who were with me did not see the vision, but a great trembling fell upon them, and they fled to hide themselves. So I was left alone and saw this great vision, and no strength was left in me. My fair appearance was fearfully changed, and I retained no strength. Then I heard the sound of his words, and as I heard the sound of his words, I fell on my face in a deep sleep with my face to the ground. And behold, a hand touched me and set me trembling on my hands and knees. And he said to me, "O [[Daniel]], favored man" (in the Greek Old Testament, "man of desires"), "understand the words that I speak to you and stand upright, for now I have been sent to you." And when he had spoken this word to me, I stood up trembling. Then he said to me, "Fear not, [[Daniel]], for from the first day that you set your heart to understand and humbled yourself before [[God]], your words have been heard, and I have come because of your words. The prince of the kingdom of Persia withstood me 21 days, but [[Michael]], one of the chief princes, came to help me, for I was left there with the kings of Persia and came to make you understand what is to happen to your people in the last days, for the vision is for days yet to come." When he had spoken to me according to these words, I turned my face toward the ground and was mute, and immediately, one having the likeness of the sons of Adam touched my lips. Then I spoke my mouth, then I opened my mouth and spoke. I said to he who stood before me, "Oh my lord, by reason of the vision, pains have come upon me, and I retain no strength. How can my lord's servant talk with my lord, for now no strength remains in me and no breath is left in me." Again, one having the appearance of a man touched me and strengthened me, and he said, "Oh favored man," again, "man of desires, fear not, peace be with you, be strong and and courageous." And as he spoke to me, I was strengthened and said, "Let my lord speak, for you have strengthened me." Then he said, "Do you know why I have come to you? But now I will return to fight against the prince of Persia, and when I go out, behold, the prince of Greece will come. But I will tell you what is inscribed in the book of truth. There is none who contends by my side against these except [[Michael]], your prince."
 
 So that's the vision.
 
-**[[Fr. Stephen]]:** [Listen from 13:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:07:00)
+**[[Fr. Stephen]]:** [Listen from [13:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:07:00)
 Yes, and uh, I'm making Father Andrew read these long passages because I have to save my voice for nativity services. So I'm just throwing him right under the bus.
 
-**[[Fr. Andrew]]:** [Listen from 13:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:16:00)
+**[[Fr. Andrew]]:** [Listen from [13:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:16:00)
 That's right, I'm a second [[priest]] now, so you know, I don't really have anything I have to do. Yeah. So...
 
-**[[Fr. Stephen]]:** [Listen from 13:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:22:00)
+**[[Fr. Stephen]]:** [Listen from [13:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:22:00)
 And that's the whole of chapter 10, everybody, by the way.
 
-**[[Fr. Andrew]]:** [Listen from 13:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:25:00)
+**[[Fr. Andrew]]:** [Listen from [13:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:25:00)
 Yeah, that's the whole chapter.
 
-**[[Fr. Stephen]]:** [Listen from 13:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:27:00)
+**[[Fr. Stephen]]:** [Listen from [13:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:27:00)
 Um, but uh, yeah, and you may have noticed, as it was mentioned, uh, it's in the first person. And we briefly mentioned before, um, and we'll only touch on it briefly now, but the book of [[Daniel]]'s kind of a mess.
 
-**[[Fr. Andrew]]:** [Listen from 13:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:44:00)
+**[[Fr. Andrew]]:** [Listen from [13:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:44:00)
 Textually.
 
-**[[Fr. Stephen]]:** [Listen from 13:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:45:00)
+**[[Fr. Stephen]]:** [Listen from [13:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=13:45:00)
 Textually. Yeah. Yeah. Um, it switches between third person and first person. Uh, people are already, at least a lot of people listening to this are probably already aware that the Greek version is very different than the we'll call it the other version because the other version, uh the older version is part in Hebrew and part in Aramaic and it switches back and forth at two points, one of which is exceedingly arbitrary that it just all of a sudden switches to Aramaic. It starts out in Hebrew, switches to Aramaic at a seemingly completely arbitrary point, and then switches back to Hebrew for the last couple of chapters. Um, and there are like a thousand theories, because journal articles have to be published and dissertations have to be written. Yeah, uh on why this is and how this is happening. Uh, there's a there's a Dutch scholar who spent his whole career like just writing about this issue, like. Um so and and the reality is I mean nobody knows for sure, you know, right, why exactly and what's going on and and a lot of the theories are that these are different pieces that came together later, you know, that started out separate, etc, etc, etc. Um but there are sort of through lines. The reason I only reason I'm bringing that up here is that as we're now going to be talking about it and interpreting it, we are going to be interpreting it in the context of the book of [[Daniel]] as a whole.
 
-**[[Fr. Andrew]]:** [Listen from 15:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=15:16:00)
+**[[Fr. Andrew]]:** [Listen from [15:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=15:16:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 15:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=15:17:00)
+**[[Fr. Stephen]]:** [Listen from [15:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=15:17:00)
 Um, so we're taking for granted that this has some connections to what comes before it, at least. We're not going to talk too much about what comes after it, but at least what comes before it. Um, and yes, there are those folks uh not just confined to 19th century Germany who would say, you can't do that because it's from written by eight different people, uh at least two of whom were women and yeah, but but that's where we're going to go. Because um, and the reason for that, the justification for that is that as [[Orthodox]] Christians, the version of the text that has authority for us, the version of the text that's important to us is the version of the text that is used and read in the church.
 
-**[[Fr. Andrew]]:** [Listen from 16:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:06:00)
+**[[Fr. Andrew]]:** [Listen from [16:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:06:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 16:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:07:00)
+**[[Fr. Stephen]]:** [Listen from [16:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:07:00)
 So it it doesn't matter what the historical process was that got us there, it's that form of the text.
 
-**[[Fr. Andrew]]:** [Listen from 16:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:14:00)
+**[[Fr. Andrew]]:** [Listen from [16:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:14:00)
 Right. This is the one we've actually received.
 
-**[[Fr. Stephen]]:** [Listen from 16:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:16:00)
+**[[Fr. Stephen]]:** [Listen from [16:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:16:00)
 Right. That's the one that has authority for us, not any hypothetical or even real earlier versions, right, when they're found. Right. Um, so uh, all that said, um, we'll kind of go through and make some comments, you know, go back through what what Father Andrew just read sort of in toto, um, about this vision. So you you commented as you were going through uh, on the Man of Desires thing.
 
-**[[Fr. Andrew]]:** [Listen from 16:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:45:00)
+**[[Fr. Andrew]]:** [Listen from [16:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:45:00)
 Yeah, right.
 
-**[[Fr. Stephen]]:** [Listen from 16:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:47:00)
+**[[Fr. Stephen]]:** [Listen from [16:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:47:00)
 Which uh, if folks have been going to [[liturgy]] the last couple of weeks, they've probably heard that title a few times.
 
-**[[Fr. Andrew]]:** [Listen from 16:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:54:00)
+**[[Fr. Andrew]]:** [Listen from [16:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:54:00)
 Yep. Yep.
 
-**[[Fr. Stephen]]:** [Listen from 16:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:55:00)
+**[[Fr. Stephen]]:** [Listen from [16:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=16:55:00)
 And uh, Man of Desires is uh, really vague in English.
 
-**[[Fr. Andrew]]:** [Listen from 17:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=17:03:00)
+**[[Fr. Andrew]]:** [Listen from [17:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=17:03:00)
 Yeah, and and and even like the explanations that I've read for it, like like I, for instance, I copied out the one that's from this is from the Synaxarion that's in the Great Horologion, the the Greek tradition one. Uh, and it says this about this. [[Daniel]], whose name means [[God]] is judge, in case everybody was wondering, was called Man of Desires by the [[angels]] that appeared because he courageously disdained every desire of the body, even the very bread that is necessary for nourishment, which that seems like opposite of what it means. Like Man of Desires would seem to mean a man who has a lot of desires, but this is actually about him denying those desires. And then it says, furthermore, he received this name because in his longing for the freedom of those of his tribe and his desire to know their future condition, he ceased not supplicating [[God]], fasting and bending the knee three times a day, which that's a little bit more uh makes a little bit more sense with the idea of being him being a man of desires. But that's not that's not quite what it means, right? In either...
 
-**[[Fr. Stephen]]:** [Listen from 18:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:07:00)
+**[[Fr. Stephen]]:** [Listen from [18:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:07:00)
 Right.
 
-**[[Fr. Andrew]]:** [Listen from 18:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:08:00)
+**[[Fr. Andrew]]:** [Listen from [18:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:08:00)
 What is it? Aramaic or or Hebrew here? Or Greek?
 
-**[[Fr. Stephen]]:** [Listen from 18:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:13:00)
+**[[Fr. Stephen]]:** [Listen from [18:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:13:00)
 Aramaic or Greek, depending on which version you're you're reading, right? But yeah, and and this the the contrast you're pointing out in that surface reading of the Synaxarion in English is even more pronounced in Greek because the word that's translated desire in the Greek version of this is is a form of *epithymia*, which is *epithymia* is what's used for like passions.
 
-**[[Fr. Andrew]]:** [Listen from 18:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:41:00)
+**[[Fr. Andrew]]:** [Listen from [18:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:41:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 18:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:42:00)
+**[[Fr. Stephen]]:** [Listen from [18:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=18:42:00)
 Right? Like desires in that sense, right? And so then it it's saying he's called the man of desires because of his asceticism and you're like, what? What? Yeah, right. Right. So what's going on is actually not sort of a weird opposite contradiction, but a kind of wordplay, right? Because whenever you see, this is a general tip, when you see in an English translation, an English biblical translation of Greek, when you see of, right, that's like that's a punt, right? Because what that means is you have a word that's in the genitive and the Greek genitive can be used in lots of different ways, right? But when you have a committee translating something, all those people in that committee disagree about which way you should translate it in this particular instance. And so you end up just, well we'll just put of, okay, is everybody right? Like is everybody happy with that? Right? So that should tell you that there's some anytime you see an of like that, like man of desires, you know there's some further interpretation that needs to take place that hasn't yet, right? Right. Uh it's a good marker.
 
-**[[Fr. Stephen]]:** [Listen from 20:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:00:00)
+**[[Fr. Stephen]]:** [Listen from [20:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:00:00)
 So the idea behind both the Aramaic here and the way the Greek is used is not that this is a man who possesses desires or who is filled with desires or passions, but this is a man who is pleasing or who is desired.
 
-**[[Fr. Andrew]]:** [Listen from 20:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:20:00)
+**[[Fr. Andrew]]:** [Listen from [20:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:20:00)
 Yeah, it's it's a desirable man is sort of the idea.
 
-**[[Fr. Stephen]]:** [Listen from 20:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:24:00)
+**[[Fr. Stephen]]:** [Listen from [20:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:24:00)
 Or a man who is favored, right? That kind of that kind of idea, pleasing or favored man, right? And so the idea that's going on sort of behind the English of the the Synaxarion is the idea that, right, this play that [[Daniel]] cut off the pleasures of this world and became pleasing to [[God]].
 
-**[[Fr. Andrew]]:** [Listen from 20:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:48:00)
+**[[Fr. Andrew]]:** [Listen from [20:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=20:48:00)
 By these means and and then there's the fun sort of wordplay where it talks about he eats no pleasing food when it's talking about his asceticism there in the scripture or no desirable in the yeah in [[Daniel]] 10.
 
-**[[Fr. Stephen]]:** [Listen from 21:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:03:00)
+**[[Fr. Stephen]]:** [Listen from [21:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:03:00)
 Yeah, what's translated there is I ate no pleasing food, no meat or wine entered my mouth. The word pleasing there is the same word.
 
-**[[Fr. Andrew]]:** [Listen from 21:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:11:00)
+**[[Fr. Andrew]]:** [Listen from [21:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:11:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 21:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:11:00)
+**[[Fr. Stephen]]:** [Listen from [21:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:11:00)
 So this wasn't food that had lots of passions and desires. Right? The food was just laying there.
 
-**[[Fr. Andrew]]:** [Listen from 21:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:18:00)
+**[[Fr. Andrew]]:** [Listen from [21:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:18:00)
 That would be a that's that's a different episode.
 
-**[[Fr. Stephen]]:** [Listen from 21:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:20:00)
+**[[Fr. Stephen]]:** [Listen from [21:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=21:20:00)
 Yeah, yeah, that's an episode of Veggietales or something. It's always werewolves with you anyway. So pleasing food. Yeah. Right, right. So that's the that's the that's what the Synaxarion is doing. That's what's going on with this Man of Desires uh title uh that we hear hear over and over again. And so relatedly, as we just talked about, right, notice that [[Daniel]] here is trying to receive this vision. He's seeking wisdom from [[God]], right, this kind of prophetic wisdom. And in order to do that, he's practicing asceticism, right? This is not just this [[Christian]] innovation. This is not something that comes from Platonism or [[Gnosticism]] or something. Right? This is Jewish man living in exile practicing uh practicing asceticism. And even the way he fasts will be kind of familiar to [[Orthodox]] Christians because it's not that he just doesn't eat anything.
 
-**[[Fr. Andrew]]:** [Listen from 22:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:41:00)
+**[[Fr. Andrew]]:** [Listen from [22:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:41:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 22:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:42:00)
+**[[Fr. Stephen]]:** [Listen from [22:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:42:00)
 Right, it's that he cuts out certain pleasing foods. In this case, meat and alcohol.
 
-**[[Fr. Andrew]]:** [Listen from 22:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:47:00)
+**[[Fr. Andrew]]:** [Listen from [22:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:47:00)
 Yeah. Right. He doesn't eat certain kinds of things.
 
-**[[Fr. Stephen]]:** [Listen from 22:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:50:00)
+**[[Fr. Stephen]]:** [Listen from [22:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=22:50:00)
 Right. The the most pleasing things, right? He goes through a simpler, sparer diet, right, in order to focus on prayer, right, and to seek this wisdom from [[God]]. And then that prayer is uh is answered. And so the way in which that prayer is answered is that this man appears to him, right? He lives on, he's by the river, he's by the Tigris river and uh he looks up and there's a man there. But even though he's identified at first as a man, the description, right, his clothes is okay, right, that that he's got, you know, uh a linen linen garment and a gold sash, right. Uh, but then his face is like lightning, his arms and legs are like, you know, burnished bronze, right? So...
 
-**[[Fr. Andrew]]:** [Listen from 23:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=23:51:00)
+**[[Fr. Andrew]]:** [Listen from [23:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=23:51:00)
 It's all gems and metal and and Yeah. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 23:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=23:56:00)
+**[[Fr. Stephen]]:** [Listen from [23:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=23:56:00)
 Yeah, this isn't describing like uh uh Doc Savage or anything. This is...
 
-**[[Fr. Andrew]]:** [Listen from 24:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:01:00)
+**[[Fr. Andrew]]:** [Listen from [24:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:01:00)
 Wow, see that was one I got. Thank you. Thank you very much. Man of Bronze right there. Anyway. Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 24:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:07:00)
+**[[Fr. Stephen]]:** [Listen from [24:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:07:00)
 Doc Savage, Doc Savage. Yeah. So...
 
-**[[Fr. Andrew]]:** [Listen from 24:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:10:00)
+**[[Fr. Andrew]]:** [Listen from [24:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:10:00)
 So, but it's also clearly not your run of the mill human, right? It's not just, oh, he looked up and another another [[prophet]] came came walking by.
 
-**[[Fr. Stephen]]:** [Listen from 24:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:22:00)
+**[[Fr. Stephen]]:** [Listen from [24:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:22:00)
 Right.
 
-**[[Fr. Andrew]]:** [Listen from 24:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:22:00)
+**[[Fr. Andrew]]:** [Listen from [24:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:22:00)
 Yeah, no, he's he's definitely deeply weird and sort of spectacular looking, you know.
 
-**[[Fr. Stephen]]:** [Listen from 24:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:26:00)
+**[[Fr. Stephen]]:** [Listen from [24:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:26:00)
 Right. Yeah. Yeah. And there is another place in the Bible where someone else has a vision and sees a very similar looking man.
 
-**[[Fr. Andrew]]:** [Listen from 24:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:39:00)
+**[[Fr. Andrew]]:** [Listen from [24:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:39:00)
 Where could it be, Father Stephen?
 
-**[[Fr. Stephen]]:** [Listen from 24:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:41:00)
+**[[Fr. Stephen]]:** [Listen from [24:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:41:00)
 That's in the book of [[Revelation]].
 
-**[[Fr. Andrew]]:** [Listen from 24:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:43:00)
+**[[Fr. Andrew]]:** [Listen from [24:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=24:43:00)
 Right. So [[Revelation]] chapter 1 verses 12 through 15, this is the [[Apostle]] [[John]] now speaking. "Then I turned to see the voice that was speaking to me, and on turning, I saw seven golden lampstands, and in the midst of the lampstands, one like a [[son of man]], clothed with a long robe and with a golden sash around his chest. The hairs of his head were white like white wool, like snow. His eyes were like a flame of fire. His feet were like burnished bronze, refined in a furnace, and his voice was like the roar of many waters."
 
-**[[Fr. Stephen]]:** [Listen from 25:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=25:19:00)
+**[[Fr. Stephen]]:** [Listen from [25:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=25:19:00)
 Right. And so, may have noticed that's that's similar but not quite the same. Right? And this is one of these interesting little things. This is a rabbit trail. We won't go all the way down. Um, but I'll stick a foot in it. Yeah, we'll dip our toes. Uh, in the Tigris River. Um, and uh, so the the this is not St. [[John]] is not here in [[Revelation]] chapter one sort of just referencing the Greek of [[Daniel]] 10.
 
-**[[Fr. Andrew]]:** [Listen from 25:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=25:53:00)
+**[[Fr. Andrew]]:** [Listen from [25:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=25:53:00)
 Yeah, it's not a quote.
 
-**[[Fr. Stephen]]:** [Listen from 25:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=25:54:00)
+**[[Fr. Stephen]]:** [Listen from [25:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=25:54:00)
 Right. He seems to be, because there are sort of weird differences between the Greek and the Aramaic of [[Daniel]] 10. He seems to be citing the Aramaic in Greek. Doing his own translation. Right, his own translation from Aramaic into Greek. Um, and that's why things sound really similar but they're not sort of identical because when you you know, if you're translating directly from Aramaic into English and then from Aramaic to Greek to English, the English you get out of those two processes isn't going to match exactly, right? Right. Um, but but that's what's going on here. And that, by the way, uh, strongly implies that whoever wrote the book of [[Revelation]] uh, was a first language Aramaic speaker, like somebody from Galilee. I'll just leave that there. But um, so, but this isn't, right, uh, let's be clear, St. [[John]] is likewise having a vision.
 
-**[[Fr. Andrew]]:** [Listen from 27:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:04:00)
+**[[Fr. Andrew]]:** [Listen from [27:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:04:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 27:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:04:00)
+**[[Fr. Stephen]]:** [Listen from [27:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:04:00)
 He's not just reading [[Daniel]].
 
-**[[Fr. Stephen]]:** [Listen from 27:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:07:00)
+**[[Fr. Stephen]]:** [Listen from [27:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:07:00)
 Right. and sort of doing a remix, right?
 
-**[[Fr. Andrew]]:** [Listen from 27:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:10:00)
+**[[Fr. Andrew]]:** [Listen from [27:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=27:10:00)
 Yeah. Yeah, it's it's that he's having a vision and he's seeing something very similar to what [[Daniel]] is seeing, but because of course he's steeped in the [[Daniel]] tradition, when he goes to write it down, he's putting it in similar terms, you know? And and and seems to be translating on some level, but it's not, you know, again, it's not it's not just him quoting, right? It's he's actually having a vision. And I think, you know, just as a side note, just like you said, the version of these books that we receive are the, as canonical, are the versions that we receive. We also have to receive them as having integrity of their own and not just say, well, I don't think he really had a vision, because he says I had a vision, you know? It's like, well, if you're just going to say you're a liar, then why are we bothering to read this book? But uh, you know, I don't know. Not a liar.
 
-**[[Fr. Stephen]]:** [Listen from 28:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=28:07:00)
+**[[Fr. Stephen]]:** [Listen from [28:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=28:07:00)
 Right. So, uh, the question then, and uh the fact that we've brought up the [[apocalypse]] of St. [[John]] probably gives away the answer we're going to come up with by uh making this connection that we just made. But the question then is, who dis, right? Who Who is this man? Who looks like a statue at the same time? Yeah. Who uh uh [[Daniel]] sees. Um I will throw in one little, I'm definitely not going following this out, but just for for for those of you who might want another little piece of, another little data point uh in terms of [[St. Paul]] uh receiving a prophetic call on the road to Damascus rather than being a quote-unquote convert. Uh, notice what [[Daniel]] says right after he describes the man he saw. He says, only I, [[Daniel]], saw the vision, for the men who were with me did not see the vision, but a great trembling fell upon them. Compare that to how [[St. Paul]] narrates what happened to the men, the other men who were with him on the road to Damascus.
 
-**[[Fr. Andrew]]:** [Listen from 29:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=29:19:00)
+**[[Fr. Andrew]]:** [Listen from [29:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=29:19:00)
 Yeah, pretty much the same. And I mean there's stuff like this that happens in various places, like like where [[Christ]], you know, speaks to the voice of the, the voice of the Father speaks to him and of course, [[John]] writes it down what he said, and then it says, but some said it thundered. Like this is a thing that you that happens every so often.
 
-**[[Fr. Stephen]]:** [Listen from 29:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=29:38:00)
+**[[Fr. Stephen]]:** [Listen from [29:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=29:38:00)
 Yeah. Yeah. So that little tidbit being thrown out there. That's the that's the the the cheap present that goes in your stocking, I guess, before you get the the real presents that we're going to get into now. Um the uh um in terms of who this is, we've got some candidates sort of in the context. There are some angelic beings, some divine beings who we've already seen in [[Daniel]] and who we've seen in the in the immediate context. So, one candidate might be St. [[Michael]] the Archangel.
 
-**[[Fr. Andrew]]:** [Listen from 30:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:17:00)
+**[[Fr. Andrew]]:** [Listen from [30:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:17:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 30:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:18:00)
+**[[Fr. Stephen]]:** [Listen from [30:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:18:00)
 And of course, we can kind of rule him out right off the bat because twice here in this vision, the man who we're identifying refers to St. [[Michael]] in the third person.
 
-**[[Fr. Andrew]]:** [Listen from 30:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:32:00)
+**[[Fr. Andrew]]:** [Listen from [30:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:32:00)
 Yeah, so that wouldn't work.
 
-**[[Fr. Stephen]]:** [Listen from 30:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:34:00)
+**[[Fr. Stephen]]:** [Listen from [30:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:34:00)
 As someone who is with him and someone who's on his side, right? So it can't be him. So, next candidate might be the Archangel [[Gabriel]], after whom my parish is named. Right? Um, and uh, those two are put in context and and St. [[Gabriel]] does appear in [[Daniel]], but here's the problem. He just appeared in [[Daniel]].
 
-**[[Fr. Andrew]]:** [Listen from 30:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:59:00)
+**[[Fr. Andrew]]:** [Listen from [30:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=30:59:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 31:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:00:00)
+**[[Fr. Stephen]]:** [Listen from [31:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:00:00)
 So if he were mentioning him again, it would just say, and [[Gabriel]] came to me again, you know, or something like that.
 
-**[[Fr. Stephen]]:** [Listen from 31:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:06:00)
+**[[Fr. Stephen]]:** [Listen from [31:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:06:00)
 Right. He wouldn't give this description and [[fall]] on his face and right, have this extreme reaction to seeing somebody who he just saw twice.
 
-**[[Fr. Andrew]]:** [Listen from 31:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:14:00)
+**[[Fr. Andrew]]:** [Listen from [31:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:14:00)
 Plus, plus, when, you know, when [[Gabriel]]'s mentioned in [[Daniel]] 8:16, [[Daniel]] says this, "And I heard a man's voice between the banks of the Ulai," the river, "and it called, '[[Gabriel]], make this man understand the vision.'" So there's the voice, this man's voice who is giving [[Gabriel]] orders. You know, Right, and that voice is coming from the river by which [[Daniel]] now sees this man.
 
-**[[Fr. Andrew]]:** [Listen from 31:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:43:00)
+**[[Fr. Andrew]]:** [Listen from [31:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:43:00)
 Right, that's the beginning of chapter 10.
 
-**[[Fr. Stephen]]:** [Listen from 31:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:46:00)
+**[[Fr. Stephen]]:** [Listen from [31:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:46:00)
 Right. And so it makes sense that if we're reading this through, that we would say, "Oh, this man who he now sees must be the man who was talking to [[Gabriel]] in 8:16."
 
-**[[Fr. Andrew]]:** [Listen from 31:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:57:00)
+**[[Fr. Andrew]]:** [Listen from [31:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:57:00)
 Yeah, exactly.
 
-**[[Fr. Stephen]]:** [Listen from 31:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:58:00)
+**[[Fr. Stephen]]:** [Listen from [31:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=31:58:00)
 Right? Now he's seeing him at the river. Um, so that rules out the two of them. But we also get this other clue in terms of the context of of [[Daniel]], and that's that there are actually three descriptions of this man in chapter 10 that you read, not just the one. Right? Right. The one is the most detailed. Right? But then twice after that, he's described, right? And in in the other two, the first one is that he's one having the likeness of the sons of Adam. And in Greek, it has one having the likeness of a [[son of man]].
 
-**[[Fr. Andrew]]:** [Listen from 32:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:36:00)
+**[[Fr. Andrew]]:** [Listen from [32:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:36:00)
 [[Son of Man]], yeah.
 
-**[[Fr. Stephen]]:** [Listen from 32:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:38:00)
+**[[Fr. Stephen]]:** [Listen from [32:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:38:00)
 Right, which, I mean, those are commensurate, right, because Adam is the word for man. Right, as we talked about last time. See the previous episode.
 
-**[[Fr. Andrew]]:** [Listen from 32:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:44:00)
+**[[Fr. Andrew]]:** [Listen from [32:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:44:00)
 See the last see the torturous winding road of our last episode.
 
-**[[Fr. Stephen]]:** [Listen from 32:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:48:00)
+**[[Fr. Stephen]]:** [Listen from [32:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=32:48:00)
 Um, and uh, and then after that, he is again referred to, right? Again, one having the appearance of a man. Right? So, this man appears both in this kind of heavenly fashion, right? This um, that we also see paralleled in [[Revelation]] and that and that as we go forward tonight, we'll see paralleled other places as well. But he also appears just as someone who looks like a human. Right? Which is what we saw in [[Daniel]] 7 last time.
 
-**[[Fr. Andrew]]:** [Listen from 33:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:27:00)
+**[[Fr. Andrew]]:** [Listen from [33:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:27:00)
 Right. So you've got both this spectacular, divine appearance, and then he also looks like a man.
 
-**[[Fr. Stephen]]:** [Listen from 33:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:39:00)
+**[[Fr. Stephen]]:** [Listen from [33:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:39:00)
 Right.
 
-**[[Fr. Andrew]]:** [Listen from 33:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:39:00)
+**[[Fr. Andrew]]:** [Listen from [33:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:39:00)
 You know, so it's a heavenly appearance and it's a human appearance.
 
-**[[Fr. Stephen]]:** [Listen from 33:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:45:00)
+**[[Fr. Stephen]]:** [Listen from [33:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:45:00)
 Right. And when St. [[John]] sees this same man with the same description, it is the appearance of the heavenly [[Christ]].
 
-**[[Fr. Andrew]]:** [Listen from 33:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:56:00)
+**[[Fr. Andrew]]:** [Listen from [33:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:56:00)
 Right.
 
-**[[Fr. Stephen]]:** [Listen from 33:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:56:00)
+**[[Fr. Stephen]]:** [Listen from [33:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=33:56:00)
 Whom St. [[John]] had also seen as a man. Right.
 
-**[[Fr. Andrew]]:** [Listen from 34:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:02:00)
+**[[Fr. Andrew]]:** [Listen from [34:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:02:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 34:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:02:00)
+**[[Fr. Stephen]]:** [Listen from [34:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:02:00)
 So you've got his [[gospel]] showing him as a man.
 
-**[[Fr. Andrew]]:** [Listen from 34:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:05:00)
+**[[Fr. Andrew]]:** [Listen from [34:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:05:00)
 And sometimes as [[God]]. Although he is clearly he is both the whole time, let me just clarify that. And then and then of course he's also in then [[Revelation]], much more of a divine appearance, but again, he is also man, you know, uh in in [[Revelation]]. There's just he's different emphases between the two accounts.
 
-**[[Fr. Stephen]]:** [Listen from 34:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:26:00)
+**[[Fr. Stephen]]:** [Listen from [34:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:26:00)
 Right. Right. So if we come to the conclusion then, or at least we posit the hypothesis, that this is the, this is, this is [[Christ]], right? This is the second person of the Holy Trinity. This is [[God]] the Son, right? who [[Daniel]]'s talking to. That raises questions about the end of the chapter that we read, right?
 
-**[[Fr. Andrew]]:** [Listen from 34:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:48:00)
+**[[Fr. Andrew]]:** [Listen from [34:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=34:48:00)
 Yeah, there's all this stuff about him battling the Prince of Persia and St. [[Michael]] coming to give him a hand. Right. And no one but [[Michael]] coming to give him a hand.
 
-**[[Fr. Stephen]]:** [Listen from 35:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:00:00)
+**[[Fr. Stephen]]:** [Listen from [35:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:00:00)
 Right. You would say, well, if this is [[God]] the Son, if this is the second personal Trinity, number one, why would he need an angel's help?
 
-**[[Fr. Andrew]]:** [Listen from 35:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:09:00)
+**[[Fr. Andrew]]:** [Listen from [35:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:09:00)
 Right, isn't he just [[God]]?
 
-**[[Fr. Stephen]]:** [Listen from 35:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:10:00)
+**[[Fr. Stephen]]:** [Listen from [35:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:10:00)
 And number two, why can't he just, you know, curb stomp this demon and move on, right? Like, why is there why is there even a battle going on, right? And so we have to take this within the context of not just [[Daniel]] but of the Old Testament as a whole and sort of where we are in uh sort of the movement and sweep of the entire Old Testament.
 
-**[[Fr. Andrew]]:** [Listen from 35:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:37:00)
+**[[Fr. Andrew]]:** [Listen from [35:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=35:37:00)
 Right, right. So, you know, thinking back now to the first of this series of four episodes where we talked about the [[Angel of the Lord]], there's a bunch of times where the [[Angel of the Lord]] not only appears and talks to someone, but actually fights in battles and, you know, fights alongside and leads the armies of Israel. Right? So you've got this image already exists as a warrior image. It's already a, already a thing, you know, in in in scripture, yeah.
 
-**[[Fr. Stephen]]:** [Listen from 36:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:12:00)
+**[[Fr. Stephen]]:** [Listen from [36:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:12:00)
 Right. And that that place, right, that the the central place where that occurs is in the [[Torah]] at the time of the [[Exodus]].
 
-**[[Fr. Andrew]]:** [Listen from 36:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:20:00)
+**[[Fr. Andrew]]:** [Listen from [36:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:20:00)
 Right. A bunch a bunch of spots around there, right?
 
-**[[Fr. Stephen]]:** [Listen from 36:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:23:00)
+**[[Fr. Stephen]]:** [Listen from [36:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:23:00)
 Yeah, yeah. Like when it says that [[God]] is a man of war.
 
-**[[Fr. Andrew]]:** [Listen from 36:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:27:00)
+**[[Fr. Andrew]]:** [Listen from [36:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:27:00)
 Available now at store.ancientfaith.com. Sorry.
 
-**[[Fr. Stephen]]:** [Listen from 36:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:31:00)
+**[[Fr. Stephen]]:** [Listen from [36:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=36:31:00)
 Thanks. It's a good book everybody. Good book everybody. Uh, but um, so what's happening at the [[Exodus]], right? So the nations, right? [[God]] has, uh, because of his holiness, because he doesn't want to destroy humankind again after the flood, has withdrawn from the world, has placed these angelic beings over the nations. Those angelic beings have rebelled, and as we hear here in [[Daniel]] 7 or [[Daniel]] 10, uh, St. [[Michael]]'s the only one who stayed loyal, uh, who is is the sort of patron and [[guardian angel]] of Israel itself. Yeah. Um, but so at the time of the [[Exodus]], right, the people of Israel are in [[Egypt]] and they're enslaved in [[Egypt]]. And that's not just physical slavery, right? That's included, but that's also spiritual slavery because remember, at the time of the [[Passover]], [[God]] says he's going to render judgment against the gods of [[Egypt]].
 
-**[[Fr. Andrew]]:** [Listen from 37:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=37:44:00)
+**[[Fr. Andrew]]:** [Listen from [37:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=37:44:00)
 Right, not just against Pharaoh and his crew.
 
-**[[Fr. Stephen]]:** [Listen from 37:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=37:46:00)
+**[[Fr. Stephen]]:** [Listen from [37:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=37:46:00)
 Right, right. And so they have to be delivered from those those spiritual enemies and then brought to the land. So by the time we get to [[Daniel]], [[Daniel]] is living in the Babylonian exile.
 
-**[[Fr. Andrew]]:** [Listen from 37:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=37:59:00)
+**[[Fr. Andrew]]:** [Listen from [37:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=37:59:00)
 Yeah.
 
-**[[Fr. Stephen]]:** [Listen from 38:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=38:00:00)
+**[[Fr. Stephen]]:** [Listen from [38:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=38:00:00)
 Right. So the people in their disobedience, right, have suffered, the people of Judah have suffered the curses of the covenant. They've gone back into exile. The [[Exodus]] has been undone. They're now again living in a foreign land under a foreign oppressor.
 
-**[[Fr. Andrew]]:** [Listen from 38:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=38:18:00)
+**[[Fr. Andrew]]:** [Listen from [38:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=38:18:00)
 Including their gods.
 
-**[[Fr. Stephen]]:** [Listen from 38:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=38:19:00)
+**[[Fr. Stephen]]:** [Listen from [38:19:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=38:19:00)
 Under these foreign gods. Right? Yeah. The prince of Persia. Right? And pretty soon the prince of Greece is going to come through. Right? And they're back in this situation. And so this is why when you read the exilic [[prophets]], including [[Daniel]], the hope is that there's going to be this new [[Exodus]] that's going to end the exile. Ah, right? And and bring them back. And if there's going to be a new exile and they're going to be brought back, then that means once again, the angel of [[Yahweh]], the [[Yahweh]] angel, right, who is who is [[Yahweh]] himself is going to need to come and lead them into battle to defeat and battle against Israel's enemies, right? Judah's enemies. And so, what this is saying, what this is saying, what's being talked about here by the heavenly man when he talks to [[Daniel]] about this battle he's engaged in with the prince of Persia and then the prince of Greece is that that salvation, that new [[Exodus]], that new [[Passover]], that new [[Pentecost]] that are coming is already in motion. We're in media res right now, right? Right, so the the [[gospel]] is in process.
 
-**[[Fr. Andrew]]:** [Listen from 39:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=39:32:00)
+**[[Fr. Andrew]]:** [Listen from [39:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=39:32:00)
 Yeah, right. And and like one of the things that's said in the vision where where um [[God]] speaks to [[Daniel]] is he says that this is about the future. This is things to come. Right? So there's there's this sense of it's not just talking, you know, it's not talking about the [[Exodus]] from [[Egypt]], for instance, but it's and and it's also not just talking about, presumably, return from Babylonian exile, but it's as we talked about last time in particular, this is way bigger than all of that.
 
-**[[Fr. Stephen]]:** [Listen from 40:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=40:05:00)
+**[[Fr. Stephen]]:** [Listen from [40:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=40:05:00)
 Right. You know, this is the big defeat of of the all the false gods. Because it's not enough, right? This is why there's a promise of a new covenant, right? Because just re-initiating the old covenant would have just been restarting this whole cycle anew.
 
-**[[Fr. Andrew]]:** [Listen from 40:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=40:26:00)
+**[[Fr. Andrew]]:** [Listen from [40:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=40:26:00)
 Right. Where Israel sins again and goes back into exile, right? Just like you see that cycle play out a dozen times in the book of Judges. Right. That's not enough, right? So this is this is why it's fulfillment. It's filled to overflowing, right? This time it's a new covenant that's an everlasting covenant, right? That's going to not just manage sin, but it's going to deal with sin once for all. It's not going to just manage death, it's going to do away with death, right? And so this...
 
-**[[Fr. Andrew]]:** [Listen from 40:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=40:57:00)
+**[[Fr. Andrew]]:** [Listen from [40:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=40:57:00)
 Yeah, which which, I was just going to say, which then explains a lot of the language in [[Daniel]] 7 about this kingdom having no end.
 
-**[[Fr. Stephen]]:** [Listen from 41:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=41:04:00)
+**[[Fr. Stephen]]:** [Listen from [41:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=41:04:00)
 Right. Right. And and and this is in motion. And we're not going to go through all of these chapters of [[Daniel]], but this is the context in which the time when [[Christ]]'s birth is going to be is predicted pretty close to the year. Right. So this this process is in motion, right? We we've talked about how the word [[gospel]] is talking about is the report of a victory, right? [[Christ]]'s victory. And we talked last time with the [[son of man]], there's this victory that's won over these demonic [[powers]] after which [[Christ]] is enthroned and all power and heaven and on earth has been given to him. Well, what, we'll just say it, what [[Christ]] is saying here to [[Daniel]], right, is that the opening skirmishes of that that great battle, right? The beginning of that second greater, fulfilled [[Exodus]] is now in motion, and that's going to culminate then in the victory of [[Christ]] that we see uh unfolding in the gospels.
 
-**[[Fr. Andrew]]:** [Listen from 42:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:11:00)
+**[[Fr. Andrew]]:** [Listen from [42:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:11:00)
 Yeah, because he's he's taking on directly these [[principalities]] that are over these pagan nations. The Prince of Persia, the Prince of Greece.
 
-**[[Fr. Stephen]]:** [Listen from 42:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:21:00)
+**[[Fr. Stephen]]:** [Listen from [42:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:21:00)
 Yeah. Yes, they're being dealt with.
 
-**[[Fr. Andrew]]:** [Listen from 42:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:25:00)
+**[[Fr. Andrew]]:** [Listen from [42:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:25:00)
 Indeed. Right. So, so yeah, so I mean these these prophecies in [[Daniel]] are related ultimately then to this eschatological victory, which, you know, is why then you see this stuff appearing again in St. [[John]]'s [[apocalypse]] at at the end of of uh the New Testament. Um because this is about the culmination of all things. This is about the great victory of [[Christ]] over over his enemies.
 
-**[[Fr. Stephen]]:** [Listen from 42:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:55:00)
+**[[Fr. Stephen]]:** [Listen from [42:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:55:00)
 Right.
 
-**[[Fr. Andrew]]:** [Listen from 42:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:56:00)
+**[[Fr. Andrew]]:** [Listen from [42:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=42:56:00)
 So, all right, well, that is the first half of tonight's uh episode of the Lord of Spirits, and we're going to take a short break and we'll be right back with the second half.
 
 ## Second Half
 
-**Voice of Steve:** [Listen from 45:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:02:00)
+**Voice of Steve:** [Listen from [45:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:02:00)
 We're back now with the Lord of Spirits, with Father Andrew Stephen Damick and Father Stephen De Young. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
 
-**[[Fr. Andrew]]:** [Listen from 45:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:21:00)
+**[[Fr. Andrew]]:** [Listen from [45:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:21:00)
 Welcome back. This is the second half of the show, and it's where we begin to take your calls, so give us a ring. We'd like to hear from you. Just like the voice of Steve said, 855-AF-RADIO or 855-237-2346. So, we just took a little romp through [[Daniel]] chapter 10, pretty much the whole chapter, and we've got a whole lot more now to to look at. Um, this this this episode, we're going to just be looking at a whole bunch of scriptural passages. Um, so strap in, everybody.
 
-**[[Fr. Stephen]]:** [Listen from 45:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:50:00)
+**[[Fr. Stephen]]:** [Listen from [45:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:50:00)
 Yeah, but if you if you tuned into this show and you're not interested in the Bible, I'm kind of not sure why.
 
-**[[Fr. Andrew]]:** [Listen from 45:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:57:00)
+**[[Fr. Andrew]]:** [Listen from [45:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=45:57:00)
 Yeah, right. What are you doing here? Yeah, you've tuned into the wrong place. Exactly. So... So, okay, well, what's what's the first thing that we're going to look at here? Uh, another one of the [[prophets]]?
 
-**[[Fr. Stephen]]:** [Listen from 46:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=46:13:00)
+**[[Fr. Stephen]]:** [Listen from [46:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=46:13:00)
 Yes, we're actually going to be looking at several more of the [[prophets]] here, but um, yeah, this is we're you know, as as we said, you know, uh, nobody ever sees [[God]] and lives except for when they do. And so, uh, we're going to go through through some times when they do.
 
-**[[Fr. Andrew]]:** [Listen from 46:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=46:31:00)
+**[[Fr. Andrew]]:** [Listen from [46:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=46:31:00)
 Yeah, and and and the point, okay, so we're not like trying to contradict that line from the scriptures. You know, that that is a line from the scriptures. Um and and this actually came up in a lot of questions we got especially after our last episode. People were like, well, you know, maybe no one no one really does see [[God]], but but but the point is is that when the scripture says that you can't see [[God]], it doesn't it's not creating an absolute rule that always applies in every possible way. It's it's referring to a certain way, you know, that in which you don't see [[God]] because then you've also got not only as we've been we're talking about appearances of [[God]], where people were instances where people do see [[God]], but then you even have direct addresses of it like where, you know, uh the Lord says, blessed are the pure in heart for they shall see [[God]]. Right? So, I mean he he actually addresses it outright. So, so we can't say, well, these are our places where people aren't really seeing [[God]] because [[Christ]] says you can see [[God]]. So obviously when the scripture says these things, it's talking about different things. It's not exactly the same the same uh thing being addressed here. But but more on that later, right?
 
-**[[Fr. Stephen]]:** [Listen from 47:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=47:44:00)
+**[[Fr. Stephen]]:** [Listen from [47:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=47:44:00)
 So right, yeah. So we're not we're not uh nobody can see [[God]] and live except when they do, uh is not saying that that first statement isn't true. It's trying to deal with what we actually have in the scriptures. So in [[Exodus]] 33 where [[God]] says no one could see my face and live just a few verses earlier in the same chapter it says that he spoke to [[Moses]] face to face. Right. That's not a editing error. Right. So that I mean that that's there. So we have to and a big part of what we're doing, not just in this episode but in in all four of these episodes about [[Christ]] in the Old Testament is explaining how that works because the [[revelation]] of [[Christ]] that becomes clear in the New Testament is what explains all this. Right? It's what makes all this make sense. If you didn't have it, right, the Hebrew Bible by itself, there's lots of things that don't make sense. Yeah. And and that's why when you get into rabbinic Judaism, right, when you when you study rabbinic Judaism, you look at just like the [[Talmud]], what you find are dozens of different rabbis, all of whom are incredibly revered, who all have radically different opinions and different ways of solving all these problems in the Hebrew scriptures. Yeah. And it's just a constant conversation and debate because there's no single through line and resolution, right? So Christianity, unless you have [[Christ]]. Right. Christianity has a through line that connects all this and explains all this. Now if you ask Yeah. I was going to say to be fair to uh our [[Orthodox]] Jewish friends, they would say that's not a bug, it's a feature of their religion that it's a constant discussion and debate and framing. Right? Okay. Right. Uh we would I would say, right, that that clarity, right, because the [[Holy Spirit]] is a spirit of order and not confusion as [[St. Paul]] reminds us. Uh that clarity that comes through [[Christ]] in being able to understand the scriptures is uh a superior benefit. But that's why I'm a [[Christian]] and not an [[Orthodox]] Jew in part.
 
-**[[Fr. Andrew]]:** [Listen from 49:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=49:57:00)
+**[[Fr. Andrew]]:** [Listen from [49:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=49:57:00)
 Right. Okay. So, all right, we've got something from [[Jeremiah]] chapter one, which we're not I'm not going to read that whole chapter to you. We're just going to mention the the bits that are relevant to what we're talking about.
 
-**[[Fr. Stephen]]:** [Listen from 50:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=50:09:00)
+**[[Fr. Stephen]]:** [Listen from [50:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=50:09:00)
 I mean, I mean you could if you, but it's okay. We're making you read enough. Yeah. So yeah, so yeah, [[Jeremiah]] chapter one is one might expect uh in the first chapter is talking about [[Jeremiah]]'s uh call to be a [[prophet]]. Right. And in it, going back to our episode about the word of the Lord, the Devar [[Yahweh]], uh there's this interesting back and forth where it literally alternates back and forth between the word of the Lord, Devar [[Yahweh]], talking to [[Jeremiah]] and just [[Yahweh]] talking to [[Jeremiah]]. Right? And it's not presented as there are these two different people standing in front of [[Jeremiah]], right? It's presented as there's this one that the word of [[Yahweh]] is also [[Yahweh]], right? But one of the interesting parts of this is that at one point in particular, right? that um in uh in verse 9, at this one point in particular, that figure who's described as having these body parts is not the word of the Lord but just the Lord, just [[Yahweh]].
 
-**[[Fr. Andrew]]:** [Listen from 51:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=51:38:00)
+**[[Fr. Andrew]]:** [Listen from [51:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=51:38:00)
 Lord. Yeah. Yeah, like in verse 9, it says, "Then the Lord," and that's Lord in all caps. So, "then [[Yahweh]] put out his hand and put out his hand and touched my mouth."
 
-**[[Fr. Stephen]]:** [Listen from 51:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=51:53:00)
+**[[Fr. Stephen]]:** [Listen from [51:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=51:53:00)
 Right. And so because of the language, right, this is really hard to take figuratively. Right? Right. Hand can be used. You can say, oh, the hand of the Lord was upon him. Oh, well that's metaphorical, right? That's right. But this is literally he reached out his hand and touched my mouth. There's not really a good metaphorical way to take that, right? It's describing the extension of the arm. Right? So there is a figure who is [[Yahweh]] who has at least an arm and a hand standing in front of [[Jeremiah]].
 
-**[[Fr. Andrew]]:** [Listen from 52:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:26:00)
+**[[Fr. Andrew]]:** [Listen from [52:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:26:00)
 Speaking to him. And this and this is involved in his prophetic call.
 
-**[[Fr. Stephen]]:** [Listen from 52:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:32:00)
+**[[Fr. Stephen]]:** [Listen from [52:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:32:00)
 Right. Yeah. Right, and.
 
-**[[Fr. Andrew]]:** [Listen from 52:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:35:00)
+**[[Fr. Andrew]]:** [Listen from [52:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:35:00)
 So, okay, well, the next passage we're going to look at is is [[Ezekiel]] chapter 1.
 
-**[[Fr. Stephen]]:** [Listen from 52:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:41:00)
+**[[Fr. Stephen]]:** [Listen from [52:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:41:00)
 The whole chapter.
 
-**[[Fr. Andrew]]:** [Listen from 52:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:42:00)
+**[[Fr. Andrew]]:** [Listen from [52:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:42:00)
 Yeah, yes. The whole chapter. And I mean, you know, I'm not going to apologize because you have to kind of take in all this together.
 
-**[[Fr. Stephen]]:** [Listen from 52:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:49:00)
+**[[Fr. Stephen]]:** [Listen from [52:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:49:00)
 Yes.
 
-**[[Fr. Andrew]]:** [Listen from 52:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:50:00)
+**[[Fr. Andrew]]:** [Listen from [52:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=52:50:00)
 It's so easy. Some some so many times, you know, like Christians we read a verse or two, which can be okay, but if you don't read it all together or hear it all together, sometimes you're you're going to get it wrong then or or kind of off or distorted when you try to understand what it's saying. Okay, so this is [[Ezekiel]] chapter 1.
 
-**[[Fr. Andrew]]:** [Listen from 53:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=53:27:00)
+**[[Fr. Andrew]]:** [Listen from [53:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=53:27:00)
 "In the 30th year, in the fourth month, on the fifth day of the month, as I was among the exiles by the Kebar canal, the heavens were opened and I saw visions of [[God]]. On the fifth day of the month, it was the fifth year of the exile of King Jehoiachin. The word of the Lord came to [[Ezekiel]] the [[priest]], the son of Buzi, in the land of the Chaldeans by the Kebar canal, and the hand of the Lord was upon him there. As I looked, behold, a stormy wind came out of the north and a great cloud with brightness around it and fire flashing forth continually, and in the midst of the fire, as it were, gleaming metal. And from the midst of it came the likeness of four living creatures, and this was their appearance. They had a human likeness, but each had four faces and each of them had four wings. Their legs were straight and the soles of their feet were like the sole of a calf's foot, and they sparkled like burnished bronze. Under their wings on their four sides, they had human hands, and the four had their faces and their wings thus, their wings touched one another. Each one of them went straight forward without turning as they went. As for the likeness of their faces, each had a human face. The four had the face of a lion on the right side, the four had the face of an ox on the left side, and the four had the face of an eagle. Such were their faces, and their wings were spread out above. Each creature had two wings, each of which touched the wing of another, while two covered their bodies. And each went straight forward. Wherever the spirit would go, they went without turning as they went. As for the likeness of the living creatures, their appearance was like burning coals of fire, like the appearance of torches moving to and fro among living creatures. And the fire was bright, and out of the fire went forth lightning. And the living creatures darted to and fro like the appearance of a flash of lightning. Now, as I looked at the living creatures, I saw a wheel on the earth beside the living creatures, one for each of the four of them. As for the appearance of the wheels and their construction, their appearance was like the gleaming of beryl, and the four had the same likeness. Their appearance and construction being as it were a wheel within a wheel. When they went, they went in any of their four directions without turning as they went. And their rims were tall and awesome, and the rims of all four were full of eyes all around. And when the living creatures went, the wheels went beside them, and when the living creatures rose from the earth, the wheels rose. Wherever the spirit wanted to go, they went, and the wheels rose along with them, for the spirit of the living creatures was in the wheels. When those went, these went, and when those stood, these stood, and when those rose from the earth, the wheels rose along with them, for the spirit of the living creatures was in the wheels. Over the heads of the living creatures, there was the likeness of an expanse, shining like awe-inspiring crystal, spread out above their heads. And under the expanse, their wings were stretched out straight one toward another, and each creature had two wings covering its body. And when they went, I heard the sound of their wings like the sound of many waters, like the sound of the Almighty, a sound of tumult like the sound of an army. When they stood still, they let down their wings. And there came a voice from above the expanse over their heads. When they stood still, they let down their wings. And above the expanse over their heads, there was the likeness of a throne in appearance like sapphire. And seated above the likeness of a throne was a likeness with a human appearance. And upward from what had the appearance of his waist, I saw as it were gleaming metal, like the appearance of fire enclosed all around. And downward from what had the appearance of his waist, I saw as it were the appearance of fire, and there was brightness all around him, like the appearance of the bow that is in the cloud on the day of rain, so was the appearance of the brightness all around. Such was the appearance of the likeness of the glory of the Lord. And when I saw it, I fell on my face and I heard the voice of one speaking."
 
 Wow.
 
-**[[Fr. Stephen]]:** [Listen from 57:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:43:00)
+**[[Fr. Stephen]]:** [Listen from [57:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:43:00)
 Wheels in the sky keep on turning.
 
-**[[Fr. Andrew]]:** [Listen from 57:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:46:00)
+**[[Fr. Andrew]]:** [Listen from [57:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:46:00)
 Thank you so much for making references that I get. I appreciate it.
 
-**[[Fr. Stephen]]:** [Listen from 57:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:49:00)
+**[[Fr. Stephen]]:** [Listen from [57:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:49:00)
 I try once in a while.
 
-**[[Fr. Andrew]]:** [Listen from 57:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:51:00)
+**[[Fr. Andrew]]:** [Listen from [57:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:51:00)
 I thank you. Yes.
 
-**[[Fr. Stephen]]:** [Listen from 57:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:52:00)
+**[[Fr. Stephen]]:** [Listen from [57:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:52:00)
 Of course, some of them went past you, so you don't even realize you didn't get them on occasion. So...
 
-**[[Fr. Andrew]]:** [Listen from 57:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:56:00)
+**[[Fr. Andrew]]:** [Listen from [57:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=57:56:00)
 I'm okay with that too. But Journey references, I will get, especially with songs like that. Yeah, yeah. So, uh, so, right. So this is part of um, we we've talked a lot about throne chariot stuff, Merkabah stuff on uh, on this podcast. So people are familiar with the idea of the throne chariot. This is particularly emphasized with [[Ezekiel]] because remember [[Ezekiel]], like [[Daniel]], is an exile. He's a a [[prophet]] of the exile. And so, uh, [[Ezekiel]] literally sees the throne of [[God]], the throne chariot of [[God]], leave the [[temple]] before it's destroyed. Yeah. Right. And the idea here is that [[God]]'s throne is sort of mobile, right? And therefore can encompass the whole of the earth. Right? So he's not like a local territorial [[God]] of that strip of land, right? And he's not just the [[God]] of a particular people. Right, but he is he is the [[God]]. Right? He is he is [[God]] of [[God]]'s the [[God]] of the universe. And this whole description in ways uh, some more subtle than others, shall we say, or some more difficult to understand for modern readers than others, is is aimed at giving that impression, that he is the cosmic universal, most high [[God]], the [[God]] of Gods.
 
-**[[Fr. Andrew]]:** [Listen from 59:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=59:47:00)
+**[[Fr. Andrew]]:** [Listen from [59:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=59:47:00)
 Yeah, there's the the rainbow and you know, he's above the sky and all that kind of stuff.
 
-**[[Fr. Stephen]]:** [Listen from 59:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=59:54:00)
+**[[Fr. Stephen]]:** [Listen from [59:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-12-23.mp3#t=59:54:00)
 Right. And um, so these four living creatures, so the picture um, in case people try to picture this in their heads, right? Is that you have these four [[cherubim]], right? These four living creatures. That's what [[Cherubim]] means is living creatures, right? And picture your Babylonian sphinx-like things, right?
 
 **[[Fr. Andrew]]:** [Listen from 1:00:39:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lordofspirits_2021-12-23.mp3#t=01:00:39:00)

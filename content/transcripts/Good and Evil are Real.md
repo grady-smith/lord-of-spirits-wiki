@@ -12,9 +12,9 @@ tags: [lordofspirits]
 
 **[[Fr. Andrew Stephen Damick]]:** Good evening, all of those of you engaged in gigantomachy and also dracomachy. You are listening to the [[Lord of Spirits]] podcast. My co-host, [[Fr. Stephen De Young]], is with us from Lafayette, Louisiana.
 
-**[[Fr. Stephen De Young]]:** And I'm [[Fr. Andrew Stephen Damick]] where we have winter in Emmaus, Pennsylvania, and we are live. [Listen from 01:16](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=01:16) And if you are listening to us live and not via Memorex, you can call us at 855-237-2346. You can talk to us live. We're going to get to your calls in the second half of the show and our dear Matushka Trudi will be taking your calls.
+**[[Fr. Stephen De Young]]:** And I'm [[Fr. Andrew Stephen Damick]] where we have winter in Emmaus, Pennsylvania, and we are live. [Listen from [01:16](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=01:16) And if you are listening to us live and not via Memorex, you can call us at 855-237-2346. You can talk to us live. We're going to get to your calls in the second half of the show and our dear Matushka Trudi will be taking your calls.
 
-So sometimes people use their sense of right and wrong to judge [[God]] himself. Is everything that [[God]] does good? [Listen from 01:43](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=01:43) If something isn't okay for humans, why is it okay for [[God]]? So tonight we're going to be talking about ethics. It might seem like a dry topic and probably pretty straightforward. Just do what's right, right? Don't do the wrong. But it turns out that how you understand what right and wrong actually are, the truth of what good and evil are, and where these concepts come from, this all makes a big difference in how you understand not only what you ought to do, but also who [[God]] is and how you read the scriptures. So Father, are we going to start with [[Genesis]] this time? Adam and Eve? [Listen from 02:00](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=02:32)
+So sometimes people use their sense of right and wrong to judge [[God]] himself. Is everything that [[God]] does good? [Listen from [01:43](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=01:43) If something isn't okay for humans, why is it okay for [[God]]? So tonight we're going to be talking about ethics. It might seem like a dry topic and probably pretty straightforward. Just do what's right, right? Don't do the wrong. But it turns out that how you understand what right and wrong actually are, the truth of what good and evil are, and where these concepts come from, this all makes a big difference in how you understand not only what you ought to do, but also who [[God]] is and how you read the scriptures. So Father, are we going to start with [[Genesis]] this time? Adam and Eve? [Listen from [02:00](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=02:32)
 
 **[[Fr. Stephen De Young]]:** Kind of, yeah.
 
@@ -44,7 +44,7 @@ So sometimes people use their sense of right and wrong to judge [[God]] himself.
 
 **[[Fr. Andrew Stephen Damick]]:** Absolutely.
 
-**[[Fr. Stephen De Young]]:** But in terms of our topic at hand, um, yeah, why not start in [[Genesis]] just, you know, for tradition's sake, right? [Listen from 03:51](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=03:55) Um, pretty early on, we get the tree of the knowledge of good and evil.
+**[[Fr. Stephen De Young]]:** But in terms of our topic at hand, um, yeah, why not start in [[Genesis]] just, you know, for tradition's sake, right? [Listen from [03:51](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=03:55) Um, pretty early on, we get the tree of the knowledge of good and evil.
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah.
 
@@ -74,7 +74,7 @@ So sometimes people use their sense of right and wrong to judge [[God]] himself.
 
 **[[Fr. Stephen De Young]]:** Yes, fully formed and so, yeah. Um, yeah, but so obviously and very clearly with once we get to the tree, these terms are being used as an ethical set, in an ethical sense, right? Or a moral sense might be better. Um, but even then you can, you know, it it's hard to extricate and maybe we shouldn't extricate uh, good from say beauty or truth, right? As if they're completely separate things. I mean, is there in truth no beauty?
 
-**[[Fr. Stephen De Young]]:** So, yeah, so we're going to tonight, we're going to be working on understanding these terms. [Listen from 06:11](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=06:11) And we are coming at it, this is why [[Fr. Andrew]] was slightly surprised that I mentioned [[Genesis]], right?
+**[[Fr. Stephen De Young]]:** So, yeah, so we're going to tonight, we're going to be working on understanding these terms. [Listen from [06:11](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=06:11) And we are coming at it, this is why [[Fr. Andrew]] was slightly surprised that I mentioned [[Genesis]], right?
 
 **[[Fr. Andrew Stephen Damick]]:** How dare you go off script?
 
@@ -116,7 +116,7 @@ So sometimes people use their sense of right and wrong to judge [[God]] himself.
 
 **[[Fr. Stephen De Young]]:** I won't even have to try, trust me. Um... Yeah, but so, yeah, so but but I mean on a more on a more serious note than the the uh, dubious nature of putting pineapple on pizza, right? Um, we to this day, there are humans who throw their support behind and who justify all kinds of horrible things in certain situations that they wouldn't in others, right? Or who, uh, I think all of us at times act in ways that at our better moments we know are not correct, right? And so, this is a lot of shaping that's gone on in our life to cause us to think that that that uh, black is white and white is black, right? That uh, um, to confuse what good and evil actually are.
 
-**[[Fr. Stephen De Young]]:** Um, and this is this is especially true, as you mentioned, um, because we're particularly coming at this tonight, I mean, ultimately this is going to be about what we do, but we have to really start with [[God]]. [Listen from 09:43](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=09:55) We have to start with [[God]] because if we have a definition of good that doesn't work with [[God]], then that's probably not going to work real well, right?
+**[[Fr. Stephen De Young]]:** Um, and this is this is especially true, as you mentioned, um, because we're particularly coming at this tonight, I mean, ultimately this is going to be about what we do, but we have to really start with [[God]]. [Listen from [09:43](https://media.ancientfaith.com/lordofspirits/los_2023-04-06.mp3#t=09:55) We have to start with [[God]] because if we have a definition of good that doesn't work with [[God]], then that's probably not going to work real well, right?
 
 **[[Fr. Andrew Stephen Damick]]:** Yeah, and and also as I think we said in one of our real early episodes, humans are theomorphic.
 
