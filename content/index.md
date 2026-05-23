@@ -14,6 +14,8 @@ Using the **Explorer** in the sidebar, you can navigate between:
 - **Transcripts**: Read through 140+ fully transcribed podcast episodes, complete with timestamps.
 - **Concepts**: Dive into our AI-generated encyclopedia containing over 400 unique theological and historical definitions.
 
+To view the full list of transcripts, visit the [Transcripts Folder](https://lord-of-spirits-wiki.stevenjaysmith.workers.dev/transcripts/).
+
 ### Core Pillars
 To get started, try exploring some of these core concepts:
 - [[Theosis]]

@@ -26,17 +26,6 @@ export default ((opts?: Options) => {
             <strong>AI & Transcription Notice:</strong> The summaries, transcripts, and knowledge graph connections found here are autonomously generated and indexed using artificial intelligence. Because these materials are machine-processed, they may contain transcription errors, mishearings, or inaccuracies. For the official, authoritative, and definitive audio versions of all episodes, please visit the official <a href="https://www.ancientfaith.com/podcasts/lordofspirits/">Ancient Faith Radio Lord of Spirits Page</a>.
           </p>
         </div>
-        <p style={{ marginTop: "2rem" }}>
-          {i18n(cfg.locale).components.footer.createdWith}{" "}
-          <a href="https://quartz.jzhao.xyz/">Quartz v{version}</a> © {year}
-        </p>
-        <ul>
-          {Object.entries(links).map(([text, link]) => (
-            <li>
-              <a href={link}>{text}</a>
-            </li>
-          ))}
-        </ul>
       </footer>
     )
   }
