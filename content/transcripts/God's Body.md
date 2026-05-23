@@ -1,0 +1,553 @@
+--- 
+ title: "God's Body" 
+ tags: [lordofspirits] 
+ ---
+He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]].
+- [[1 Enoch]], chapter 48, verses 4 through 5
+
+The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, Father Andrew Stephen Damick and Father Stephen De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]], and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
+
+Welcome back, everyone, to the [[Lord of Spirits]] podcast. A happy new year to you all, and a blessed Feast of the Nativity to our listeners on the old calendar. It was just a few days ago for you. And we just wrapped up Theophany on the new calendar, and so we're ready for everything that is about to come.
+
+I'm Father Andrew Stephen Damick on the edge of Pennsylvania Dutch country in Emmaus, Pennsylvania, and with me is my co-host, Father Stephen De Young, broadcasting from a gigantic pot of gumbo in the middle of Cajun country in Lafayette, Louisiana. If you're listening to us live, you can call in at 855-AF-RADIO. That's 855-237-2346, and we are going to get to your calls in the second part of today's show.
+
+So what are we doing tonight? Well, here's the question: What is a body? Human beings are body and soul. We take that as axiomatic. What that means is foundational to Christian theology, and what exactly a body is is foundational to how we understand and experience the world.
+
+Our general conception of the human person goes like this, and this is how we kind of see it in the modern world: [I am an immaterial soul, and my soul is housed invisibly inside my body. My body is a kind of temporary material shell that changes and decays, and I will lose it when I die, when it will become a corpse and get put in the ground](https://media.ancientfaith.com/lordofspirits/los_2021-01-15.mp3#t=02:20).
+
+And from this common conception, theologically, [[God]] does not have a body, except when the [[Son of God]] becomes a man. He now has a human body, but he did not have one before.
+
+[But what if this is wrong? What if I am, in fact, a body? And what if God had a body even before the Incarnation? And what if bodies in general are actually not what we think they are?](https://media.ancientfaith.com/lordofspirits/los_2021-01-15.mp3#t=02:50) So what does that mean?
+
+Well, to understand that, first we have to talk about [[God]]'s body. That's actually the title for our show tonight, because [[God]] is first. He is the Creator. He's the one whom we image. So if we're going to understand bodies, we begin not from our created experience and cast our eyes heavenward and try to figure out [[God]] from there.
+
+Now, next time, we're actually going to talk about human and angelic bodies, and I know a lot of your questions that you've sent to us already have been about that, but just be patient while we lay out the groundwork in this first episode, because this is going to be a two-parter, okay? And I'm going to warn you now that this one is going to be a bit of a brain-bender. So you will probably want to listen to it more than once. But this is what happens when you have to kind of reconsider such a foundational, basic concept like this.
+
+So let's ask the question: What is a body? I mean, Father Stephen, what is a body? And and welcome, by the way. Good to talk to you.
+
+Well, and as you said, I think some people's brains after this may go into recovery mode from taking in so many high-level ideas, but we'll...
+
+Definitely did with mine, actually, when we were doing our our pre-show prep.
+
+So, but we're going to... This is this is important, and I think as we talk about it, we'll see why it's important and why it's worth the time to try to wrap our wrap our mind around it.
+
+So when we think of, what we think of body, we think of, you know, meat, like an object.
+
+Yeah, yeah, this physical stuff that I'm sitting in, that is sitting in my chair right now.
+
+Right. And and and so, you know, we and we even refer to sometimes the, you know, angelic beings as bodiless powers. We say [[God]] is a spirit, and being a spirit means you don't have a body. That's sort of our shorthand. Those two things are opposite each other. But that's not how ancient people understood bodies or what they meant when they talked about something's body.
+
+Yeah.
+
+[What they meant when they talked about something's body was a nexus of potentialities or a collection of powers or energies or abilities](https://media.ancientfaith.com/lordofspirits/los_2021-01-15.mp3#t=05:24). And I know that makes about zero sense, but that's why we're going to talk about this more.
+
+I kind of... I kind of like... So, so all you meme-makers, I'm leaning towards nexus of potentialities because there's a lot of Star Trek possibilities there.
+
+There are. Yeah.
+
+So get William Shatner out.
+
+Anything with William Shatner is good automatically.
+
+Exactly. Yeah, exactly.
+
+But so, so what does that mean, right? That a body is a sort of a nexus of potentialities. Well, to give some examples, we'll talk about body parts, right? So when we talk about eyes, we're thinking about the gushy things in your skull.
+
+Yeah, eyeballs.
+
+When they're talking about eyes in the ancient world, they're talking about the power of sight.
+
+Yeah. Yeah, this is a huge distinction. It's in, rather than talking about a kind of thing, an object, the term refers to what you're doing. You know, it's dynamic versus as, versus being a, you know, a thing to be put under a microscope and examined, you know. So, yeah, so eyes refer to the power of sight, not to, you know, the what in my wife's family is the last part of the lamb that you eat.
+
+Right. And and and likewise with ears, right? Ears, it's not talking about your your lobes, it's not talking about the tiny bones in your skull, your tympanum. It's talking about the ability to hear.
+
+Yeah.
+
+Right? So when [[Christ]] says, "He who has ears to hear, let him hear," he's not saying, "Uh, you deaf people, don't worry about it. Uh, but the rest of you who have physical ears, you should listen to what I'm saying." He's talking about those who have the ability to hear what he is saying. need to need to hear it. He's talking about the ability to hear. Um, and then, you know, feet is a reference to the the capacity for movement. Um, arms, especially right arm, um, since most people are right-handed, um, is a reference to strength or power or might. Um, and uh, face, a reference to a face is a reference to the ability to communicate.
+
+Right.
+
+Right. And and I I think it's important, and we're going to talk about this more when we start talking about how these words apply to [[God]], but I think it's really important just to come to state right here that what we're not saying is they're not objects, these are metaphors, and the objects are being used to set out these metaphors. Right? You know, like like saying, "Oh, you know, you need to have spiritual eyes or the eyes of faith," meaning, meaning, "Okay, you you understand things and see things, but it's like having eyeballs." You know, that's that's not what we're saying because again, like, this is the show where we tell you that the things that you thought were metaphors are not metaphors.
+
+Yeah. Yeah.
+
+So our our, you know, the the the round gushy orbs in our skull, right? Those eyes are the instrument which we use to see. Right? They're the instrument through which we exercise that power.
+
+Yeah.
+
+So in a sense, eyes include the eyeball in the sense that eyes need the eyeball to do the thing that they do, if that makes sense.
+
+For us. Yeah, for us. Right? It's what we use to do that. Yeah. Not necessarily, but but that doesn't mean that something can't have the power of sight, the power of hearing, the ability to communicate without having a meaty, fleshy organ that we have.
+
+Right. Right. Right.
+
+Um, so again, this is probably still super weird and confusing. So...
+
+Yeah.
+
+And and so to to help with this, we're we're going to, again, we're talking tonight about [[God]]'s body in particular.
+
+Right.
+
+And so when we read in the scriptures and we read things talking about some body part of [[God]], right? That, you know, uh, [[God]] defeated Pharaoh with his strong right arm.
+
+Right. It's not a metaphor.
+
+Right. Or or [[God]]'s eyes go throughout the cosmos, right? Go throughout the world and see everything. Yeah. Um, or uh, when we read about...
+
+Yeah.
+
+I was going to say, yeah, like Moses speaking to the Lord face to, I mean, this is the language of scripture, face to face as a man speaks with his friend.
+
+Right. Right. That and and the face of [[God]] is referred to all the time. Uh, and when someone says that they want to see [[God]]'s face, he doesn't say, "Don't be silly, I'm a spirit, I'm like a ghost, I don't I don't have a face." Right? He says, "You can't... I have a face, but you can't see it and live. So if I show it to you, you'll die."
+
+Right.
+
+Right? If I try to communicate with you directly, right? You you won't be able to bear it.
+
+Right. And the problem, of course, is that as modern people, when we see these references, like for instance, you know, uh, [[God]] in the Garden of Eden, he's walking in such a way that they can hear him. You know, right? It makes a sound. Um, you know, there's there's that kind of thing. This language is used for [[God]], and so because we have this idea that [[God]] doesn't have a body, [[God]] is immaterial, uh, you know, and we're going to, obviously, we're going to unpack what all that means, okay? And kind of how we got to where we are now. Um, but but what happens then is, as modern people who are faithful Christians, we want to believe what the Bible says, we look at that and say, "Well, that's that's metaphorical language for [[God]]. [[God]] doesn't have an arm. He doesn't have, you know, a nose. He doesn't have eyeballs." You know, like because we're used to thinking of a body as being an object or a collection of objects, then when those kinds of words are used to talk about [[God]], we say, "Well, [[God]] [[God]] doesn't have that. He's not limited like like we are." You know, so it's just a metaphor. He accomplished this through some other means that that the biblical writers were just trying to come up with ways of talking about and so...
+
+Yeah. And and the term the term that's applied to that is anthropomorphism, right? Anthropos meaning a human, right? And and morph, right? Form, shape. Right. So we're So we're we're giving a human shape to [[God]] in order to try to understand him better, bring him down to our level.
+
+Right. Human beings can't understand [[God]]. [[God]] is distant and remote and unintelligible. And so we kind of just explain him and describe him in human terms. That's how they'll that's how people will generally talk about those references in the scriptures. Right. Exactly. And we're here to say that's exactly backwards. Yep. That's right. Exactly the reverse of the truth. Um, that the way the scriptures see it is that humans are theomorphic. Right? Humans are in the image and likeness of [[God]]. Right. So [[God]] is the paradigm and then humans are a sort of weak and diminished, right? version. And our powers are a weaker or diminished version of his powers, not we take our powers and just sort of project them to giant size and attribute them to him.
+
+Yeah. Yeah, you know, and uh, and correct me if I'm wrong about this, but like an obvious parallel seems to me wherein if I recall correctly, [[Ephesians]] chapter 5, that passage that gets read at weddings in the [[Orthodox Church]], um, where [[St. Paul]] talks about how men and women are, you know, husbands and wives are supposed to relate to each other within marriage, and then he says, "Uh, but I I am speaking of [[Christ]] and His church." And so a lot of times the way that that gets read is people say, "Oh, oh, the the relationship between [[Christ]] and His church is like a human wedding, marriage." But but as I've pointed out many times to couples, you know, as I was preparing them to get married, say, "No, no, no, no, no. Your marriage is like the the the union between [[Christ]] and His church." Uh, am I am I off off off base here or...
+
+No, that's right. And and thank you for choosing the uh least controversial possible example you could have taken from [[Ephesians]] 5.
+
+Yeah, you're like, "Wait, what's what is he about to say?" Yeah.
+
+Uh, but yeah, so so [[God]] is, I mean, [[God]] is eternal, [[God]] is first. So what we call seeing is sort of a very weak uh version of what it means that [[God]] is able to see.
+
+Yeah.
+
+And so what we call eyes is is this weak, material, fragile, subject to corruption version of [[God]]'s eyes. Right. His ability to see, his ability to communicate, his powers, his the divine energies, we have a human energy which is obviously much weaker, right? And but is in the image of um the reality that is that is [[God]].
+
+Yeah, he's the original. We're the the much lesser version.
+
+Right. I kind of, you know. Yeah.
+
+Right.
+
+And so, uh, going back to that example of [[God]] having a face, right? And him not denying that he has a face. Uh, this is something that gets masked in most of our English translations. Uh, all the time in the [[Old Testament]], we read about the presence of [[God]]. The presence of [[God]] in the temple, uh, the presence of [[God]] in general, right? So [[Jonah]] gets told to go to Nineveh to the Assyrians, and, uh, he knows that the Assyrians flay people alive, so he's like, "Nope." And it says that he flees from the face of [[God]].
+
+Right.
+
+Um, because the word "presence" that was translated as "presence" is the word "face." Yeah. Um, he flees from [[God]]'s face. And we talked about face representing this power of communication. So when it says that [[Jonah]] is is fleeing from the face of [[God]], it doesn't mean, "Well, [[God]]'s over here at this particular geographical locale, and he's uh running away from it." It's more like he's putting his fingers in his ears and going, "Na na na na na, I can't hear you."
+
+Yeah.
+
+Right? And and taking off, um, in the other direction. Um, but that that, um, fear we mentioned, you can't that where [[God]] says you can't see his face and live, that's what's going on when the people of Israel come to Mount Sinai and they hear [[God]] communicating in the thunder on Mount Sinai. And they're terrified that they're going to die, and they say, "Moses, don't let [[God]] talk to us directly, we'll die." Right? Say, "You you go, right? You go up there and and, uh, and interact and talk to him, um, and communicate with him for us." Um, so that that language of face is actually probably the most prevalent one of these, uh, even though it's hidden by translation.
+
+Yeah.
+
+Yeah, and and again, it's so tempting, like, you know, you know, [[Jonah]] fleeing from before the face of [[God]], it like, oh, that's a metaphor, like, you know, but again, where exactly is [[God]]'s face that he could run away from it? You know? So it doesn't um, it doesn't make sense in that way. Um, and and again, nowhere in there does it say this is a metaphor. Like you said, [[God]] doesn't say, "Well, I don't really have a face, but I'll just let you say that I have a face because it makes sense for you." You know. Um, and and you know, this speaks to uh, you know, one of the the sort of critiques of Christianity is that that, you know, man makes [[God]] in his own image. And, um, but that's actually not the Christian teaching, although some Christians effectively seem to think that it is, right? Because this is what we're talking about, that we say, "Oh, well, we do use this human language for [[God]]. It's anthropomorphic language for [[God]], but he doesn't really have that." Right? So it's there's a kind of an apologetic side to this as well, because say, "No, no, no, actually, um, no, this language that we use for [[God]] refers to something real, and the human version of it is the kind of, you know, much lower, lesser version of that." So even though I understand sight by virtue of what I'm doing now, you know, the things that I have that are there's eyelids blinking on the outside of, um, that's just a, you know, a small, you know, a sliver of what [[God]] is able to do. Um, I shouldn't assume that his sight is just like mine, but bigger. Right? There's something else going on there, you know, especially because he doesn't need eyeballs to do it.
+
+Right.
+
+Right. Uh, you know, he sees in some other way that I don't understand, but he nonetheless does see. Nothing can hide from him.
+
+Yeah, he doesn't he doesn't need and won't ever need the cheap Walmart reading glasses I need now that I'm always breaking.
+
+Yes, which I'm getting close to probably getting a set for myself since we're about the same age.
+
+Right? So, yeah. And, uh, but yeah, so so our our powers and this this is key, I'm tempted to go down this rabbit hole, but I won't. I'm sure we'll talk about it more in the future. Um, but this is this is key to all kinds of things in terms of how we think about [[God]]. Uh, where understanding that we're not he isn't like us, right? We're becoming like him.
+
+Right. Right.
+
+Um, and those are those are very different sort of ways of of proceeding. So...
+
+Yeah, yeah. So, so, you know, to kind of summarize this piece of it, you know, when we talk about a body being a nexus of potentialities, a collection of powers or energies, um, you know, it's not a kind of object, it's rather the abilities that we have to do, you know, not just we, but the abilities that anything that has a body has to do all these things. And [[God]] has these abilities, right? The scripture talks about him this way. Um, so that's what a body is. So if that's what a body is, then then how does that differ from our concept of the body? And then what do we do about the fact that we have all this language, especially in the [[New Testament]], about flesh? Right? I mean, I think most of us think tend to think that body and flesh are just synonyms. I mean, that's the way we use it in English, right? That flesh is just kind of a nice poetic, archaic way of referring to the same thing that we mean when we have a, we talk about bodies. So, so what, what, I know [[St. Paul]] makes this distinction.
+
+Yeah.
+
+What, what does [[St. Paul]] say about the difference between body and flesh? And I know that in Greek, body is soma and flesh is sarx. Those are the the two words we're dealing with in Greek.
+
+And this is the the biggest place where you can easily go completely wrong with reading [[St. Paul]] is missing the nuances of the way he uses, he distinguishes between his usage of similar words.
+
+Yeah, right.
+
+Right? So when he talks about Judeans, it's usually translated in English as Jews, that's not the exact same group of people he's talking about when he talks about Israel. He doesn't just use those interchangeably. And this gets really granular to the point that uh, [[St. Paul]], when he refers to dead without a definite article, is referring to a different group of people than when he refers to the dead with a definite article, even though both get translated as "the dead" in English, so in most English translations you can't even tell. So this is how nuanced he could be. So the same is true with the the way he uses body and flesh.
+
+Right.
+
+Right? We could read over it very quickly. And, uh, there is, for example, a gnostic reading of [[St. Paul]] that reads these both the same.
+
+Yeah.
+
+Um, because as you'll see even just casually reading one of [[St. Paul]]'s epistles, uh, and this is true outside of [[St. Paul]] as well. It's just very clear in [[St. Paul]], but St. [[John]] in his epistles and other [[New Testament]] authors use these terms the same way basically.
+
+Okay, so it's consistent across the [[New Testament]].
+
+Yeah, yeah. It's just [[St. Paul]] is sort of exhibit A, it's sort of the easiest place to see it.
+
+Right, right.
+
+Um, [[St. Paul]] has a lot of negative things to say about the flesh. Right? And it's inability to inherit the kingdom of [[God]], for example. Um, and, uh, ties it, seems to tie it very much to sinfulness and to the passions and desires. Um, and again, if you if you read that as meaning, "Okay, well our our our body is is all is sinful, and then our soul, which is this other thing," right, "is not," you can very easily go into gnostic direction.
+
+Right, where where where the material gets opposed to the spiritual. Right. Um, yeah, yeah.
+
+And and so body for for [[St. Paul]] and for for the ancients in general, is this overarching category of this nexus of potentialities. And we'll dig deeper into what he says in [[1 Corinthians]] 15 next time. But there, for example, he talks about how angels and men and animals have different types of bodies. Um, all within that big category of body. They all have powers. They all have the ability to interact with the world. They all have these potentialities. Flesh is then a subcategory. It's a a smaller circle within the big circle of bodies is flesh. And, um, flesh is a type of body that for [[St. Paul]] and the other [[New Testament]] authors, is weakened, is corruptible, is changeable, uh, is mortal, uh, it's an even more limited version of the original human body.
+
+Yeah, so it's it's it's um, it's the way that the the human, and we're going to talk about Adam and Eve for just a second, maybe we should introduce that. So Adam and Eve, they have the original human body, and then and then it changes because of of sin, you know, because and [[God]] gives them this change. Like it doesn't just sort of come out of nowhere. [[God]] gives them this change.
+
+Yeah, on purpose for reasons.
+
+Yes, for reasons which we're going to go into a lot more next time. So, you know, write write down the phrase "garments of skin," everybody. Uh, but this is not that episode. Two weeks from today. Um, but but just to cover this briefly, though, um, [[God]] gives them what are called in scripture "garments of skin," which doesn't mean that he gives them nice leather suits, uh, it it means that their bodies are altered so they now become fleshly bodies, right? And and um, and I I kind of like that as a sort of adverb or or, you know, I don't know if it's adjectival. Yeah, I guess it's adjectival, but but fleshly bodies, and then and then they and then they function in a fleshly way. So it's not only just a kind of way that their bodies changed as a sort of a a thing, but but also the way that they function because again, a body is a kind of collection of powers and abilities and so forth. And so what that means then is that our bodies, when [[God]] gives mankind the garments of skin, our bodies change in such a way as to become limited and corruptible and deathly. We're going to talk next time about why that was actually good from [[God]]'s point of view. Um, you know, so we're giving all kinds of teasers. Um, but but but I I think it's it's it's really important to understand that this change happens. It's not that they were exactly the same before and now, "Oh, boom, now you can die." You know, like that's not all that that happens. You know, that they again, if a body is a kind of collection of powers, a nexus of potentialities, um, then then that means that the powers themselves change, so they presumably lose some abilities and gain some abilities, weirdly enough.
+
+There their powers that are lost. Yeah, they're lost completely and potentialities that are lost. There are powers and potentialities that are weakened, like the nous, the mind. Um, and so there are capacities that are weakened and attenuated, and then there are new potentialities that are gained.
+
+Right.
+
+Like the the mutability and corruption and mortality, right, that that that are taken on um, by uh, by them at the at the point of that change. So if you think about um, a a being's body as sort of a circle that includes, right, or like a bubble that includes all these powers and potentialities, right? The change that happens is that some of those leave, some of those diminish, and then new ones sort of come into the membrane, right? of of...
+
+Now I sound like an Origenist because I've got a spherical body, but um...
+
+Yeah, yeah. It's almost that our, if we could think of our bodies as having DNA, and again, I'm using "body" in that sense of the nexus of potentialities, not DNA like the way we think of the modern idea, but DNA, of course, is the kind of code that tells our flesh what to do, how to how to shape and function and so forth. We could imagine in a sense that that that the the DNA of our collection of powers gets rewritten because now it it does different things, functions differently. Again, this is just, this is a metaphor, uh, I don't know, does that does that work, you know, in terms of like kind of rewriting the code, so to speak? I don't know, it's not, no metaphor really, really works, but if, you know, yeah, yeah.
+
+But hopefully one of those, at least. Yeah. But you can and and and once you have that in mind, though, you can see that play out, right? So St. [[John]] doesn't say, "The word took a body." He says, "The word became flesh."
+
+Right.
+
+Right? It's more specific than that. Because just saying the word took a body wouldn't mean the same thing. Right. Right, he's talking about we're talking about the incarnation, [[Christ]] being made man. Um, and when when [[Christ]] after the resurrection, uh, says, "A spirit has not flesh and blood as you see that I have." He doesn't say a spirit doesn't have a body.
+
+Right.
+
+Right? He says a spirit doesn't have flesh and blood. So, yeah, the the human flesh and and animal flesh is also flesh, but we'll get more into that next time. But flesh, a fleshly body is a type of body.
+
+Yeah.
+
+It's not synonymous with "this is always what a body means."
+
+Yeah. Right.
+
+Yeah, and and we're going to go to a break in just a second here, but but another thing, you know, we're just going to give people all kinds of hooks to save for next time because this is what we do on this show. Um, but another one to think about is, you know, when [[Christ]] rises from the dead, as you were just talking about, he still has flesh and bone, um, so that means that his body still has flesh, you know, that there's something about it, uh, that that is still quite human, you know, um, uh, and obviously we're going to, we're going to talk about that more the next time. Um, but but clearly it works in a different way after the resurrection. He's no longer mortal, for instance, right?
+
+Well, he technically wasn't before, but we'll get into that next time.
+
+Yeah, yeah, yeah, exactly. Sorry, sorry. Yes. All right. All right. Well, all that being said, uh, we're going to go ahead and take a break, and please call. We would love to hear from you and talk to you even though this is a very mind-bending version, uh, mind-bending episode of The [[Lord of Spirits]]. So let's, uh, let's go ahead and go to break, and we'll be right back in just a second.
+
+Father Andrew Stephen Damick and Father Stephen De Young will be back in a moment to take your calls on the second half of The [[Lord of Spirits]]. Give them a call at 855-237-2346. That's 855-AF-RADIO.
+
+Are you struggling in your walk with [[Christ]]? Do you want to rediscover your reason for living? The person you were created to be? Renewing You, a priest, a psychologist, and a plan, gives you the keys to unlock areas of your life that hold you back from fully experiencing the renewal and transformation [[God]] has in mind for you. Co-authored by a priest and a psychologist, Father Nicholas and Dr. Roxanne Lou, Renewing You combines principles of spiritual growth with psychological tools to help you become your best self, fully connected with [[God]]'s purpose for you. To purchase this book, please go to store.ancientfaith.com. That's store.ancientfaith.com.
+
+We're back now with the [[Lord of Spirits]], with Father Andrew Stephen Damick and Father Stephen De Young. If you have a question, call now at 855-237-2346. That's 855-AF-RADIO.
+
+Welcome back. This is the second part of the show, and it's where we begin to take your calls. We would love to hear from you. You can reach us just like you heard from the voice of Steve at 855-AF-RADIO, 855-237-2346, and, uh, we would love to talk to you. So, all right, we in the first part, we talked about what is a body and also, uh, a bit about what it means that that [[God]] has a body and also we touched very briefly on what happens to Adam and Eve's bodies, uh, after they sin. Um, but, you know, in in trying to begin to rewrite the way that we think about this stuff and bring it into line with what the scripture says and and which is embedded in this ancient way of thinking, um, we need to talk a little bit about how it is we got to the way that we think now, right? Um, and actually the seeds for that are sown in the ancient world, right? Uh, but it doesn't come from scripture. It comes from pagan Greek philosophy, uh, who, you know, they begin to ask the question, "Does [[God]] have a body?" Um, and the answer that they come up with is no, he doesn't. Right? So how did they get to that? And what does that all kind of mean?
+
+Yeah. So, um, and and really what what, I mean we're particularly obviously talking about Greek philosophy here, but Right, right. Um, when, uh, the Greek philosophers start to address this question, what they're really doing is sort of philosophically dealing with and encoding what was already the general pagan view. Um, we talked about this in a previous episode, how after what is described as the Tower of Babel event in in [[Genesis]] 11, that we see in cultures all over the world, the most high [[God]], the creator [[God]], the the the the highest [[God]], uh, sort of becomes distant, uh, and is seen to be disconnected and removed, uh, from the world, and human beings interact with these sort of lesser gods and spirits, uh, but not with the the greater gods. And so, uh, the Greek philosophers don't substantively differ from that. Uh, but they do speak about it, obviously, in a in a different and uh philosophical way, that we'll especially deal with it in terms of of having a body.
+
+Right.
+
+So if you look at, for example, um, Aristotle. You were there, we're going in reverse order by talking about Aristotle and then Plato.
+
+How dare you, sir?
+
+I know. Uh, people are offended all over the place. You know, you could have started with Parmenides, but then people would really fall asleep.
+
+Oh. So...
+
+I I just remember presocratics like Thales, who supposedly thought everything was made of water. That's what I remember from that bit of undergraduate introduction to philosophy.
+
+I'm I'm not taking your bait, sir, and getting into that. Um, so so for for Aristotle, we usually we usually refer to Aristotle's quote-unquote [[God]] or quote-unquote Most High [[God]] is the prime mover uh because we're getting it kind of filtered through uh Thomistic theology.
+
+Yeah.
+
+Um, but the way he describes uh this being, like in Metaphysics lambda, is uh he describes this being as uh noesis uh noesios, as which is something like thought thinking itself.
+
+Right.
+
+Yeah, or or just like pure thought. Um, but key to that is the idea that because it is the highest being, it is the being of beings, uh it is completely unaware of anything else that exists because for it to think about anything other than itself, it would have to lower itself.
+
+Yeah. Yeah, there's this, right, and so then this is the beginning of, um, like, you know, Gnosticism kind of branches off from this idea that that that the the true [[God]], the the unmoved mover, right, is so pure, so perfect that it can't even pay attention to anything. It just be perfect sort of self-contemplation, um, and, um, because without that, then it's sort of lowering itself, right? Um, so yeah, so before we get too much deeper into that, which we we certainly will, um, we actually do have someone calling in. Um, so, um, uh, we have Alec who is calling from Florida, and uh he has a question about what happens to our body in the next life, uh, and this is pertaining to uh to theosis. So, uh, uh, Alec, uh, can can you hear us?
+
+Yes, fathers. Uh, Alex with an X from sunny Orlando, Florida. I can hear you on the way.
+
+Oh, Alex, Alex with an X, excuse me. Well, welcome, Alex, to The [[Lord of Spirits]]. What exactly is your question?
+
+Yeah, so it's a bit convoluted, I guess, but, um, the the glorified saints, I would think, take part in the [[Divine Council]], so to an extent, I don't know how much, they share in [[God]]'s, I guess, in their their powers of, um, uh, uh, omniscience are enhanced, uh, their bodies are are glorified. Um, speaking of [[Christ]]'s body as an example, uh, firstfruits. Um, and I was wondering if you could tie that into the concept of the nous and, um, uh, to what extent in the church experience, in the church's experience, do saints in their earthly life achieve, you know, this this, uh, aspects of clairvoyance, uh, uh, you know, knowing things that they couldn't humanly know, um, things of that nature?
+
+Yeah, well, that's a great question. Um, you know, I I'll I'll just say one thing, and then and then Father Stephen can correct me or or add to it or whatever.
+
+Oh, actually...
+
+Um, actually, yeah, yeah. Um, so, you know, part of what happens or I should say what happens in in theosis, you know, this this process of becoming adopted sons of [[God]] and becoming more like Him and participating in His glory is that our body, uh, begins to become to reflect more the likeness of [[God]], right? And so that's why the the saints have the abilities that they do is they're they're actually, um, they're becoming what human beings were meant to be, right? But that's not, you know, human being, right, human beings are not are not independently sort of powerful, it's their participation in [[God]] that makes them, um, what it is that they are and and have these from our point of view what looks like, you know, extraordinary abilities, but actually is kind of ordinary for, you know, they're they're normal, the rest of us are abnormal, right?
+
+Right, like vessels in a sense.
+
+Yeah, yeah, yeah, exactly, exactly. So I mean, that that is at least what I would what I would say about that. Um, I don't know, Father, do you have anything you wanted to add or adjust or correct or whatever?
+
+Um, I'll I'll add. This is, and again, we'll we I, like we've been saying, we'll get into this a little more next time, but, um, this is pertinent here because I think what we're talking about tonight, what we're going to talk about in two weeks, uh, as we go on, hopefully you'll see, if we do a good job of explaining it, that this is the nexus where a whole lot of our theology and our belief all sort of comes and fits together. And so, specific to theosis, we have these sort of different moments we think about or talk about when we talk about theosis. We think about like glorification and the transfiguration of the body, [[Christ]]'s transfiguration, some of the saints who have shown with the uncreated light of [[God]], um, at the times of their deaths or at other times in their life. And we also think about, uh, participation in the divine energies, right? The energies of [[God]], [[God]]'s activities and his power in the created order. Um, and we we have these a sort of set these separate things and the purification of the nous, we have all these things as separate. But this is really where those come together. Because if we come to participate in [[God]]'s energies, right? We don't gain like [[God]] powers, right? Like we don't get some power that he has, but we participate in his. He acts through us when when we're imaging him.
+
+And you're a conduit for it.
+
+Right. And so that is transforming then of our powers and therefore of our body. So the idea of transfiguration and glorification, that's where that comes together with the idea of participating in the divine energies. Right? Because our body then becomes the instrument for [[God]]'s energies and powers and activity. Yeah. In a way similar to the way you were just saying that nature. Yeah. Yeah. So similar to the way that I was talking about that, you know, the the the gushy things in our skull, the gushy orbs, are the instrument we use for the power of sight. Right? Yes. We, as persons, become instruments of [[God]]'s love or peace in the world.
+
+And for that reason, among others, the church is called the body of [[Christ]], right?
+
+Right.
+
+Yeah.
+
+And for that being his love in the world.
+
+Right. That's what [[St. Paul]]'s getting at when he talks about the body in in [[1 Corinthians]] 13, that the way in which, uh, [[Christ]] communicates to the world is through the church, the way that [[Christ]] is brought to the world, his feet, his hands, right? That's the church. Yeah.
+
+Yeah. We're going to flesh that out, pun intended, uh, a lot more. Sorry, I couldn't help myself. Uh, yeah, yeah, yeah, yeah. A lot more, uh, a lot more in in two weeks. But we just kind of realized when we were going over this, uh, or actually, I should say, Father Stephen just informed me, "Look, this is going to take a couple episodes." I was like, "Great."
+
+Yeah, right, exactly.
+
+So I was like, "Great." So does that help, Greg?
+
+That helps tremendously. Thank you very, very much, fathers. Again, keep up the great work.
+
+Thank you very much. Thanks, thanks for calling in, Alex.
+
+Thank you.
+
+Okay. Um, yeah, so all right, let's let's talk a little bit more about, um, the the the [[God]] of the philosophers, if we can put it this way, right? So there's this idea that he's that it's the unmoved mover, that that that this [[God]] doesn't even pay attention to, um, uh, to anything other than itself, uh, right? Um, you know, it does not communicate, does not see, does not hear, right? So the what the philosophers are denying is that [[God]] has a body in this ancient sense of being this nexus of potentialities, collection of powers and abilities. Um, and I was trying to imagine what that could be like, right? Because there's still this there's still some kind of like interaction with, uh, you know, um, with the rest of with with creation, you know? Um, you still have, um, uh, you know, like it's the unmoved mover, right, but it's moving. Like I thought about the Force in Star Wars, right? Now, I mean it's not a perfect analogy, but but the Force in Star Wars is similar in that, um, uh, you know, uh, it it it doesn't talk to you, although I I mean, obviously depending on which one of the films you're watching, the Force seems to have a will. Uh, but there's not, you know, the Force doesn't step out and say, "Hey, [[Luke]], I have something that you need to know." You know, that's that's not a thing. Uh, but but there's still this sort of influence there, but it's impersonal, right? Would it be correct to say that the philosopher's [[God]] is not a personal [[God]]? What do you think, father?
+
+Well, well, because because we have this idea of, um, prime mover, we might be deceived into thinking that that means, well, he's moving everything else, right? That he's sort of actively, you know, he's somewhere in in some other realm turning a crank and that causes everything else to move, you know, starting with the the sun, moon, and stars and then working its way down. Right. Um, but that's actually sort of the opposite of how it works. The way it it actually works is that, um, everything else sort of sees the unmoved mover, sees thought thinking itself, and, uh, motivated by love and sort of awe of its perfection, uh, attempts to imitate, um, this sort of impersonal but perfect being.
+
+Oh, I see. So so it's almost an unmoved inspirer rather than mover exactly. Does that, I don't know?
+
+Right. They move out of, they move out of desire to be like it and to be closer to it. So it's sort of like the whole cosmos stands the prime mover and like must, you know, try and be closer to it. And that's not a place where Aristotle, like, differs from Plato. So, um, Plato has basically the same thing in that he has the good, uh, and the good is sort of in perpetual stasis. Doesn't move, doesn't change because it's perfect, so how could it, right? If it changed, it wouldn't be perfect anymore. Right. So, uh, and then the heavenly bodies, which are sort of the next most perfect thing, move in circles because going in a tight circle is the closest they can get to imitating that sort of perfect stasis.
+
+Yeah, right.
+
+Um, and that's why Plato in the Timaeus in particular comes up with this demiurge, this lesser divine being who's going to create everything else.
+
+Yeah.
+
+And he sort of looks at the good and looks at it admiringly and sort of tries to create everything else based on that that admiration and sort of uh inspiration.
+
+Yeah.
+
+that it draws. So this is this is a god that doesn't have a body in the ancient sense that we've been talking about. Right? It doesn't communicate, it doesn't act, uh, it doesn't, um, speak, it doesn't hear, it doesn't see anything else, right, outside of itself. Um, and this gets, as you mentioned already, brought over into Gnosticism fairly directly.
+
+Yeah, right.
+
+Um, when when we found the Nag Hammadi library, sort of the biggest collection we found of the Gnostic texts, Plato's Timaeus was in there. Um, as part of it, sort of as their [[Old Testament]]. Uh, so they had this Plato creator story. And and you see in various Gnostic systems, they have this [[God]] with a capital G who is remote and unknown and unknowable. And then this whole series of emanations sort of working their way down until you get to material things. Uh, so...
+
+Yeah. And and it's, you know, it's easy to see then, uh, you know, that this god of the philosopher, uh, who has nothing directly to do with us, you know? Um, it's really easy to see how people can morph that into, for instance, deism, which is a little bit closer to us, right? Deism is the idea that [[God]] created everything and then walked away from it, you know, the the cosmic watchmaker, right? Wind up the watch and now just let it tick away. Um, and uh, then there's not much distance from that to, uh, to our disenchanted world, which is a major theme of everything we talk about in this podcast because if [[God]] is not present to us by means of his body, right? The body that we've been talking about, his collection of powers, nexus of potentialities, the ways that he interacts with mankind, if he's not present to us in that way, then it becomes all the easier not to believe that he's there at all, or that if we do believe that he exists, it's not, he's, he's kind of not an everyday thing, you know? He's out there somewhere, right? Uh, and you know, we wish once in a while that a miracle might happen. Boom, oh, he stepped in, thank you, [[God]]. Um, but but this is the origin of the the kind of disenchanted way of understanding the world, of secular materialism because this is the god that doesn't have anything to do with us. This is the god that can't interact with us, or, you know, won't, right? Uh, however you want to perceive what, you know, what that is. I mean, obviously, Plato and Aristotle are describing a god who can't interact with us because that would be against his nature, right? Modern man looks up, sees nothing, shouts at the sky and got, gets no answer back, and so he assumes, "Well, [[God]], if you're out there, obviously you don't care." You know? But they're just kind of different permutations, different ways of essentially seeing [[God]] in the same way. I mean, so I mean this is this is kind of pastorally huge and theologically huge, right? You know, that the [[God]] of Abraham, Isaac, and Jacob, the [[God]] and Father of our Lord [[Jesus Christ]], uh, is not the philosopher's [[God]]. The philosopher's [[God]] has no body, he's remote, it, I should really say, right? It is remote and distant because he implies this kind of personal reality. Um, you know, and and and so we can't know him, and the idea that [[Jesus Christ]] would make him known, as as, you know, as we're going to talk about in a second here, that doesn't make any sense at all. Um, you know, and and the way that that kind of makes its way down through history is that eventually you get what's referred to as the "[[God]] of the gaps," you know, there's these scientific things happening that we can't explain, so we'll just say, "Well, that's [[God]]." You know, but then as science gets bigger, then, "Well, we don't really need the [[God]] of the gaps anymore, so boom, secular materialism eventually is is kind of where that way of thinking goes." Um, and so it's it's interesting that there's a direct line between saying [[God]] does not have a body and ultimately secular materialism, atheism, all of these modern problems that we have now. Right?
+
+Right. And you you sort of start with gnosticism, you cut out all the middlemen, and you're left with agnosticism.
+
+Yeah, right. Yes, there are a lot of middlemen along the way. I mean, I'm just sort of, you know, just sort of, you know, skirting over 15, 16, 1700 years of history there, but as one does, you know?
+
+Yeah. So, um, yeah, so this this comes up, as you mentioned, in terms of how we understand who [[Christ]] is, and it comes up at an event that I think a lot of people have probably heard of, at least vaguely.
+
+Yeah.
+
+Um, but may not know what it was actually about.
+
+Right, right.
+
+When we were reviewing, when we were reviewing this, I had only the barest outline. I remember like, "Oh yes, this is something where someone said something bad about [[St. John Chrysostom]]."
+
+Right. And if it's dealt with in terms of what it was about, what you usually get is, "Well, this was really just about church politics."
+
+Right.
+
+Um, but we're we're talking about the Synod of the Oak, which is when [[St. John Chrysostom]] was condemned and exiled for the first time in AD 402.
+
+Right.
+
+Um, and you know, it it is, like, there was a lot of church politics involved. This was motivated by that.
+
+Right.
+
+But that is, uh, there was an actual accusation made against him of heresy at this synod.
+
+Right.
+
+And so the what we want to talk about here is the nature of that accusation.
+
+Yeah, because that's very pertinent to everything that we've been discussing. And we'll say from the outset that it was a false accusation.
+
+Yes. Yes. Yes. Right.
+
+Yeah.
+
+Uh, but so, uh, if you've read anything about the Synod of the Oak, you'll probably know that they accused [[St. John Chrysostom]] of being an Origenist.
+
+Yes.
+
+Now, Origenist is a very flexible accusation. Right? It could It could refer to lots of things. You could be saying somebody is a universalist. You could be saying that they think that resurrected bodies will be spherical. You could be saying that Right. uh, any number of other things.
+
+That's my favorite.
+
+Right. Um, so, uh, so in this case, what they were saying made [[St. John Chrysostom]] an Origenist was that they accused him, and the Tall Brothers who he'd sort of given aid and comfort to from Egypt,
+
+Yeah, who were a group of monks, by the way, these Tall Brothers.
+
+Yeah.
+
+Right.
+
+He was accused of being an Origenist because they said that he said that [[God]] didn't have a body.
+
+Right. They're saying that he said that.
+
+Right. They accused [[St. John Chrysostom]] of saying that [[God]] doesn't have a body, and a group of monks were sent who are referred to as "anthropomorphists." Right? Because they believe that that [[God]] had a body.
+
+Right.
+
+Um, and so sometimes, if anyone even gets into the details of the accusation, they look at it as kind of silly because they say, "Well, of course [[God]] doesn't have a body," because they're thinking of "body" in the modern sense.
+
+Yes, right.
+
+Right? Not as we've been talking about it.
+
+Right.
+
+So the accusation at the time actually was an accusation about St. [[John]]'s Christology primarily.
+
+Right. And and and I think it's important, especially to know that part of the frame for this is that it's actually a guilt-by-association accusation.
+
+Yes.
+
+It's not from something that he himself ever said or wrote. Right? It's just, "You're from this town, and they have bad Christology over there. So you therefore must as well, because we all know how people from Antioch are, don't we? Nudge, nudge, wink, wink." You know? Right, right.
+
+Right. It's it's Antioch. And there are uh other Antiochene writers whose Christology was later condemned.
+
+Right.
+
+Uh, like Theodore of Mopsuestia, uh, Theodoret of Cyrrhus, and it was not coincidental that they were condemned alongside [[Origen]].
+
+Right.
+
+Uh, because there is a connection that we're about to talk about.
+
+Yeah.
+
+Yeah. Um, so, uh, the idea is they were condemned for a Christology that was Nestorian, meaning they were condemned because they said that their view of [[Christ]] had some kind of separation between [[Christ]]'s humanity and his divinity. And the particular way that worked was based on a certain view of [[Christ]] as a divine person. Yeah. If you take, and again, we won't get into whether this is even actually what [[Origen]] believed, but [[Origen]] was thought and said to have accepted this philosophical notion of the divine nature. Right. That that [[God]] has no body in this ancient sense. This ancient sense that [[God]] doesn't communicate directly with his creation or act directly in his creation. That he can't.
+
+Yeah.
+
+Um, now would it be correct to say, I know that, you know, the word has developed a lot much later, but would it be correct to say that these are the energies of [[God]] we're talking about? Is energies of [[God]] synonymous with the body of [[God]]?
+
+I wouldn't say synonymous.
+
+Okay. That's, but there's there's certainly some overlap.
+
+There's some overlap here. Yeah. Yeah, when we talk about [[God]]'s powers and his, yeah.
+
+Okay.
+
+Um, so, uh, so for him, [[God]] capital G, they held, that for [[Origen]], [[God]] capital G is like the god of the philosophers and is disconnected, and then for, uh, for [[Origen]], they held, right? They held that [[Origen]] said that then the Logos is sort of a lesser divine being who serves as an intermediary.
+
+Yeah, yeah.
+
+Right? Um, so if you imagine for a minute that we're thinking about [[Christ]], we have [[Christ]]'s humanity, but then you believe that divinity, including [[Christ]]'s divinity, is bodiless in this sense, is detached, is infinite, and, you know, unaware and unable to interact with creation, you end up having sort of this human being, [[Jesus]], who is in some way attached to or connected to a divine person in some kind of unique way.
+
+Yeah.
+
+Yeah.
+
+The Force.
+
+Right. Or midichlorians, I don't know, but in some way.
+
+He's really strong with the Force.
+
+Yeah. Yeah. In in some way, but but it's not one person.
+
+Right.
+
+Right? It's not one person. And so that that understanding of [[God]] is incompatible with Orthodox Christology, right? You you you can't have, if [[God]] is that way, you can't have a meeting with a person. And so...
+
+Yeah, and and if I recall correctly, Nestorius's solution to this problem, because this was his view, uh, Nestorius's solution to this problem is to say that the divine [[Christ]] is joined to the man [[Jesus]] by goodwill. Right? Is was that true? Eudokia or whatever? Yeah, by goodwill. They're conjoined by goodwill. So you have two persons who are conjoined. And it's made necessary for him to say this because he has this sense that [[God]] does not have a body in this ancient sense of having a body.
+
+Right. And this is this is why there was so much opprobrium towards the Samaritans because of that. It wasn't just like, "Oh hey, you guys are worshipping in the wrong place," right? You're thinking of the wrong place.
+
+Yeah, there there it was, "You guys are idolaters. Look what you're doing."
+
+Right. That was idolatrous. That was, you know, heretical to go and build a temple there on Mount Gerizim. Yeah. Uh, and and worship there.
+
+Yeah.
+
+Yeah. So, um, and and we see this connection between the body of [[God]] and the temple in a bunch of places. Um, one of the primary ones, or at least one of the ones that I think of as primary because I wrote my dissertation about the Day of [[Atonement]]. Uh, is the Day of [[Atonement]].
+
+Yeah.
+
+Um, because, uh, part of it that gets left out, when we talk about the Day of [[Atonement]] in in our modern Christian world, we're almost always talking about the goats because everybody wants to argue about atonement theories.
+
+Yes.
+
+Uh, and so it's what's going on with the goats. We miss sort of other key elements of of the ritual. Um, a main one of which was the high priest, this was the one day a year when he would go into the Holy of Holies where the Ark of the Covenant was. Uh, before he did that, he would have to make a bunch of sacrifices for his own sins, then he could enter. And before, as he entered, he was required to offer this huge amount of incense to make this cloud of incense. And the purpose of the cloud was to cover, and there's kind of a wordplay there because the word for "cover" is the same word as the word for "atonement."
+
+Nice.
+
+Uh, to cover the fact that [[Yahweh]] appeared there on that day. And so if that smoke wasn't there to cover it, he would see [[Yahweh]] and die.
+
+Yep. And so he did that, he had to offer the incense so that he wouldn't see directly [[Yahweh]] when he appeared, and then he would, uh, come in with the blood of the goat that was for [[Yahweh]] and use it to purify the Ark of the Covenant and its cover so that, um, and then the rest of the the Tabernacle and later temple, so that [[God]] could continue to live in the midst of his people for another year without consuming them in fire because of their sins.
+
+Right. And and and as I recall, the reason why this is done is because this is the day that [[God]] has chosen to make himself known. It's not because doing this ritual makes [[God]] show up.
+
+Right. No, you don't. You're not, you're not doing the ritual to make [[God]] appear. Because you can't do that. He's not that kind of [[God]]. That's the day when [[God]] is going to appear in the temple.
+
+Yeah.
+
+He's going to appear in the Holy of Holies, and so you have to do the ritual to make that safe.
+
+Yeah. And of course, there's an interesting sort of modern analog to that. It's not identical, but it's an analog, which is, you know, that we have the the miracle of the holy fire that appears in the Church of the Holy Sepulchre uh on Holy Saturday. Um, again, it's not that we've called him down, it's that this is the day, this is the appropriate day when, you know, and it's funny like there's even that historical instance where the holy fire appeared even though the services were not allowed to be done at some point in history. You know, it still appeared and cracked one of the pillars nearby, which I gather you can go see. I've never seen it, but I've I've talked to people who have, that [[God]] himself still chooses to appear. Now, why don't they have to do a massive gigantic cloud of incense? Although I'm sure probably they do have some incense. Uh, you know, in in order to so so people don't see that happening. It's okay to see it happening. People see it happening.
+
+Right. And and that's because [[Christ]]'s atonement has now has now purified the world.
+
+Yeah.
+
+Right? That's what he's done.
+
+He's done the covering.
+
+And so, and this is, you know, see the whole book of [[Hebrews]].
+
+Right. Yeah.
+
+Right? That's a lot of what what [[Hebrews]] is getting at. So it's now safe um, uh, to to approach [[God]]. And you you see you see a similar idea of [[God]]'s body enthroned in the temple in the visions that the vision that [[Isaiah]] has when he's called to be a prophet.
+
+Yeah.
+
+Where he sees him enthroned with the altar as his footstool.
+
+Yeah, "Here am I, Lord, send me." I love that bit.
+
+And and then [[Ezekiel]] sees a very similar thing, but then he sees [[God]], [[Yahweh]] on his chariot throne in the temple, but then before the temple is destroyed, he leaves. Right? That's what [[Ezekiel]] sees. And so when he leaves, the temple is destroyed. And we'll probably get into this a little more in the next, uh, in the next episode, but as a semi-tease, the reason why we don't have just one place where we worship now is that any place where, um, where [[God]]'s body is, say in a tabernacle, say on an altar, um, becomes a temple.
+
+Yeah. Wow. Cool.
+
+Very cool. Yeah, [[Christ]] becomes a new temple. And and, you know, um, yeah, and and as the kind of the final tease, right, that I think would be helpful for for next time in two weeks is, so if the [[Son of God]] has a bodily existence apart from the incarnation, and then he also has a bodily existence by virtue of being human, does that mean that [[Christ]] has two bodies? Tune in next time, we'll talk about that. Um, but, uh, yeah. So, you know, before we close, um, having gone through this mind-bending experience, uh, now twice for me, uh, um, I I wanted to, you know, just give some of my own impressions about this, and then and then Father Stephen, you can, you can close us out. Yeah, I I think one of the big takeaways for me, I mean, there's two big takeaways. The first is the stuff we've just been talking about, which is how the the the truth that [[God]] has bodily existence, that he interacts with the world, that he has a nexus of potentialities, you know, powers, whatever, however you want to put it, that that, um, is what we're, he is what we're, whom we're interacting with in worship. Like if he really was the [[God]] of the philosophers, then he wouldn't be available. Like he wouldn't show up, he wouldn't reveal himself, he wouldn't do that, right? Um, and then connected to that then the my other big takeaway is how important it is that we understand the biblical language about [[God]]'s bodily existence because if we don't, then we're not worshipping the [[God]] of Abraham, Isaac, and Jacob. We don't have a [[God]] who loves us. We don't have a [[God]] who who cared enough to create us, right? The [[God]] of the philosophers, you know, had had to have not even an emissary, if he's even aware of him, right? Um, but this kind of, you know, this demiurge, this this intermediary, you know, but he's not, he's he's not some lesser creator being that the unmoved mover, you know, uh, is only kind of tangentially connected to or whatever. You know, this is the [[God]] who loves us. This is the [[God]] who reaches out to us. This is the [[God]] who touches the mouth of [[Jeremiah]]. You know, this is the [[God]] who stands next to Samuel's bed, right? We don't have to be embarrassed by that language. It's in scripture, and it means something. It may not mean exactly the same thing when I stand next to a bed, but that doesn't mean it didn't happen or that it's just some kind of metaphor. It's not. It's again, the scripture never says, you know, "And [[Yahweh]] became present in a manner like unto a man stands next to a bed." It doesn't even say that. Just said he stood next to the bed, you know, or that he ate. I mean, how how bodily can you get? How much more bodily can you get? He ate with Abraham, right? And you know, our our February episodes are going to be all about sacrifice and worship, everybody. So hold on to your hats for those. Um, that's going to be really cool. But I mean, it's just it's just it's it's astonishing. I know that I use that word a lot on the show, but it just really is astonishing. And it's okay to take this stuff seriously and not think that we're anthropomorphizing [[God]]. We're not. Again, remember, like we said at the beginning, it's the opposite. We are theomorphized. We are like [[God]]. We're much smaller, lesser, you know, corrupted, limited imitations, you know, but but we are like [[God]]. He's not like us. We're we're like him. We have to keep that, keep that in the right order. So, uh, those are, those are my big takeaways from this conversation, Father.
+
+Yeah. So there's a place in the scriptures where, uh, [[St. Paul]] talked to a bunch of those philosophers we were talking about, about their [[God]].
+
+Yeah, the Areopagus.
+
+Um, yeah. I think you're vaguely familiar with that passage.
+
+Yes, I'm a fan of it. It's one of my favorite things.
+
+Yes. It's one of my favorite things. And when he speaks to them, uh, he he certainly, repeatedly, condemns idolatry. But he also speaks to this philosophical notion of [[God]] that he's remote, that the Most High [[God]] has distanced himself and is now sort of gone, uh, and maybe we can content ourselves as much as we need with these idols and these these lesser spiritual beings. But what [[St. Paul]] says to them in response to what they believe is that when when, uh, [[God]] created all people and he he the Most High [[God]], [[Yahweh]], the [[God]] of Israel, created the whole world and he assigned to people their allotted places and times, that he did this not, well, first that he did it, but also that he did this not to push them away, not because they were lesser than him and he didn't think about them or couldn't think about them or didn't care about them, exactly the opposite. He did, he did this, [[St. Paul]] said, so that they should seek [[God]] and perhaps feel their way toward him and find him.
+
+Yeah.
+
+That he is actually not far from each one of us, for in him we live and move and have our being. So he's he's telling them, this is a part of the gospel, especially for these philosophers and how they're used to thinking about [[God]], right? That [[God]] not only knows you exist, right? But he cares about you. He wants you to seek him and he wants you to find him. He's here with you. He's around you. He's how you're taking your last breath and your next breath. He's the one who's giving you life, and not only brought you into being, but is maintaining your being. And it's very easy for us in our sort of modern materialistic mindset, as we already talked about, to fall into this kind of accidental agnosticism, where we don't doubt that [[God]] exists, but he's off somewhere, at least most of the time.
+
+Yeah.
+
+And he's not here with us, he's not close to us, he doesn't care, at least he doesn't care about the little stuff, maybe about the big stuff. Maybe politics or something he's involved, but but but not with me in my life and the things I'm worrying about and paying my bills and and and all of these things. And the truth is that the [[God]] who created the universe is the opposite of that. We're told by the scriptures over and over again that [[God]] has done all these things for us out of his love. He created us out of his love. He created the cosmos out of his love. And he's done all of it so that we would seek after him and find him. We're told that if we seek him with our whole heart, we will find him. And so that he can share his life, which is an eternal life, with us, uh, in his kingdom that has no end. Yeah. And so this is something that should, it's not just, I know on our episode where we talked about the saints, I talked about how we're never alone in terms of having the saints and the angels around us and worshiping with us. [[God]]'s here, too. [[Christ]] is here with us, too. The [[Holy Spirit]] is living within us and is not far off somewhere. Amen.
+
+Well, that is our show for today. Thank you very much for listening, everybody. Uh, if you didn't get a chance to call in during the live broadcast, we would love to hear from you either via email at lordofspirits@ancientfaith.com or you can message us at our [[Lord of Spirits]] podcast Facebook page. We read everything, but we can't respond to everything, and we do save what you send for possible use in future shows.
+
+Join us for our live broadcast on the second and fourth Thursdays of the month at 7 p.m. Eastern, 4 p.m. Pacific. If you're on Facebook, unlike me, like our Facebook page and join our Facebook discussion group.
+
+Leave reviews and ratings, but most important, share this show with a friend whom you know is going to love it.
+
+And finally, be sure to go to ancientfaith.com/support and help make sure we and lots of other AFR podcasters stay on the air.
+
+Thank you very much, and may [[God]] bless you always. We'll see you next time.
+
+You've been listening to the [[Lord of Spirits]] with Orthodox Christian priests Father Andrew Stephen Damick and Father Stephen De Young, a listener-supported presentation of Ancient Faith Radio.
+
+And I beheld, and I heard the voice of many angels round about the throne, and the beasts and the elders. And the number of them was 10,000 times 10,000 and thousands of thousands, saying with a loud voice, "Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honor, and glory, and blessing."
+- [[Revelation]] chapter 5, verses 11 through 12

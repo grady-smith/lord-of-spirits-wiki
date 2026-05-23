@@ -1,0 +1,794 @@
+--- 
+ title: "Salvation" 
+ tags: [lordofspirits] 
+ ---
+# [[Salvation]]
+
+## Introduction and Episode Summary
+
+[[Fr. Andrew Stephen Damick]] and [[Fr. Stephen De Young]] explore the Orthodox understanding of salvation, a term central to Christian faith but often understood in different ways. They discuss what salvation meant for humanity before and after the fall, tracing the theme from Adam through Noah, [[Abraham]], and [[Moses]]. The episode contrasts the idea of salvation as merely "going to heaven" with the Orthodox concept of [[Theosis]], or becoming like [[God]]. They examine the role of faithfulness, the [[Torah]], and [[Christ]]'s work in overcoming the obstacles of sin, death, and demonic powers.
+
+## Transcript
+
+**Intro:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=00:00:00)
+> He will be a staff for the righteous with which for them to stand and not to fall. And he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits.
+> ([[1 Enoch]], chapter 48, verses 4 through 5)
+>
+> The modern world doesn't acknowledge, but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the Lord of Spirits.
+
+**[[Fr. Andrew]]:** [Listen from 01:05:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:05:24)
+Greetings, dragon-slayers, giant-killers. You are in the unfortunate position of listening to the 136th episode of the Lord of Spirits podcast. I'm [[Father Andrew]] Stephen Damick, still in Emmaus, Pennsylvania, for now. And with me is [[Father Stephen]] De Young, not *the* Swamp Thing, but certainly *a* Swamp Thing.
+
+**[[Fr. Stephen]]:** [Listen from 01:25:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:25:24)
+The Green calls to you.
+
+**[[Fr. Andrew]]:** [Listen from 01:27:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:27:24)
+Coming to you live from Lafayette, Louisiana. And we are live, and we're going to start taking your calls in the second half of the show. Tonight, we're talking about a huge topic: salvation. All Christians use this term.
+
+**[[Fr. Stephen]]:** [Listen from 01:41:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:41:24)
+Wait, are we live?
+
+**[[Fr. Andrew]]:** [Listen from 01:43:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:43:24)
+I think so.
+
+**[[Fr. Stephen]]:** [Listen from 01:44:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:44:24)
+Or is this... do we deserve to be?
+
+**[[Fr. Andrew]]:** [Listen from 01:47:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:47:24)
+Most people won't even know the difference because...
+
+**[[Fr. Stephen]]:** [Listen from 01:50:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:50:24)
+And is that the question? And if so, who answers? Who answers?
+
+**[[Fr. Andrew]]:** [Listen from 01:57:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=01:57:24)
+Thank you. You completely got me sidetracked with that.
+
+**[[Fr. Stephen]]:** [Listen from 02:05:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=02:05:24)
+As is my wont.
+
+**[[Fr. Andrew]]:** [Listen from 02:07:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=02:07:24)
+Yes, yes. Actually, I literally ran across a tweet today saying that someone started saying "as is my wont" because they heard you and occasionally me saying that on...
+
+**[[Fr. Stephen]]:** [Listen from 02:17:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=02:17:24)
+So when you say you "literally ran across it," like someone left their phone on the ground or...
+
+**[[Fr. Andrew]]:** [Listen from 02:21:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=02:21:24)
+That's correct. Yes. With my car. Yeah. Um... Yeah, yeah, salvation. We're talking about salvation. All Christians use this term. Do we all mean the same thing by it? No, we clearly do not. Is it possible to have a full-orbed understanding of salvation by closely looking at the scriptures? Yes. Obvious rhetorical questions, so that was easy. Good night.
+
+Actually, I'm going to leave [[Father Stephen]] to ramble for the next three hours alone, which from what I have read is what a number of you out there in podcast land have been hoping for for literally years now.
+
+**[[Fr. Stephen]]:** [Listen from 02:58:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=02:58:24)
+So you just took our lead-in like really literally, and you're going full-time sabbatical.
+
+**[[Fr. Andrew]]:** [Listen from 03:03:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:03:24)
+That's right. That's right. Or, or [[Father Stephen]], you can start by telling me whether [[Theosis]]... [[Theosis]]. See, I always want to say "theosis."
+
+**[[Fr. Stephen]]:** [Listen from 03:15:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:15:24)
+You say "theosis."
+
+**[[Fr. Andrew]]:** [Listen from 03:16:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:16:24)
+I know, it sounds like some kind of... like halitosis.
+
+**[[Fr. Stephen]]:** [Listen from 03:20:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:20:24)
+Like osmosis.
+
+**[[Fr. Andrew]]:** [Listen from 03:21:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:21:24)
+A disease. It's like osmosis.
+
+**[[Fr. Stephen]]:** [Listen from 03:23:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:23:24)
+I know.
+
+**[[Fr. Andrew]]:** [Listen from 03:25:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:25:24)
+It's [[Theosis]].
+
+**[[Fr. Stephen]]:** [Listen from 03:26:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:26:24)
+Or [[Moses]], who supposes his toeses are roses.
+
+**[[Fr. Andrew]]:** [Listen from 03:32:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:32:24)
+Whether [[Theosis]] is it really just an Orthodox add-on to this idea of salvation or what? Is it in the Bible, [[Father Stephen]]?
+
+**[[Fr. Stephen]]:** [Listen from 03:43:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=03:43:24)
+What? Since my options were "it's an add-on or what," I choose "what." Um, yes. So we're going to be talking about what salvation is, how you get it, not so much about whether you can lose it, that's a whole other topic.
+
+**[[Fr. Andrew]]:** [Listen from 04:02:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=04:02:24)
+Unless somebody calls in to ask that question.
+
+**[[Fr. Stephen]]:** [Listen from 04:06:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=04:06:24)
+Like if we have a free will, a free will Baptist on the line?
+
+**[[Fr. Andrew]]:** [Listen from 04:08:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=04:08:24)
+Yes, yes.
+
+**[[Fr. Stephen]]:** [Listen from 04:10:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=04:10:24)
+And/or a Calvinist, a pugnacious Calvinist. Um, but, uh, we're, yeah, what is salvation and how do we get it? And so salvation, getting saved, are you saved? Uh, have you been saved? It's one of those, one of those terms that everybody from a Christian background uses all the time, but I think often if pressed will have a hard time defining exactly what it means.
+
+Or you'll get into the weeds, right? of what we call soteriology. Right. So, you know, probably, I think the most common way people understand that, getting saved, is, uh, they think it means that you're going to go to heaven instead of hell when you die.
+
+**[[Fr. Andrew]]:** [Listen from 05:06:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=05:06:24)
+Yeah, you had a conversion experience, you got saved, and so now you're going to go to heaven instead of hell when you die. Heaven everlasting is your reward.
+
+**[[Fr. Stephen]]:** [Listen from 05:16:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=05:16:24)
+Played into by the whole, uh, Walmart parking lot evangelism, evangelism tactic of "if you died tonight, do you know where you'd..."
+
+**[[Fr. Andrew]]:** [Listen from 05:24:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=05:24:24)
+I know. I had someone do that to me one time and I was quite a bit younger than I am now and I said, "I'm a Christian, dude." And the guy started pressing me though, like, "No, no, do you know?" I was like, "I mean, look, I've done the thing. I'm a Christian. I go to church." He couldn't... He just had a script, I guess. I don't know. It was weird.
+
+**[[Fr. Stephen]]:** [Listen from 05:44:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=05:44:24)
+You should have told him you'd been, uh, you'd been wicked and so you were going to Indiana when you die. Um, but, yeah, is Indiana the afterlife for Ohio? Is that what it is? If you're bad. It's like the Druze believe if you, if you're really good in life, you get reincarnated in China.
+
+**[[Fr. Andrew]]:** [Listen from 06:02:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:02:24)
+Right. I mean, there's, you know, traditional Finnish paganism, uh, hell is basically an island off of Finland.
+
+**[[Fr. Stephen]]:** [Listen from 06:09:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:09:24)
+Yes. So in this case, Ohioans are the opposite of the Druze and Indiana is the opposite of China.
+
+**[[Fr. Andrew]]:** [Listen from 06:17:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:17:24)
+I'm seeing it.
+
+**[[Fr. Stephen]]:** [Listen from 06:19:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:19:24)
+Yeah, I think it's... I don't see how anyone could doubt those connections. But that definition, going to heaven instead of hell when you die, is literally never what the word "saved" means in the Bible.
+
+**[[Fr. Andrew]]:** [Listen from 06:32:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:32:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 06:34:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:34:24)
+Yeah. At all, ever. Not once.
+
+**[[Fr. Andrew]]:** [Listen from 06:37:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:37:24)
+Right.
+
+**[[Fr. Stephen]]:** [Listen from 06:38:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=06:38:24)
+And in fact, that term is used with subtly different shades of meaning in different parts of the Bible and in different contexts. And so we're going to, we're going to do what we love to do on this show. Start at the very beginning of the book of [[Genesis]]. It's a very good place to start. We're going to take you on a survey of, uh, what the word, what salvation means in some of these different contexts and how one gets, receives, achieves, accomplishes it. Right? So that's, that's our trajectory for this episode so that we can, we can, uh, read and understand, uh, that term in Scripture a little more knowingly.
+
+So we start with, we start with Adam, our first person. We're actually starting with Adam before the expulsion from Paradise.
+
+**[[Fr. Andrew]]:** [Listen from 07:48:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=07:48:24)
+Pre-lapsarian man, as it were.
+
+**[[Fr. Stephen]]:** [Listen from 07:51:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=07:51:24)
+Yes. Adam in Eden, this is where we're starting. And that may seem counterintuitive based on the way salvation is talked about in a lot of circles.
+
+**[[Fr. Andrew]]:** [Listen from 08:06:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=08:06:24)
+Yeah, usually it's this idea that salvation is a thing that happens because things went wrong.
+
+**[[Fr. Stephen]]:** [Listen from 08:12:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=08:12:24)
+Right. Adam messed things up and so now people need to be saved. Yeah. Saved from what Adam did, the consequences of what Adam did, [[God]] being mad at Adam for what he did and taking it out on the rest of us. Right, however you're saying that. But the question, what is salvation for Adam in the Christian tradition? And I'm saying it that way deliberately because number one, I want to be fair, right? But also, a version of this understanding is not foreign to even [[Protestantism]], like classical actual [[Protestantism]]. This way of thinking may be very foreign to a lot of evangelical folks.
+
+The idea that the question, "what is salvation for Adam?" is a coherent question. There was salvation for Adam. Adam was on a path to salvation in Eden. And the great evidence of that, of course, is that, contra certain Plato-brained individuals, Adam and all of creation, for that matter, is created in motion. Adam was not created in a kind of static, unchanging perfection.
+
+**[[Fr. Andrew]]:** [Listen from 09:32:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=09:32:24)
+Yeah, right. If he had been, he couldn't have sinned.
+
+**[[Fr. Stephen]]:** [Listen from 09:36:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=09:36:24)
+There had to be mutability for him to sin, like definitionally. Right. So Adam is created, all of creation, everything that is created is created, in motion toward a telos, toward a perfection of that thing, a perfection of each created nature. So Adam was created toward a telos, toward an end, toward a goal, toward a purpose, in motion toward it. But that motion and change also allows for motion away from.
+
+**[[Fr. Andrew]]:** [Listen from 10:15:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=10:15:24)
+Yeah, and he couldn't have fallen if Adam was created this sort of crystallized perfection.
+
+**[[Fr. Stephen]]:** [Listen from 10:21:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=10:21:24)
+Right. So what did this path or this road toward maturity or perfection or completion, right, mean for Adam? Well, if you look at classical Protestant sources that have this understanding, what they will talk about is they will say, "Well, Adam is created and he's given one commandment." And you may even have heard this idea even in Orthodox circles, even in Roman Catholic circles, right? Adam is given one commandment.
+
+And in the classical Protestant view, he was undergoing a sort of probationary period. And if he had kept that one commandment to not eat from the tree of the knowledge of good and evil, if he had not done that for some period, for some period of time, he would have passed probation and essentially been saved.
+
+**[[Fr. Andrew]]:** [Listen from 11:31:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=11:31:24)
+He would have then been transformed sort of automatically into his perfected state.
+
+**[[Fr. Stephen]]:** [Listen from 11:41:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=11:41:24)
+in which often, depending on who you're reading, he would have been kind of crystallized. Right. So this is less an image of a path or a road he was on as [[God]] was testing him. If he had succeeded, he would have been rewarded. He failed, so he was punished. That's that sort of paradigm.
+
+But if we read closely in [[Genesis]], it is not in fact the case that he only received one commandment.
+
+**[[Fr. Andrew]]:** [Listen from 12:15:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=12:15:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 12:16:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=12:16:24)
+He received three commandments. There are three imperatives: two of them positive and then the one negative. And so the one negative commandment we've already talked about: tree of knowledge of good and evil, of that tree he was not to eat. But remember, as we've talked about on the show before, he received two others: to, number one, fill the earth and fill it with life, and number two, subdue it, put it into order. So he had two positive commands, one negative command. Don't do this, do do these two things.
+
+And this is why we have the idea of him being on a road or a path or on a way toward perfection, because filling the earth is something that would have taken place over time.
+
+**[[Fr. Andrew]]:** [Listen from 13:14:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=13:14:24)
+A series of choices, right? Well, and and perfection, you know, sometimes people think of, you know, to be perfect is to be, I don't know, one rather than zero. Like those are the only two options. You know, like they say, "Well, I'm not perfect," meaning, "I've done bad things." And so therefore perfection must mean, "I've done no bad things." But, but also there's a sense of perfection as in maturity, something getting riper, better, more fully what it's supposed to be. That doesn't necessarily mean there's flaws in it, just that it's not there yet. Like a baby is not perfect because a baby is is not full-grown.
+
+**[[Fr. Stephen]]:** [Listen from 13:53:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=13:53:24)
+Right. Right. And is in a process that will lead to that. Yeah. And so, commandments, this is going to be important tonight. We tend to attach the idea of commandments directly to the idea of sin. Commandments are just telling you not to do certain things, right? That are bad things. But that's not... Commandments are just imperatives. You can have a negative or a positive imperative.
+
+If I tell you, "Go out there, find something good to eat and enjoy yourself," that's an imperative. That's a commandment. That's a command. There's just nothing negative about it. Or I can say to you, "When you go out there and you're enjoying yourself, don't eat too much and make yourself sick." That's a negative commandment. Right? That's warning you off from something bad.
+
+So, Adam had, not just, "Here's what fully mature, complete man looks like" in the future, but he was on a path that led there by doing certain things and not doing another thing. Right? He had a way of life laid out to him and set before him.
+
+Now, as I said, we've talked before on the show about those two positive commandments, that [[Genesis]] is very clear that Eden is not or paradise is not the whole world. Right? It is a place, and that when the earth is supposed to be filled with life and subdued and put in order, that a garden, like Eden or paradise, is sort of the perfect example of that, where a garden, unlike a bayou, is, is in good order. There's lots of living things in the bayou, but they're not in good order. A parking lot is in very good order, but there's no life there, right? Unless, you know, it hasn't been paved recently and it's cracking open and and life is coming through, uh, is growing up from underneath it. But when that happens, that disrupts the order of the parking lot. That's one at the expense of the other, whereas a garden that's a well-tended garden is perfectly in order, and because it is in in perfect order, it brings forth life in greater abundance. Right? So those go together in a garden.
+
+And so, one way of summarizing Adam's job, which he shares with his wife, is to turn the whole world into Eden, to expand the boundaries of Eden until it is all creation. And through that process, right, this is what it means that he is to be the image of [[God]]. Because we were just told right at the beginning of [[Genesis]] chapter one that at the beginning of [[God]]'s creation of the world, the world was formless or disordered or chaotic and empty. And [[God]] proceeded on the six days of creation to put the creation in order and then to fill it with life, first three days, second three days. We've talked about that before.
+
+And so Adam going and filling the world and subduing it and putting it in order is him doing what [[God]] does, him participating in [[God]]'s work.
+
+**[[Fr. Andrew]]:** [Listen from 17:50:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=17:50:24)
+Yeah, it's just extending, you know, um, to use a Tolkienian term, it is sub-creation.
+
+**[[Fr. Stephen]]:** [Listen from 17:57:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=17:57:24)
+Yeah. And in so doing, he not only would have fulfilled the purpose he was created for, but by serving as the image of [[God]] in creation, he would have become like [[God]].
+
+**[[Fr. Andrew]]:** [Listen from 18:11:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=18:11:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 18:14:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=18:14:24)
+And so this is what St. Basil the Great is talking about when he says, talking about [[Theosis]], that man is the creature who is commanded to become [[God]]. And you may be like, "Well, I missed that commandment." Right, that commandment is not... It's not one of the ten. It's not one of the... And you flip around trying to find it. Well, it's right here in [[Genesis]] 2. That's the command. That's what "fill the earth and subdue it" means. Means to become like [[God]], right, by doing this.
+
+And so, as we've talked about, all the fathers say... St. Andrew of Caesarea says all the fathers say that the devil fell through envy. This is what the envy was based on.
+
+**[[Fr. Andrew]]:** [Listen from 19:03:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=19:03:24)
+Yeah. Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 19:05:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=19:05:24)
+The devil's envy was based on this destiny of humanity. Right? This potential of humanity, this path on which humanity was set that he was not. And so even though, even though the devil was at the point of creation higher up in the hierarchy of creation, right? A greater being, as it were, of a higher order, man was created a little lower than the angels, but then has this ability to be crowned with glory and honor, [[God]]'s own glory and to be honored by the rest of creation. And this is what leads the devil to envy and, uh, to his attempt to destroy humanity and his fall in [[Genesis]], uh, three.
+
+But there's also here, right, as this is laid out here in the first couple chapters of [[Genesis]], there's also a certain mystery. What is that mystery? Well, how is it possible for humanity to do this? And why is it only possible for humanity to do this? Why couldn't the devil similar... become like [[God]] in the same way that Adam could have?
+
+I mean, it might be obvious if we're talking about like why a paramecium can't, but like...
+
+**[[Fr. Andrew]]:** [Listen from 20:39:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=20:39:24)
+Why not the angels? I mean, come on.
+
+**[[Fr. Stephen]]:** [Listen from 20:41:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=20:41:24)
+Why can't a [[Seraphim]], right? Like, why can't a [[Cherubim]]? Um, yeah. So there is, there is this mystery. It's not going to go on forever, but in in the first few chapters of [[Genesis]], there's this mystery.
+
+**[[Fr. Andrew]]:** [Listen from 20:56:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=20:56:24)
+We have, we will have solved it by the third half of this show.
+
+**[[Fr. Stephen]]:** [Listen from 20:59:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=20:59:24)
+Yes. All will be revealed. You probably figured it out already, but anyway. Um, which is actually revealed yesterday liturgically. Um, but that's indeed. Um... So, this is Adam before, before the fall, and what salvation meant for him. So salvation would have meant for him following those commandments, becoming like [[God]], becoming mature and complete, being formed into the image of, of perfect man. That, that is what salvation meant for him before, okay?
+
+So now Adam falls. Adam is expelled from Paradise. His wife becomes Eve, the mother of all living. They are now outside of Paradise. But as the curses in [[Genesis]] 3 make clear, the purpose of humanity, the goal of humanity has not changed.
+
+**[[Fr. Andrew]]:** [Listen from 22:07:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=22:07:24)
+Yeah, it's still, you know, fill the earth, subdue it, do the things that [[God]] made Adam and Eve for.
+
+**[[Fr. Stephen]]:** [Listen from 22:15:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=22:15:24)
+Right. So woman is still going to give birth, right? And make more people. But now it is going to be painful and difficult. Man is still going to put the world into order, symbolized here by working the ground to bring forth food, but now it's going to be difficult. They're still going to have to work together to do it, but as it says in in the curse that's announced to, to Eve, it's going to be difficult for them to do that, to work together. So while the purpose remains the same, these other elements, these other factors, these foreign elements have now entered in and present obstacles that stand between humanity and the purpose for which [[God]] created humanity.
+
+And we've, we've talked about those before, but just to make sure we're all on the same page. So, first element is sin. Through Adam, sin enters the world, and then it's crouching at the door waiting for his son. Then because sin has now entered the world, and evil has now entered the world, [[God]] says, "It's not good that man should live forever in this state." There are created things that are evil and immortal, they're called demons. So [[God]] said, "It's not good that humanity becomes like the demons." Right? And so he brings about death, physical death, meaning we have a mortal life in this world with a beginning, middle, and end, to allow for repentance, but we still die. So there's now sin and death.
+
+And then the curse that's put on the devil in [[Genesis]] chapter 3 is he's made the Lord of the dead. He's given the power of death, as [[Hebrews]] says. So that power of death, death and the sin that requires it and brings it about, is wielded against humanity by the devil and other demonic powers to corrupt and destroy humanity. So you have sin, death, and the demonic powers now interposed between humanity and the goal for which humanity was created.
+
+And so now after the expulsion from Paradise, when we ask the question, "what does salvation mean for Adam?" at its core, it means the same thing. It means him growing to maturity and completeness and the full measure of the perfect man and becoming like [[God]]. But for that to happen, sin is going to have to be dealt with, death is going to have to be dealt with, and the demonic powers are going to have to be dealt with in order to make that again possible for humanity.
+
+And so the next major figure we come to as we're reading [[Genesis]], uh, whose, whose in the business of salvation, shall we say, is Noah.
+
+**[[Fr. Andrew]]:** [Listen from 25:38:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=25:38:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 25:41:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=25:41:24)
+So we find Noah, we're at the point where, as the text says, uh, we, we read through a couple chapters of the descent of Cain's line. Right? It starts out with Cain, the first murderer, and goes downhill from there until we're at the point in [[Genesis]] 5 and 6 where we're told that everyone on earth's thoughts were always evil all the time.
+
+**[[Fr. Andrew]]:** [Listen from 26:08:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=26:08:24)
+Yeah. Yeah. Which, I mean, obviously it's not taken to be absolute. You have Noah, but pretty much everybody else.
+
+**[[Fr. Stephen]]:** [Listen from 26:19:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=26:19:24)
+Right. Yeah, pretty much every... yeah, even even Calvinists don't think people are that bad, okay?
+
+**[[Fr. Andrew]]:** [Listen from 26:25:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=26:25:24)
+Wow. Usually they lean into that.
+
+**[[Fr. Stephen]]:** [Listen from 26:30:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=26:30:24)
+Yeah, no, no. Total depravity does not mean you are the worst you could possibly be, but these people were the worst they could possibly be. They were all they could be and less. And then we're told that Noah is righteous from his generation, meaning he is fundamentally different in how he lives and what he does than the rest, the rest of his generation. Okay? So what is salvation for Noah? Well, salvation for Noah is being saved from the rest of humanity, to be blunt. Right? To be saved from the sin and evil that has taken over his world completely, right, from top to bottom. But, but there is a difference here because when you hear about, when you're talking about [[Genesis]] and the early chapters and you're talking about someone being saved from the evils of the world, uh, you might think of [[Enoch]].
+
+And yes, I pronounce it like the sleestak. I don't care. Feel feel free to post your comments. Don't care. Still going to say it, [[Enoch]].
+
+**[[Fr. Andrew]]:** [Listen from 27:43:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=27:43:24)
+[[Enoch]].
+
+**[[Fr. Stephen]]:** [Listen from 27:45:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=27:45:24)
+Who [[Enoch]] is is like the one of a only a couple people who actually do get raptured in the Bible. So [[Enoch]] is sort of removed from the wickedness and evil of the world. That's not what happens with Noah, and the reason that's not what happens with Noah is everybody starts reading the story of Noah with [[Genesis]] chapter six, but he's actually born at the end of chapter five. And at his birth, his father makes a prophecy that the world is going to be saved through Noah. The creation is going to be saved through Noah.
+
+And so for that to happen, we can't just pluck Noah out of the world, right, and let the world continue going, you know where, because it's already kind of there. And so instead, the answer is Noah is preserved, the righteous man is preserved, as [[God]], as we talked about in our flood episode, you know, unmakes and remakes the creation, but purifies the creation from sin and cuts off sin, puts an end to it, by putting an end to all the sinners. Hating the sinner and loving the sin is a good motto for for for you and I in this life, but eventually the chickens come home to roost for the unrepentant sinner. Right. And so sin is cut off by everyone being wiped out, and the waters purify the creation from the sin and the wickedness. And Noah is preserved and emerges on the other side and is told what?
+
+**[[Fr. Andrew]]:** [Listen from 29:29:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=29:29:24)
+Fill the earth and subdue it.
+
+**[[Fr. Stephen]]:** [Listen from 29:31:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=29:31:24)
+Right. Um... Start over. Right. So once he is saved through the waters from the sin and evil in the world, uh, someone like St. [[Peter]] might compare that to baptism, then on the other side, what is salvation for him? It's what it was for Adam, really originally, right? It's, it's becoming like [[God]], being conformed to the measure of the perfect man, right? That's salvation for him on the other side, once he's been saved from that.
+
+But there's still problems. Sin is still around. See Ham. Sin is still around. Death is certainly still around. Right? The flood doesn't deal with death. In fact, the flood used death to deal with sin.
+
+**[[Fr. Andrew]]:** [Listen from 30:23:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=30:23:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 30:24:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=30:24:24)
+Death is first put into place, human death at least, in in [[Genesis]] chapter 3 to deal with sin. Right? In the sense of putting a limit on sin by limiting human lifespans. But also, what I forgot what I was going with that. Well, I forgot what the also was. Um, but so death is put into place to deal with sin. Oh yes, [[Father Stephen]]. Yeah, I know. I know. I know. Is this what awaits me in two months when I finally catch up to your current age? I guess so. I'm sure all that time you spend sleeping at night doesn't count, so you'll probably be... Um, no, so... So death, the original purpose of death is to is to cut off sin, right? Um, and to create repentance from sin by the knowledge of death. That's where I was going with it. But this is sort of in extremis, death being used to deal with uh, to deal with sin.
+
+So the next figure we get, there's not really one single figure. You may be thinking we're going to the Tower of Babel next, but there's not sort of a righteous man at the center of the Tower of Babel story unless, and we're not going down this rabbit hole tonight, but potentially another time we will. Unless it's [[Abraham]] himself at the Tower of Babel, which there's a rich Jewish literature about that idea. But the next figure we get is [[Abraham]]. The next righteous man we meet is [[Abraham]].
+
+**[[Fr. Andrew]]:** [Listen from 31:59:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=31:59:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 32:00:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=32:00:24)
+And so we meet [[Abraham]] in Ur. Right? He's living in Ur of the Chaldees. He's living in a world... I mean it's, it's the Sumerian renaissance as we've talked about before. You can go back and listen to the [[Abraham]] episode. He's living at the height of Earth's civilization thus far up to that point. But there's a big giant ziggurat built in the center of the city during his lifetime that's a temple to a pagan god. And so we know that even in his own household there are people who are bound to these demonic powers, masquerading as gods. He lives in a world that is just corrupt like this. And while the separating of the nations, we've talked about how at Babel we sort of get this picture that things are descending quickly toward the point they were before the flood. Right? We have Nimrod show up who's sort of our token [[Nephilim]]. We have people becoming evil again, do a great evil things, and [[God]] sort of scatters the nations. And that kind of puts off the descent of the whole world into total evil, but only puts it off. Things aren't moving in a positive direction. Uh, they're just maybe moving a little more slowly.
+
+So what is, what is salvation for [[Abraham]]? Well, in his own life, right, part of it is being called out of that world.
+
+**[[Fr. Andrew]]:** [Listen from 33:33:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=33:33:24)
+Yeah, I mean that's kind of the... the big turning point moment in the life of [[Abraham]] is [[God]] comes to him and says, "Time to go."
+
+**[[Fr. Stephen]]:** [Listen from 33:41:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=33:41:24)
+Yeah. It's time to leave this city, this city with the ziggurat in the middle that's a pagan temple, this city devoted to a pagan god where a demon holds sway. Uh, to get away from that, to go out to another land, to live nomadically, to remove himself uh, from that whole, that whole lifestyle. And in the context of that, [[Abraham]] receives these, these two promises or these promises that have, a set of promises that have two prongs. One of them is that he's going to have descendants. He's going to have lots of them. Right? Uh, this quantity. But then there's also a promise about his descendants regarding uh, quality, that they will shine like the stars of heaven.
+
+**[[Fr. Andrew]]:** [Listen from 34:32:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=34:32:24)
+Yeah, to be blessed as the stars and multiplied as the sands of the sea.
+
+**[[Fr. Stephen]]:** [Listen from 34:36:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=34:36:24)
+Yes. And so he's also promised this particular chunk of land. And that land, to which he is brought, in which his many descendants will dwell, not nomadically but more permanently, not permanently but more permanently than [[Abraham]] did, then serves as this sign. When you see these things accomplished, then you will know that the rest of the promise is true regarding becoming like the stars of heaven. And as we talked about in the [[Abraham]] episode, when you said "stars of heaven" to someone from Ur, they were thinking of gods.
+
+**[[Fr. Andrew]]:** [Listen from 35:21:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=35:21:24)
+Yeah. What we would call angelic beings because we get sketchy about gods in the plural.
+
+**[[Fr. Stephen]]:** [Listen from 35:28:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=35:28:24)
+That's what they would think about. So when you're saying your descendants are going to be like them, this is a reiteration of the promise. This is a reiteration of the promise of man's destiny that through [[Abraham]] and his seed, that original purpose for which humanity was created is going to be accomplished. And within the context of those promises, it is implied that sin and death and the powers, the demonic powers are going to be dealt with.
+
+How is that implied? Well, it's implied in, first of all, most obviously, in that humanity is going to be restored to its original purpose, which as we said, those serve as barriers. But also, it's critically important to remember [[Isaac]], the special significance of [[Isaac]]. Not only is [[Isaac]] the seed of [[Abraham]] in a singular way... So [[Abraham]] had a bunch of sons.
+
+**[[Fr. Andrew]]:** [Listen from 36:39:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=36:39:24)
+Right. Many sons had Father [[Abraham]]. Oh, that's what brings it back. I am one of them, and so are you.
+
+**[[Fr. Stephen]]:** [Listen from 36:50:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=36:50:24)
+Uh, not in this sense, I mean literally. Biologically. It's not even just [[Isaac]] and Ishmael, there were more after Sarah died. Um, so he had a bunch of sons, right? And they had sons and they became whole nations. But there is also this singular son, right? This singular son. This singular son represents a kind of singular hope.
+
+And people jump really quickly to, "Oh, well he's the one who's going to receive the promises." Well, no, we've talked about this before on the show several times. Actually, all of those kids receive parts of the promises. Both parts of the land... So his grandson Esau isn't [[Jacob]], isn't the firstborn, but still gets part of the land that was promised to [[Abraham]]. See [[Deuteronomy]] chapter two. So they received that promise. That means, by the way, since that is the sign, that they also have open to them the promise of salvation. They're still human, they're still in the image of [[God]]. So that salvation that goes all the way back to the creation of Adam is also open to them, even though they're not going to be, quote-unquote, Israelites, right?
+
+So there's that singular element. But we also have to remember that that singular element, [[Isaac]], the singular son, the one who's going to have this special role... So the firstborn is the one who administered the inheritance, but the other sons also, when dealt with justly, received an inheritance. comes from a womb that the text describes as dead.
+
+**[[Fr. Andrew]]:** [Listen from 38:39:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=38:39:24)
+Mm.
+
+**[[Fr. Stephen]]:** [Listen from 38:41:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=38:41:24)
+Sarah's womb, as an extremely elderly woman, is described as being dead. Uh, but that is where, that is where [[Isaac]] comes from. So that life, that hope, that one who's going to be in, administer the inheritance, that singular seed, overcomes death. [[Isaac]] overcomes death by coming into existence.
+
+**[[Fr. Andrew]]:** [Listen from 39:06:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:06:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 39:08:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:08:24)
+Which is a sign that death itself is going to be overcome. And if death itself is going to be overcome, that means the purpose for it existing will have to be overcome, and the demonic powers who wield it will have to be overcome. So that's sort of, that's what I mean by it implies that that will be taken care of.
+
+**[[Fr. Andrew]]:** [Listen from 39:30:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:30:24)
+Yeah. So it's, so the defeat of sin and demons is implied in the defeat of death.
+
+**[[Fr. Stephen]]:** [Listen from 39:35:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:35:24)
+Right. Yeah, cool. So, if you can remember all the way back to the beginning of this podcast... many suburbs, so much younger then.
+
+**[[Fr. Andrew]]:** [Listen from 39:46:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:46:24)
+Yes. I had so much hope for humanity in the future. It's all gone.
+
+**[[Fr. Stephen]]:** [Listen from 39:54:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:54:24)
+No. Um, well no, it is all gone now, but um...
+
+**[[Fr. Andrew]]:** [Listen from 39:58:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=39:58:24)
+but it was gone a long time ago, friend. I've been running on fumes since like sixth grade.
+
+**[[Fr. Stephen]]:** [Listen from 40:03:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=40:03:24)
+So, uh, we said not only are we going to talk about what salvation is, right? We've been talking about that for Adam and Noah and [[Abraham]], what salvation was. We also said we were going to talk about how you receive it.
+
+**[[Fr. Andrew]]:** [Listen from 40:18:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=40:18:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 40:21:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=40:21:24)
+how it comes to you, because as we see with Adam right off the bat, the fact that [[God]] created Adam for a particular purpose, toward a particular end, even in motion toward a particular end, did not guarantee that Adam would achieve that end. Likewise Noah, likewise [[Abraham]]. And so what is the key in all three cases? The key in all three cases, we can clearly see, and St. [[Paul]] will fill you in very clearly if you don't notice this yourself, is faithfulness.
+
+The way Adam would have received salvation, the way he would have been conformed uh, to, to the likeness of perfect man, the way he would have become like [[God]]—and those are the same thing, even though it's mysterious as to how—the way he would have done that was by being faithful in keeping the three commandments he was given, by faithfully following the way of life that [[God]] had set before him: to do these things and not do that thing.
+
+Noah gets told about the flood, has prophesied the world's going to be saved through him, but what does he have to do to receive that?
+
+**[[Fr. Andrew]]:** [Listen from 41:35:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=41:35:24)
+Build that ark.
+
+**[[Fr. Stephen]]:** [Listen from 41:36:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=41:36:24)
+He spends a hundred years building a boat.
+
+**[[Fr. Andrew]]:** [Listen from 41:39:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=41:39:24)
+I mean, probably way over budget too.
+
+**[[Fr. Stephen]]:** [Listen from 41:42:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=41:42:24)
+Yes. Uh, so not to not to harp too much on our Calvinist friends, we can clearly see that salvation in the case of Adam and Noah is not monergistic in either case.
+
+**[[Fr. Andrew]]:** [Listen from 41:59:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=41:59:24)
+Right, they have to do a thing.
+
+**[[Fr. Stephen]]:** [Listen from 42:01:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=42:01:24)
+They have to do a thing. Yeah. [[God]] doesn't build the boat for him. He closes the door, but he doesn't build the boat for him. And so then [[Abraham]], how does he receive salvation? Faithfulness. He doesn't just sit in Ur and say, "Yes, [[God]], I believe you that I will have many children and uh, they will all live in that land and they will become like the stars of heaven. I'm totally on board."
+
+**[[Fr. Andrew]]:** [Listen from 42:26:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=42:26:24)
+Right. And [[God]] credits it to him for righteousness. No.
+
+**[[Fr. Stephen]]:** [Listen from 42:31:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=42:31:24)
+Now I've got this game of the royal game of Ur to get back to. Um... You can play it online now, you know.
+
+Yeah. So that's what I assume you're doing through most of these episodes. You're just, you know, you hear me going "wa wa wa wa wa wa wa" and you're just, royal game of Ur. Oh, it's time for a... Yeah. Um... and then I... yeah, then I read off a Bible quote and there's a long pause and then you come in and read it because...
+
+**[[Fr. Andrew]]:** [Listen from 43:02:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=43:02:24)
+Oh, yes, yes, quick, pull up the script, yes, be online.
+
+**[[Fr. Stephen]]:** [Listen from 43:05:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=43:05:24)
+So [[Abraham]] stays the same thing, right? He, he does what [[God]] tells him to do, right? Now, someone out there may object. Someone from any number of backgrounds may object and say, "Hold on a second, St. [[Paul]] said [[Abraham]] believed and it was credited to him as righteousness."
+
+**[[Fr. Andrew]]:** [Listen from 43:29:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=43:29:24)
+Yeah. Imputation.
+
+**[[Fr. Stephen]]:** [Listen from 43:33:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=43:33:24)
+you know, even though he did actually go, like he, he uh... He didn't actually have to. And that, yeah, and that [[God]] just, he believes and [[God]] just says, "Okay, you're righteous, you're perfect," or whatever, like, "you're, you're done, you're there," okay? But that's, that's reading a ton of things into the text. First of all, "believed" is the word that we're translating "faithfulness." So what St. [[Paul]] really says is, "[[Abraham]] was faithful and [[God]] credited him as righteous." And that "credited" is more like "reckoned."
+
+**[[Fr. Andrew]]:** [Listen from 44:09:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=44:09:24)
+Yeah, it's like he was faithful. "Oh, oh, yes, that's righteousness."
+
+**[[Fr. Stephen]]:** [Listen from 44:15:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=44:15:24)
+Yes. So what St. [[Paul]] is doing there is he's telling you the standard by which [[Abraham]] was reckoned to be righteous. Okay? So if I say to you that, you know, my friend Pete Vanderveen is tall, you're going to hear the Dutch last name and believe me, but if I say, right, he's really tall, you might say, unless if we're on an old late-night show, you'd be like, "How tall is he?" No. But, but you might say, "Well, what do you mean tall? Tall compared to who? Tall compared to what?" Because, you know, in certain countries, I don't want to get myself in too much trouble here, but a person in certain countries who's like 6'2" would be considered tall, maybe even really tall. In the Netherlands, 6'2" is like you're 13, right? Like someone in the Netherlands who's like 6'7" would be considered tall, really tall, right? Like you got to, you got to... because there's a higher average height.
+
+So you got to say, when you're using a comparative like that, you got to say "compared to what" or "by what standard?" So if you're going to say somebody's a righteous dude, you've got to have some kind of standard. It might be what the what the cool kids at the high school say, but in this case, we're told that the standard by which [[God]] reckons to be righteous is that he was faithful to what [[God]] called him to do, and not that he is the sausage king of Chicago. Yeah, that's all that that's saying. That's all that that's saying. There is no complex, there's no judicial language there. Yeah. I know you want there to be, some of you guys, right? Um, by the way, if you, if you want to take quote-unquote justification as forensic language that he's being declared right, he's declared righteous, right? He's to be perfectly righteous, then that happens to him twice, because it happens in [[Genesis]] 15 and again in chapter 22. And in both cases, when he does something, but uh... so don't, don't read too much into that. That's the standard. But as we said, that's the standard for everybody we've seen so far in [[Genesis]]. That's the standard for Adam, that's the standard for Noah, that's the standard for [[Abraham]]. Are they faithful in what [[God]] calls them to do, in the life, the way of life that he puts before them? Are they faithful to it or not? If they are, they make progress despite the problems of sin and death and the devil, toward being conformed to the likeness of [[God]], to the, to the perfect man, and if they are faithless, then they make the opposite of progress in that regard.
+
+**[[Fr. Andrew]]:** [Listen from 47:27:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=47:27:24)
+All right. Well, we're going to go ahead and take our first break, and we'll be right back and get your calls here on this episode of the Lord of Spirits podcast.
+
+**Outro:** [Listen from 47:35:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=47:35:24)
+> [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young will be back in a moment to take your calls on the next part of The Lord of Spirits. Give them a call at (855) 237-2346. That's (855) AF-RADIO.
+
+**Ad:** [Listen from 47:57:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=47:57:24)
+> Ancient Near Eastern texts such as the [[Baal]] Cycle portray the pagan god [[Baal]] as a rebel, the hero of a revolution, worshiped and glorified for his long string of victories. In *The [[Baal]] Book: A Biography of the Devil*, [[Father Stephen]] De Young shows that the Hebrew scriptures consciously turn the [[Baal]] story on its head, depicting him as a failed and defeated rebel who nonetheless tries to steal the glory that belongs to Almighty [[God]]. From these scriptures, the figure of the devil emerged within Jewish and Christian tradition. [[Father Stephen]] works through the Old and New Testament passages that refer to various [[Baal]] stories and he surveys [[Baal]] worship through followers' beliefs, religious practices, and liturgical life to show that the figures of [[Baal]] and the devil, the prince of demons, are one and the same. You can find *The [[Baal]] Book* at store.ancientfaith.com. That's store.ancientfaith.com.
+
+**Intro:** [Listen from 48:54:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=48:54:24)
+> We're back now with The Lord of Spirits with [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young. If you have a question, call now at (855) 237-2346. That's (855) AF-RADIO.
+
+**[[Fr. Andrew]]:** [Listen from 49:10:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=49:10:24)
+Hey, welcome back everybody. How you like that ad there, father? We, we got a voiceover saying, "The [[Baal]] Book," rather than...
+
+**[[Fr. Stephen]]:** [Listen from 49:17:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=49:17:24)
+Yeah. So, yeah, and and no disrespect to the the speaker of the previous commercial, that... No, no. I do like the [[Baal]] pronunciation better. I do wonder why you recorded this one in a discotheque in Brussels, but other than that...
+
+**[[Fr. Andrew]]:** [Listen from 49:34:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=49:34:24)
+I wonder why you have so much knowledge of discotheques in Brussels. But other than that... I mean, doesn't everybody? I bet some people in the YouTube chat have knowledge of discotheques in Brussels. Um, so we actually have a bunch of callers and um, I'm feeling a little wild tonight. They're not... I don't maybe one of them is somewhat on topic, but I'm just going to go ahead and let these, let three people through. Are you cool with that, father?
+
+**[[Fr. Stephen]]:** [Listen from 50:02:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:02:24)
+Yes. Let us all do what is right in our own eyes.
+
+**[[Fr. Andrew]]:** [Listen from 50:06:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:06:24)
+That's right. That's right. So, okay, well our first caller is [[John]] from Missouri. [[John]], welcome to the Lord of Spirits podcast.
+
+**[[John]] from Missouri:** [Listen from 50:15:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:15:24)
+Hey fathers, uh, long time caller, first time listener.
+
+**[[Fr. Andrew]]:** [Listen from 50:19:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:19:24)
+Yeah, yeah, yeah. We've heard that one before, buddy.
+
+**[[Fr. Stephen]]:** [Listen from 50:24:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:24:24)
+It's possibly true. He could be... I mean, he could be somebody who heard about me on the internet and was just enraged and was like, "I need to call in and talk to that guy," even though I never listened to a show. "When is it on?"
+
+**[[Fr. Andrew]]:** [Listen from 50:45:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:45:24)
+Is that the case, [[John]] from Missouri?
+
+**[[John]] from Missouri:** [Listen from 50:48:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:48:24)
+Perhaps.
+
+**[[Fr. Andrew]]:** [Listen from 50:50:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:50:24)
+Oh, okay. It's going to be a little cagey. What's on your mind out there?
+
+**[[John]] from Missouri:** [Listen from 50:55:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=50:55:24)
+Um, so this is going on the [[dulia]] and [[latria]] discussion. So, like I agree with you guys, like, you know, worship involves a sacrifice, but um, [[John]] is rebuked by the angel in the book of [[Revelation]] for what is, like it says it's worship. I don't know if there's like a translation kind of thing going on. And does that mean there's like a veneration issue that's or a veneration that's only for [[God]] alone? Uh, could you elaborate on that?
+
+**[[Fr. Andrew]]:** [Listen from 51:24:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=51:24:24)
+Yes. I think we covered this in our [[Angel of the Lord]] episode, which now is years ago. I think maybe was that the end of 2021 maybe? I think so.
+
+**[[Fr. Stephen]]:** [Listen from 51:35:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=51:35:24)
+Time is a flat circle, I don't know.
+
+**[[Fr. Andrew]]:** [Listen from 51:37:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=51:37:24)
+I know, I know. Uh, yeah. So, yeah, as I recall, I don't have the Greek text in front of me, but as I recall what it says is that he, he bowed down in front of him. Like that, that's what it literally, I think it uses "proskynesis," actually. Um, so he's clearly not pulling out, you know, animals or bread or wine or anything like that to offer a sacrifice. So then the question would be, why does the angel stop him from doing that? And um, as I recall, it's it's because it's to let [[John]] know that this is not the [[Angel of the Lord]]. In other words, this is not the Son of [[God]], even though venerating an angel in and of itself is not a bad thing. But that [[John]] might have thought, "Oh, I'm in the presence of [[Christ]] here," because, I mean, here's the thing. If bowing down in front of someone should only be given to [[God]], then what about all the other times in the scriptures when other people bow down and no one calls them idolaters? You know? There's a lot of prostration going on. [[David]] and Jonathan do that with each other. No one calls them idolaters. Um, there's a lot of stuff where people fall down in front of other people and bow down in front of them. Right. So clearly this angel is not saying to [[John]], "No, no, you must only prostrate in front of [[God]]," because that's just not been a thing up to that point. So the only context that makes sense is that [[John]] was mistaking him for the [[Angel of the Lord]], and he was letting him know, "No, no, just get up. Come on, we got somewhere to go." Um, he's doing the whole psychopomp thing as he's taking him on, on a visionary tour. Am I remembering correctly, Father? Is that is that what we basically said in that episode?
+
+**[[Fr. Stephen]]:** [Listen from 53:26:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=53:26:24)
+Yeah, I mean, I mean, roughly. Yeah, because because St. [[John]] sees [[Christ]] in several different forms or images in his vision, right? He sees [[Christ]] with bronze skin and white hair and right? And he sees uh, the Lamb, right? So he's seeing angels, he's seeing [[Christ]] in different imagery in his vision. And so it's it's about clarifying who he is. Larger point though, once again, is we, and by we here I mean like the Orthodox church historically, are not making a claim that the words "worship" and "veneration" are or any particular Greek words or Latin words or Syriac words translated in the same way are used as technical terms everywhere in Scripture and everywhere in the Fathers.
+
+**[[Fr. Andrew]]:** [Listen from 54:20:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=54:20:24)
+Right. Right. Right, the point is the actions that you're taking, not the words that are used.
+
+**[[Fr. Stephen]]:** [Listen from 54:27:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=54:27:24)
+Those words are just labels to put on the distinction. So we could say there is A that you offer to [[God]] alone, which is primarily sacrifice. There is B which you offer to everyone as it is due to them. Right, including [[God]], but also including glorified humans, angels, other living humans, your parents, etc, etc. We could just call them A and B, right, to make that distinction. So yeah, don't... there's... I I think a lot of people seem to think that we're we're saying, "No, this is like definitional to this word in English or in Greek," and so then, you know, they come to the Sunday of the Holy Cross and they hear, "Before thy cross, we bow down in worship," and they're like, "Aha, caught you! You're doing an idolatry." Right? Um... and right, that we're not claiming these are technical terms. These are fluid terms in English, they're fluid terms in Greek. We're just using them as labels because you have to do something, even if it's A and B or one and two, right? You have to, when you make a distinction, you have to identify somehow the two things you're distinguishing.
+
+**[[Fr. Andrew]]:** [Listen from 55:48:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=55:48:24)
+Yeah. So, does that clear things up for you, [[John]] of Missouri, or do you find us hopelessly idolatrous?
+
+**[[John]] from Missouri:** [Listen from 55:57:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=55:57:24)
+I mean, I hope you're not idolatrous because I do a lot of venerating and that's like, I don't really want to go to hell, so that'd be, that'd be a bummer.
+
+**[[Fr. Andrew]]:** [Listen from 56:06:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=56:06:24)
+That would be a bummer. I feel like, I feel like we should have someone clip what you just said, [[John]], and just, just play that every so often. "I don't want to go to hell, that would be a bummer." That's the best thing I've heard all day.
+
+**[[Fr. Stephen]]:** [Listen from 56:21:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=56:21:24)
+Perhaps the ultimate bummer.
+
+**[[Fr. Andrew]]:** [Listen from 56:23:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=56:23:24)
+Yes, the last of all bummers. What could be worse? So, all right, well thank you very much for calling, [[John]]. [[God]] bless you.
+
+**[[John]] from Missouri:** [Listen from 56:32:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=56:32:24)
+All right. Thank you very much.
+
+**[[Fr. Andrew]]:** [Listen from 56:34:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=56:34:24)
+Yep, yep, yep. Okay, our next caller...
+
+**[[Fr. Stephen]]:** [Listen from 56:36:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=56:36:24)
+think of it, think of it this way, dear listener. You got a ham and cheese sandwich, you got a hot dog. Those are two different things. You can come and say, "Is not a hot dog also kind of a sandwich?" It's meat put in between bread, right? And it would be like, "Okay, yes, but we both know that the hot dog and the ham and cheese sandwich are two different things. So just let me make my distinction."
+
+**[[Fr. Andrew]]:** [Listen from 57:01:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=57:01:24)
+Right, right, exactly. I mean part of the problem, of course, is that, and people don't seem to, feel this deep down, but like the English word "worship" for most of its history has meant "venerate," which is why, I think I mentioned this before on the show, that, you know, even today, um, you know, judges in the UK and Princess Leia in Star Wars are referred to as "your worship." Um, and you know, in the Anglican wedding service, the couple each say to each other, "With my body, I thee worship." Um, so they're definitely not offering sacrifices to each other or treating the other one like a god. They're, they're saying, "I, I venerate you." So, yeah, the point is what is the action, what is the action actually?
+
+**[[Fr. Stephen]]:** [Listen from 57:53:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=57:53:24)
+Other than yourself, I don't think anyone feels English etymology deep in their bones.
+
+**[[Fr. Andrew]]:** [Listen from 57:59:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=57:59:24)
+I really am going home now. Yeah, I'm just going home. No, are you going to go home and pray like [[Elijah]] that the Lord just takes your life because you're the only one left who appreciates... Everyone else has bowed the knee to recency. To modern usage. That's right. That's right. That's right. Um, okay, so our next caller is Joseph from, uh, Nevada. So welcome, Joseph. Welcome to the Lord of Spirits podcast. Do we have you, Joseph from Nevada?
+
+**Joseph from Nevada:** [Listen from 58:37:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=58:37:24)
+Oh, I'm sorry. Uh, Father's blessed. Uh, I was on mute. Um, just wanted to, uh, to to raise this objection from playing devil's advocate. The Protestants are going to say, "Well, all this stuff about venerating and worship and all this stuff, uh, but not for salvation. They're just going to say, "But not for salvation." Go to church, read the Bible, but not for salvation.
+
+**[[Fr. Andrew]]:** [Listen from 59:00:24](https://media.ancientfaith.com/lordofspirits/los_2023-08-24.mp3#t=59:00:24)
+For what then? I mean, that's the thing. You know, honestly, that question is part of why I left [[Protestantism]]. Really. Like, I had a sense of, like the kind of... now, I mean, there's a lot of different kinds of [[Protestantism]]. Don't at me. I literally have a 400-page book basically saying that. Uh, but, but in the version of [[Protestantism]] that I was in, we believed in "once saved, always saved," right? So I had done the thing. I had had the moment and I had gotten saved. And so, since I had that, then one of the big questions that eventually kind of occurred to me was, "Why am I doing all this other stuff? Why is all this other stuff important?" It feels important, it seems important, I want it to be important, but what is it actually for?
+
+And the best kinds of answers that I could get were something like, "Well, it contributes to your growth," which, okay, but like, "Hey, I've got heaven in the bag, so, you know, what does that even mean, buddy? You know, more crowns in the hereafter? How many crowns can one man cast down anyway?" Um, so yeah, I mean it was be... it was because of a sense that that doctrinally speaking, at least within my, you know, my frame, that all those other things weren't really actually important, that they didn't critically matter. So that's what I would, that's what I would say to that. And why would, you know, why would [[Christ]], why would all the apostles, why would the prophets constantly be urging people to faithfulness if it didn't really matter?
+
+**Joseph from Nevada:** [Listen from 01:00:39:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:00:39:24)
+Absolutely. I mean, I have so much more of a sense of purpose now. Um, I mean, like there's actually a purpose for all the things that we're doing. And if if if if salvation is the purpose, then that's that's a full Christian life, not just sanctification, like a symbolic sanctification. Like the sanctification deal, the growth thing, then just becomes memorial and and and nominalistic.
+
+**[[Fr. Andrew]]:** [Listen from 01:01:06:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:01:06:24)
+Yeah, yeah. So my call board says that you had another question about the one that [[Father Stephen]] calls "[[Enoch]]."
+
+**Joseph from Nevada:** [Listen from 01:01:16:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:01:16:24)
+Yes, just a passing one. Yes. Um, they they're going to use that as a type and shadow of the rapture, and I actually had kind of an eye-opening moment as I was waiting. Uh, I'm a former Messianic... I'm not ethnically Jewish, but I was kind of raised around Messianic Jews all my life in in Israel and all this type of stuff. So I kind of had the revelation that this whole dispensationalist rapture deal is just so that they could, uh, create another covenant and do the Judaizing thing on this earth and replace the church, which is that function for salvation. Uh, I kind of had that eye-opening... I I hope I'm articulating it right, but like yeah. Um, but the question is how to respond to that. That that's a type of rapture.
+
+**[[Fr. Andrew]]:** [Listen from 01:02:00:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:02:00:24)
+That [[Enoch]] being, I'm sorry, [[Enoch]]...
+
+**[[Fr. Stephen]]:** [Listen from 01:02:03:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:02:03:24)
+I can't do it.
+
+**[[Fr. Andrew]]:** [Listen from 01:02:06:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:02:06:24)
+Go watch some Land of the Lost, you'll get into the habit. [[Enoch]] being, you know... It's a rapture preview. Yes, pretty much. What do you think of that, [[Father Stephen]]?
+
+**[[Fr. Stephen]]:** [Listen from 01:02:24:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:02:24:24)
+Well, I did make that joke. But yeah, the the... In terms of the dispensationalists, as you say, they do seem, you know, just dead set on helping the Antichrist build the third temple. Uh... What is that all about? Especially right now. Really, you read, you read St. [[John]] of Damascus's precise exposition of the Orthodox faith where he talks about the uh, the Antichrist rebuilding the Jewish temple and being worshipped in it, and it'll give you the heebie-jeebies about our dispensationalist friends. Like... Guys? Um... Yeah. And that it is a weird... I don't think it's fair to Judaizers to call them, to call them Judaizers. I mean, that's sad that I have more sympathy for Judaizers than for... them. Um, Judaizers are responsible for fewer deaths. Um... Because they, they don't really... They basically fetishize Jewish people. Yeah. Like... Which Jewish people, by the way, find really creepy. Yeah, I mean... Like... What is that about? Is it, it's it's as bad as what I would compare it to is uh, the universalist goofballs who try to do the purgatorial hell thing, where they're like, "Oh no, like if someone doesn't love [[God]] and doesn't want to be, want to be with him, then he just like puts them in this torture chamber until they do love him." And I'm like, "Oh yeah, that's way better. Now [[God]] is Glenn Close from fatal attraction. Like, what? Like... It's not better, dude. Like... That's right. Um... Yeah. So I, I don't, I don't like it. So, uh... Yeah, and that's just... People, can we stop and think once in a while? Uh, like stop and think about it, okay? Is [[God]] not aware that his love is like torturing these people eternally? Right? If he is aware and he loves them, why is he torturing them eternally? Like, you're basically turning [[God]] into Lenny from Of Mice and Men. Wow, yeah, yeah, yeah, yeah, yeah. Right? Like... This is, I mean it's, it's, it's as bad as, well what I would compare it to is, uh, the universalist goofballs who try to do the purgatorial hell thing where they're like, "Oh no, like if someone doesn't love [[God]] and doesn't want to be, want to be with him, then he just like puts them in this torture chamber until they do love him." And I'm like, "Oh yeah, that's way better. Now [[God]] is Glenn Close from fatal attraction. Like, what? Like... It's not better, dude. Like..." That's right. Um... Yeah. So there's that. Um, this whole idea of place, yes, [[Father Andrew]] said, like, first of all, every father, every father is clear to the point of if you denied it, you're not a Christian, about the bodily resurrection.
+
+**[[Fr. Andrew]]:** [Listen from 01:39:24:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:39:24:24)
+Yes.
+
+**[[Fr. Stephen]]:** [Listen from 01:39:25:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:39:25:24)
+Okay? Uh, even our Roman Catholic friends with so much emphasis on the Beatific Vision and so much cognitive dissonance about how that works with the bodily resurrection, affirm the bodily resurrection, okay? Despite the potential issues, okay? You, you can't be a Christian and deny the bodily resurrection. It doesn't work. Um, so we're not talking about heaven or hell and them being one place or two places. We're talking about everybody's going to be resurrected. We're talking about the life of the world to come, the new heavens and the new earth, the transfigured, renewed heavens and earth, and our transfigured, resurrected bodies to which, as we've been talking about on the show recently, categories of space and time will not apply in the same way.
+
+**[[Fr. Andrew]]:** [Listen from 01:40:15:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:40:15:24)
+Yeah, I mean, they're still material, they're still, but... but yeah.
+
+**[[Fr. Stephen]]:** [Listen from 01:40:22:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:40:22:24)
+And so we get, we get, when we talk, hear about the state of eternal condemnation, we get metaphors in scripture and in the fathers that don't work together. If you have a fire that's eternally burning, how can it also be complete darkness?
+
+**[[Fr. Andrew]]:** [Listen from 01:40:41:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:40:41:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 01:40:43:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:40:43:24)
+Right? And we also get madness and the diminution of the human person and the demonization of the human, right? Like, there are all these things. And there's being shut outside, right? As as [[Father Andrew]] just quoted, [[Christ]] says, "Depart from me." How do you depart from someone who's omnipresent?
+
+**[[Fr. Andrew]]:** [Listen from 01:41:01:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:41:01:24)
+Right.
+
+**[[Fr. Stephen]]:** [Listen from 01:41:02:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:41:02:24)
+Like, you, you literally can't take it literally. It's impossible to take it literally. Um, so we're told enough to know this is bad, inconceivably bad. Like, literally, we can't conceive of how horrible this fate is, right? And we're not able to understand what that will be like because we, as we've said on the show recently, right, in this life, in our mortal flesh, right, constrained as we are by categories of time and space, we can't imagine what it's like to not be so, right? And so we can only get analogies and imagery and this kind of thing to communicate to us. But those images we're given communicate very evocatively that this is something that we want to avoid at all costs. It is indeed a major bummer. That's what we call a callback in the biz. Um, right? So... Yeah, so that, that's what that's about. And so, uh... Yeah, the the the, I I think a lot of the discussion you're reading is... people need to sit and think about it a little more. It's it's it's you're take... people are taking images and ideas very literally and running with them in in odd directions. And the directions they're running with those images actually kind of evade the point of the image in the first place. Right? Like, the purpose of the imagery of the river of fire in [[Daniel]] and the lake of fire in St. [[Matthew]]'s Gospel and [[Revelation]] is not to soften our idea of [[God]]'s judgment. So if you run with that imagery in a way that is deliberately intended to try to soften someone's view of [[God]]'s judgment, right, you're like deliberately it seems, breaking something, right? And and misleading people. So we should stop doing it. That said, I have held from the Usenet days that the White Lodge and the Black Lodge are the same place and that's why there's checkerboard flooring.
+
+**[[Fr. Andrew]]:** [Listen from 01:43:17:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:43:17:24)
+Oh, you mentioned checkerboard flooring. Now all the... That's what I have to say about that. The Freemason freakouts will be honest. All right, um...
+
+**[[John]] from Missouri:** [Listen from 01:43:31:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:43:31:24)
+Well, no, I mean I guess I have like a couple short questions just as feedback, because obviously I have um, a lot more that could be said on it, right? That that's not worth um, a free phone call. Um, and we don't have two more hours to push this into the first five-hour episode talking about Twin Peaks and how it relates to...
+
+**[[Fr. Andrew]]:** [Listen from 01:43:50:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:43:50:24)
+No, we don't. [[Atonement]]. No, we do not. I would love to. That could be a separate podcast. I think [[Father Stephen]] should do his own independent Twin Peaks commentary podcast.
+
+**[[Fr. Stephen]]:** [Listen from 01:44:02:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:02:24)
+Well, we should get paid to host it.
+
+**[[Fr. Andrew]]:** [Listen from 01:44:04:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:04:24)
+No, we will not. But that's why I said "independent." With a little bit of professional wrestling thrown in as well.
+
+**[[Fr. Stephen]]:** [Listen from 01:44:10:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:10:24)
+Hey, I can tie it in like you did with Tolkien.
+
+**[[John]] from Missouri:** [Listen from 01:44:13:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:13:24)
+So [[Father Stephen]], so do you think this would be worth a thesis in some kind of way of working out the details on the scriptural and patristic tradition and extending it possibly into a more holistic direction?
+
+**[[Fr. Stephen]]:** [Listen from 01:44:34:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:34:24)
+Yeah, I think I think uh and even even uh framing it as a response to River of Fire might be a good way to frame such a thesis.
+
+**[[Fr. Andrew]]:** [Listen from 01:44:43:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:43:24)
+Yeah.
+
+**[[John]] from Missouri:** [Listen from 01:44:45:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:45:24)
+I was thinking of uh calling it "Hell Isn't Good."
+
+**[[Fr. Andrew]]:** [Listen from 01:44:50:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:50:24)
+Yeah, yeah, yeah.
+
+**[[Fr. Stephen]]:** [Listen from 01:44:54:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:54:24)
+Why you shouldn't love hell. Why [[God]] doesn't love hell and neither should you.
+
+**[[Fr. Andrew]]:** [Listen from 01:44:58:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:44:58:24)
+Heaven isn't going to hurt. Although you should definitely check out [[Father Stephen]]'s article, "Hell, Unfortunately, Yes," on the Orthodoxy and Heterodoxy weblog.
+
+**[[John]] from Missouri:** [Listen from 01:45:08:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:45:08:24)
+Oh, I'll definitely have to check that out.
+
+**[[Fr. Andrew]]:** [Listen from 01:45:10:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:45:10:24)
+Yeah. Yes.
+
+**[[Fr. Stephen]]:** [Listen from 01:45:12:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:45:12:24)
+Also, heaven isn't too far away. Keep that in mind.
+
+**[[Fr. Andrew]]:** [Listen from 01:45:16:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:45:16:24)
+Baby, do you know what that's worth? Um... Sorry, go ahead, [[John]]. Go ahead. Go ahead.
+
+**[[John]] from Missouri:** [Listen from 01:45:23:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:45:23:24)
+No, no. So [[Father Stephen]], on the brief, because you mentioned that you disagreed with Jay Dyer on Twin Peaks, and I think I might as well. Um, what's the gist of the meaning of the show and does it change if you watch, uh, not just season one and two, but also Fire Walk With Me, and then does it change if you watch season three?
+
+**[[Fr. Stephen]]:** [Listen from 01:45:48:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:45:48:24)
+I, I don't think it changes. Uh... I think you get sort of a purified, refined form of it in the later stuff. Um... And I think there's a whole bunch of themes. So too much, too much to talk about right now. Uh...
+
+**[[Fr. Andrew]]:** [Listen from 01:46:07:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:07:24)
+Thank you for entertaining me, fathers. You blessed.
+
+**[[Fr. Stephen]]:** [Listen from 01:46:09:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:09:24)
+I'm not, I'm not sure how much I disagree with Jay because Jay is evasive and running from debate on on the topic. So... Yeah, I'll just throw that in there at the end.
+
+**[[Fr. Andrew]]:** [Listen from 01:46:19:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:19:24)
+All right, all right. Well, thank you for calling, [[John]]. Uh, we'll take one more call. We have Jim, Jim... Jim, calling from St. Augustine, Florida. I always have to remind myself not to say St. Augustine. I know it's Augustine down there. I've been there. So, Jim, welcome to the Lord of Spirits podcast.
+
+**Jim from Florida:** [Listen from 01:46:39:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:39:24)
+Do you often turn toward a camera no one else can see and make facial expressions?
+
+**[[Fr. Andrew]]:** [Listen from 01:46:44:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:44:24)
+Um, I do not.
+
+**[[Fr. Stephen]]:** [Listen from 01:46:47:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:47:24)
+Okay, you're not that Jim then. That's fine.
+
+**[[Fr. Andrew]]:** [Listen from 01:46:50:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:50:24)
+Different Jim. Um, okay. I apologize, I don't, I don't get the reference, but...
+
+**[[Fr. Andrew]]:** [Listen from 01:46:57:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:46:57:24)
+It's okay. Just join the club. You and I will be over here together. Um... So what's on your mind, Jim?
+
+**Jim from Florida:** [Listen from 01:47:06:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:47:06:24)
+So my kids, um, love singing in the rain. And the first two times that they watched it, I thought that Donald O'Connor was Danny Kaye. Um, I didn't know if Danny Kaye does a rendition of [[Moses]] supposes his toeses are roses or did [[Father Stephen]] have the same... take that I did on singing in the rain.
+
+**[[Fr. Andrew]]:** [Listen from 01:47:37:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:47:37:24)
+All right.
+
+**[[Fr. Stephen]]:** [Listen from 01:47:38:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:47:38:24)
+No, he, he did it also. He did it. That's an old bit. Okay. That's an old vaudeville bit.
+
+**[[Fr. Andrew]]:** [Listen from 01:47:45:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:47:45:24)
+Yeah, a lot of covers back in those days. Actually, you can find it on YouTube. You can get Danny Kaye doing this particular tongue twister in 1951 on YouTube.
+
+**Jim from Florida:** [Listen from 01:47:57:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:47:57:24)
+Oh, so it pre-dated singing in the rain.
+
+**[[Fr. Stephen]]:** [Listen from 01:48:01:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:48:01:24)
+He was the OG. Well, no, it was before him. It's like Niagara Falls. Slowly I turned, step by step, inch by inch. Anyway.
+
+**[[Fr. Andrew]]:** [Listen from 01:48:11:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:48:11:24)
+All right. Enough vaudeville. Well, that was it. That was a nice easy question. Thank you very much, Jim. Lovely town you have there. You have... Everybody should know, by the way, St. Augustine has an actual like late Renaissance era fort. I think it's the only one in North America. Um, definitely a nice old fort, um, built by the Spanish. So definitely worth checking out. Uh, all right. Third half of this episode. Um, head on into the New Testament, yeah?
+
+**[[Fr. Stephen]]:** [Listen from 01:48:45:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:48:45:24)
+I suppose. I like that Danny Kaye is now on topic on this show.
+
+**[[Fr. Andrew]]:** [Listen from 01:48:51:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:48:51:24)
+I mean, who doesn't like Danny Kaye?
+
+**[[Fr. Stephen]]:** [Listen from 01:48:53:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:48:53:24)
+Just at all times, right? Like...
+
+**[[Fr. Andrew]]:** [Listen from 01:48:54:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:48:54:24)
+I loved him in White Christmas. He was just a lot of fun in, yeah. Anyway, completely non-controversial movie. Snow, snow, snow. Okay, that's right. So, yes. So now, the New Testament. Um... so we find, as you might have seen coming, uh, long-time listeners, we find the fulfillment of these things we've been talking about on our way from [[Genesis]] through the Old Testament in uh, the New Testament. And so, for example, um, not just in terms of the actual, literal setting out of this idea by St. [[Paul]] in, uh, [[Romans]] 5, but generally in the New Testament we see [[Christ]] presented as the second Adam. Uh, in that [[Christ]] is the perfect image of [[God]]. Right? He images the Father perfectly. This is, I mean, this is all over the New Testament, but think in say St. [[John]]'s Gospel, right? The words he says are the Father's words. The things he does are the Father's deeds. Right?
+
+**[[Fr. Andrew]]:** [Listen from 01:50:17:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:50:17:24)
+Yeah, yeah, yeah. I must be about my Father's business.
+
+**[[Fr. Stephen]]:** [Listen from 01:50:20:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:50:20:24)
+"If you have seen me, you have seen the Father." Right? Uh, and then of course St. [[Paul]] and [[Hebrews]], right? uh, "He's the express image," right, of his [[hypostasis]], right? Um, of the Father. And not only that, not only is he the perfect imager of [[God]], but through him the world, the creation, uh, is finding and will find its ultimate transformation, right? Into into paradise, right? So he succeeds, right, where uh, Adam failed. But that's the telos, right? But if we go back to the beginning, and again, you I'm sure saw this coming, dear listener. Uh, the mystery which was hidden from everlasting and unknown of the angels, as it were, um, is revealed in [[Christ]]. Why is it that humanity and only humanity is able to be formed in this way into the likeness of [[God]]? Right? Uh, how is that? How is the measure and the form of the perfect man also the perfect likeness of [[God]]? Well, it is because of the perfect union of [[God]] and man, of the divine nature and our human nature in the person of [[Jesus Christ]]. Right? And so the incarnation is the basis of [[Theosis]] and was the basis of [[Theosis]] for Adam. Right?
+
+This is what's being gotten at by, you will occasionally hear people say that I may have even phrased it this way, uh, in the past, in fact I probably have at least at some point, that the church fathers will say that even if Adam had not fallen, had not been expelled from paradise, [[Christ]] would have been incarnate.
+
+**[[Fr. Andrew]]:** [Listen from 01:52:32:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:52:32:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 01:52:33:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:52:33:24)
+And I mean that conveys the idea but is not quite the idea in the sense that what they're really getting at is this, is that the basis of [[Theosis]] being the purpose for which Adam was created and the commandment he was given, as St. Basil the Great said, was the incarnation. So the incarnation is presupposed by the creation of Adam, is what they're getting at. Uh, that it is not an instance of fall or expulsion from paradise, therefore incarnation, right? Because his creation presupposed it.
+
+We also see [[Christ]] presented in the New Testament as the new Israel. Right? We talked about how Israel corporately had this kind of recapitulation or was another corporate instantiation of the pattern that we saw with Adam, right? Being created, brought into the land, right, etc. Right? Um, [[Christ]] actually recapitulates and accomplishes the goal that Israel was created for and failed at, right? Because as [[Christ]] affirms, salvation is from the Jews. Right? The idea was not that Israel was the chosen people, they were quote-unquote saved, all the other nations were damned or just not saved or whatever. Uh, it is that [[God]] was saving the world through Israel, the way he saved the world through Noah. Right? He was saving the world through Israel. Right? And the way that was to happen was by Israel keeping [[Torah]], by being different than all the other nations of the world, right? They would draw the other nations of the world to come and worship uh, the [[God]] of Israel. They would draw them to return to [[God]], having been scattered at Babel, draw them to return to the true [[God]] who had created them, right? And Israel fails at that because Israel is unfaithful. [[Christ]], right, as faithful, accomplishes this and ends up drawing all the nations, right, back to their creator. So [[Christ]] is the, the uh, the basis, right, for [[Theosis]], for salvation from Adam on, right, for the core of salvation. Uh, [[Christ]] is the one who overcomes the separation between Jew and Gentile, between Israel and the nations, right? Who overcomes the the scattering of the nations, right?
+
+[[Christ]] also deals with the obstacles that come about because of of uh, Adam's sin. [[Christ]] deals with sin. How? By removing it and by purifying us, the world, right, from it. Think flood again, right, that we talked about in the first half. Right? Removes sin, purifies from sin. So with sin removed, right, with [[Christ]] having dealt with sin, so we no longer need the repetitive management because [[Christ]] has dealt with it, that means death has served its purpose. Death having served its purpose, [[Christ]] takes that power back from the devil, as [[Hebrews]] says. The one who had held the power of death was the devil, [[Christ]] defeats him. And [[Christ]] therefore becomes the judge of the living and the dead. No one else has any claim on humanity. Right? And finally, [[Christ]] defeats the powers. By what? By disarming them. This is the language St. [[Paul]] uses. Right? He disarms the powers and principalities. What is... how does he disarm them? Their weapon was death. Their weapon was temptation to sin which leads to death. Having dealt with those, they are now disarmed. They are now unable, right, to uh, to afflict uh, the saints.
+
+So then, [[Christ]] having done all of these things, [[Christ]] having done all of these things, what is, what is salvation? What is salvation for us now, for everyone now? Right? [[Salvation]] is, right, those obstacles being removed, being freed from sin and death by what [[Christ]] has done, and then that being accomplished, salvation is what it always was from the creation of Adam. It's [[Theosis]], it's becoming like [[God]]. And that's based not in what [[Christ]] has done but in who [[Christ]] is.
+
+**[[Fr. Andrew]]:** [Listen from 01:57:52:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:57:52:24)
+Mmm.
+
+**[[Fr. Stephen]]:** [Listen from 01:57:54:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:57:54:24)
+Right, who the person of [[Christ]] is. That's what salvation is. How is it received? Right? How do any of us receive it? Right? Well, we receive it through the fulfillment of the [[Torah]]. As we've talked about on the show before, the church is Israel, it is the restored Israel. Right? And so we still have the [[Torah]]. Still in your Bible, it's right there at the beginning, right? Uh, but now, right, it is received and is practiced in a fulfilled way. Right? So for example, the sin that was managed before is now done away with when we receive the forgiveness of sins, the purification from sin, the cleansing from sin that comes from [[Christ]], which we receive first of all in baptism for the remission of sin, and then in ongoing forgiveness through confession, through repentance, through absolution. Right? And so the sacraments now are the fulfillment of the sacraments of the church, see our series, are the fulfillment of the sacraments of the [[Torah]]. If you go back and listen to those sacrament episodes, that's how every single one of them is structured.
+
+**[[Fr. Andrew]]:** [Listen from 01:59:15:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:59:15:24)
+Yeah. We start all based on the Old Testament. Yeah, right.
+
+**[[Fr. Stephen]]:** [Listen from 01:59:19:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:59:19:24)
+And show how it takes on a fulfilled form, right, in in the new. Right? And so in the same way that a way of life grounded in commandments, three of them, right, was was set before Adam, right, and he was called to become like [[God]] through faithfully following those commandments as a way of life, right, in the same way a way of life has been set before us. And it's actually summed up by three commandments. Love the Lord your [[God]] with all your heart, with all your soul, with all your mind, and with all your strength. Love your neighbor as yourself, and repent. Right? That summarizes the whole thing. Right? There's details, right? And there's a a whole detailed life of the church that like the other levels of the [[Torah]] facilitates us doing that. Right? Empowers us to do that, enables us to do that, right, with the life of the church.
+
+And so, how do we receive salvation? We receive salvation by faithfully following, right, that way of life that's been set before us. The person who's been forgiven, the person who's received the forgiveness of sins, the person who's had the terror of death taken away by [[Christ]], the person who has been set free from sin and from therefore from the demonic powers, that person stands in the same position as Adam did. Right? Meaning we are on a pathway that leads into infinity but toward [[Christ]] and becoming like him, the full measure of the perfect man, which is [[Jesus Christ]], and the likeness of [[God]], which is our Lord [[Jesus Christ]]. Right? And that way of life is characterized by the fruit of the Spirit. You may notice that those things which [[Christ]] called the weight, the heaviness, the core of the [[Torah]] were fruit of the Spirit, right? Because as we... Right. As St. [[Paul]] says in [[Romans]], right, the Spirit writes the [[Torah]] on our hearts. The Spirit empowers us to keep its righteous requirements. The Spirit empowers us uh, to follow [[Christ]], right? And that brings about our transformation into the likeness of [[Christ]], and that in turn transforms the world around us and allows us to become what humanity was uh, created to be.
+
+And so, this is actually kind of summed up here in closing in uh, [[Hebrews]] 6 verses 1 and 2.
+
+**[[Fr. Andrew]]:** [Listen from 02:02:28:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:02:28:24)
+Yeah, which reads this way: "Therefore, let us leave the elementary doctrine of [[Christ]] and go on to maturity, not laying again a foundation of repentance from dead works and of faith toward [[God]], and of instruction about washings, the laying on of hands, the resurrection of the dead, and eternal judgment."
+
+**[[Fr. Stephen]]:** [Listen from 02:02:48:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:02:48:24)
+Yeah. Notice those things that St. [[Paul]] calls "elementary doctrines," as this lower level, not the core, not the weightier part.
+
+**[[Fr. Andrew]]:** [Listen from 02:03:00:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:03:00:24)
+Yeah, this is the basics.
+
+**[[Fr. Stephen]]:** [Listen from 02:03:03:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:03:03:24)
+Yeah. are everything you will hear about in a lot of churches.
+
+**[[Fr. Andrew]]:** [Listen from 02:03:08:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:03:08:24)
+Hmm.
+
+**[[Fr. Stephen]]:** [Listen from 02:03:09:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:03:09:24)
+There is no beyond that. Right? Now, I'm talking about churches like buildings of, houses of worship, right? When you go there and attend there, that is all you will hear about. Right? And what you will find is, now I'm not saying there is no depth to any tradition other than the Orthodox tradition, I am not saying that. But what you'll find is every time one of those other traditions tries to go deeper, they're going to be groping around in the dark toward a concept of [[Theosis]].
+
+**[[Fr. Andrew]]:** [Listen from 02:03:39:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:03:39:24)
+Hmm.
+
+**[[Fr. Stephen]]:** [Listen from 02:03:41:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:03:41:24)
+Right? Whether it's it's called "deification"... Right? And even a lot of the way the Beatific Vision is talked about uh, in uh, Roman [[Catholicism]], right? When you start going deep, right? And when a lot of them start going deep, they start going to Eastern fathers, um, even ones who technically aren't saints in Roman [[Catholicism]]. Um... this is why you dig deep into the Reformed tradition, you start finding stuff about mystical union with [[Christ]]. Uh, when you start digging into the Lutheran tradition, especially more recently, like in the late 20th century, they just started using the term "[[Theosis]]." Um... right? Everywhere, that's what you find. Right? Because and that's not a coincidence. That's not just them going like, "I don't know, I got nothing. Did the Orthodox come up with anything?" Right? It's because uh, what we've been trying to lay out to you tonight, dear listener, is real. It's in the Bible, from literally, we started the first page of [[Genesis]]... Yeah. Right? And if we wanted to, we could quote and end up on the last page of [[Revelation]]. Yeah. Right? That that [[Theosis]], right, this idea of us becoming conformed to the likeness of the perfect man, who is the perfect likeness of [[God]], our Lord [[Jesus Christ]], that's it. That's what salvation is. It's the basis on which man was created, the purpose for which he was created. It's where we end up in the life of of uh, the world to come. It's the core and the center and the weighty part of the [[Torah]]. It's there all the way through.
+
+It gets entangled with and obscured by these obstacles of sin and death and the devil present themselves, right? But they're not the real issue. Right? They're not the real issue. They're not what salvation is really about. They're not what human life is really about. Right? Uh, they're these foreign invaders. Right? We get rid of them, we get healthy, we get rid of the the the infection, right? Now we're ready to get back to business.
+
+**[[Fr. Andrew]]:** [Listen from 02:06:29:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:06:29:24)
+Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 02:06:29:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:06:29:24)
+Now we're ready to get to work.
+
+**[[Fr. Andrew]]:** [Listen from 02:06:31:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:06:31:24)
+Yeah. That's also my final comment, so you can go ahead and close us out.
+
+**[[Fr. Andrew]]:** [Listen from 02:06:36:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=02:06:36:24)
+Oh, wow, okay. To give you the last word, so take all the show. Hey, well, I mean, usually I get the first word and then you take the last words, but... Um, so I I, you know, as as as I've been working through this since we were briefing on it and and of course then having this conversation uh, here on the air, I've been trying to think about the best way to to encapsulate this to some extent so that people can um, have have a good, clear takeaway, uh, but also something that they can uh, communicate to other people as well. And and what I um, came up with here right actually just a few minutes ago as as you were speaking here at the end is is I think that most conversations about salvation, as you said, you know, a lot of other... a lot of sermons you're going to hear in other churches is about what you're saved *from*. It's about what you're saved *from*.
+
+Um, and I mean, and that's not wrong, okay? We're definitely saved *from* a number of things. Short list: demons, sin, and death. Um, that's what we're saved from. And, you know, it's important to go through like what St. [[Paul]] calls the "elementary doctrines of [[Christ]]." Like, we need that stuff. This is, this is catechism, and we need to be reminded of it, we need to be kind of refocused on it, recentered on it. It's, it's absolutely critical, right? But it's, but it's only one part of the picture, the what you're saved *from*. There's also what you're saved *for*. What you're saved *for*, right?
+
+And I think this is the big problem with this whole, you know, are you going to heaven or hell when you die? Like, "I'm saved from hell so I can go to heaven." Well, what is heaven? "Well, it's not hell. It's great, in fact." Or I guess if you're [[Alexander]] Kalomiros, they're they're the same thing. Um, it's just, you know, some people do it differently. Um, but no, there's a saved *for*, right? So in [[Ephesians]] chapter two, um, St. [[Paul]] says, for by... This is starting with verse eight: "For by grace you have been saved through faith or through faithfulness, and this is not your own doing, it is the gift of [[God]], not a result of works so that no one may boast." As we've talked about before on the show, um, you know, faithfulness is that through which we are saved, and the path of faithfulness, you know, this is not your own doing, [[God]], you know, you didn't come up with it, [[God]] gave you this path of faithfulness, right? And and when he says it's not a result of works so that no one may boast, uh, you know, you can certainly read that in the way that every Protestant naturally would, which is like, "No, you can't earn your way to heaven." Okay, yes, we agree with that. Uh, but, but also speaking to [[Ephesians]], former pagans, it's not the result of like works, you know, great feats of, feats of greatness, like, you know, the demigods do in the pagan context, you know, that's through, that's the means through which you gain the blissfulness of the gods, right? So it's not that.
+
+But then it says this in verse 10. This is the part I want to focus in on: "For we are his workmanship, created in [[Christ]] [[Jesus]] for good works which [[God]] prepared beforehand that we should walk in them." This is what we are saved *for*. This is what we were created *for*, that we should walk in them. So we're saved *from* demons, sin, and death. Yes, it's okay to say you're saved *from* damnation. That's fine. But you're saved *for* participation in the energies of [[God]]. You're saved *for* doing the works of [[God]]. You're saved *for* doing what Adam and Eve were given at the very beginning. Cultivate this world, put this world in order, shape this world, and fill it with life, fill it with all kinds of life. This is what we're made for.
+
+Right? And so, the life of repentance then is not only the stuff you're saved from, getting rid of the stuff you're saved from, although yeah, you got to do that. You got to, you got to turn your back on demons, sin, and death. You got to do that. But it's also what you're saved for. And so, we're not waiting until the life of the age to come to start doing the works of [[God]]. We're, we're supposed to be doing them now. And so much, I think, of the existential experience that people have with trying to repent is this kind of a lengthy exercise of trying to say, "Stop it," to themselves. "Stop it. Stop sinning."
+
+Um, which, okay, you know, maybe in the moment of sin, you need to at least hear that voice, "Cut it out," you know, "Stop it." Um, but the way to grow out of the desire for sin is is to practice the virtues. It's to practice the good works of [[God]]. You know, often when we focus simply on trying to stop sin, actually that can become very, very self-absorbed. "Look at me. Look at all the bad things I do. I need to stop it." Um, and then, you know, we can kind of wallow in guilt, and guilt is not repentance, folks. Um, and of course then usually at some point comes despair, and despair leads to all kinds of bad stuff. But if we do the works of faithfulness that [[God]] has given us to do, if we walk in them, as St. [[Paul]] says, these good works that [[God]] prepared beforehand for us, that we were created in [[Christ]] [[Jesus]] for good works, then we become more like [[Christ]]. Then our wills are aligned with the will of [[God]], and they no longer are leaning in the direction of sin. Instead, they're trained in the direction of [[Christ]]. They're trained in the direction of beauty, they're trained in the direction of goodness, love, long-suffering, faithfulness, generosity, worship, all of these things.
+
+So how do you repent? I mean, do the stuff your priest keeps telling you to do. That's the way. That's the way. [[Christ]] says, "If you love me, you keep my commandments." That pairing of love and keeping the commandments of [[God]] is everywhere in the Bible, everywhere, over and over and over and over and over again. And and that's how we become like [[Christ]]. That's what we are saved *for*. We're saved for good works. We're saved to become equal to the angels. That's not just a status, it's not just a title of sons of [[God]], it's also work to do. It's also taking care of this world, and that includes other people, above all else, really. So, yeah, it's not just what we're saved from, it's what we're saved for. And indeed, the more that we focus on what we're saved for, the more that what we're saved from withers and dies and has no power over you.
+
+So, especially as we're finishing up Great Lent here, and we're about to head into Holy Week and Pascha, I hope that these, um, these great gems from the Holy Scriptures will be a source of encouragement and and joy, frankly, for everyone out there. So, well, that's our show for tonight. Thank you for listening, everybody. Um, if you didn't happen to get through to us live, unlike those two men named [[John]] from Missouri, uh, we'd still like to hear from you. You can email us at lordofspirits@ancientfaith.com. You can message us at our Facebook page. You can also leave us a voicemail at speakpipe.com/lordofspirits. And if you have basic questions about Orthodox Christianity or you need help finding a parish, go to orthodoxintro.org and you'll get some good responses.
+
+**[[Fr. Stephen]]:** [Listen from 01:54:46:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:54:46:24)
+And join us for our live broadcast on the second and fourth Thursdays of the month at 6 p.m. Eastern and 3 p.m. Pacific. You look like a perfect fit for a girl in need of a tourniquet.
+
+**[[Fr. Andrew]]:** [Listen from 01:54:57:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:54:57:24)
+If you're on Facebook, you can follow our page, you can join our big old discussion group and leave ratings and reviews wherever you get your podcasts, and please share this show with one of your friends.
+
+**[[Fr. Stephen]]:** [Listen from 01:55:08:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:55:08:24)
+And finally, be sure to go to ancientfaith.com/support and help make sure we and lots of other AFR podcasters stay on the air, because I can tell you know what it's like, the long farewell of the hunger strike.
+
+**[[Fr. Andrew]]:** [Listen from 01:55:18:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:55:18:24)
+Thank you. Good night, and may [[God]] bless you always.
+
+**Outro:** [Listen from 01:55:29:24](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2023-03-30.mp3#t=01:55:29:24)
+> You've been listening to The Lord of Spirits with Orthodox Christian priests, [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young, a listener-supported presentation of Ancient Faith Radio.
+>
+> "And I beheld, and I heard the voice of many angels round about the throne, and the beasts, and the elders. And the number of them was ten thousand times ten thousand, and thousands of thousands, saying with a loud voice, 'Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honor, and glory, and blessing.'" ([[Revelation]], chapter 5, verses 11 through 12)

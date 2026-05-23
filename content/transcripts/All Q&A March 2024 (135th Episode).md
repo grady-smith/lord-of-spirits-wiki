@@ -1,0 +1,505 @@
+--- 
+ title: "All Q&A March 2024 (135th Episode)" 
+ tags: [lordofspirits] 
+ ---
+# The 135th Episode: All Q&A March 2024
+
+## Transcript
+
+**Intro:** He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. ([[1 Enoch]] 48:4-5)
+
+The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew Stephen Damick]] and [[Father Stephen De Young]], host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by God and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
+
+**[[Fr. Andrew]]:** Hey, greetings, dragon-slayers and giant-killers. You're listening to the 135th episode of the [[Lord of Spirits]] podcast. I'm [[Father Andrew Stephen Damick]] and with me is the stupefying sultan of the swamp men himself, [[Father Stephen De Young]]. We're coming to you live, forming a veritable Bermuda Triangle between Emmaus, Pennsylvania, Lafayette, Louisiana, and Ancient Faith Radio's home base of Chesterton, Indiana. It's been months since we did an all-live, all-call-in show. So this is your chance, boys and girls. Call us at 855-237-2346 and you can talk to us about whatever is on [[Father Stephen]]'s mind.
+
+So, but while those phone lines are filling up, [[Father]], I thought we'd check in with you and see what your spicy takes on current events are. So, um, who do you think is going to come home with one of those Oscars this coming Sunday night? Will it be a clean sweep of K-pop demon hunters?
+
+**[[Fr. Stephen]]:** No.
+
+**[[Fr. Andrew]]:** That's a downer.
+
+**[[Fr. Stephen]]:** Yeah. No, uh, Sinners. Sinners is even going to take Best Original Song.
+
+**[[Fr. Andrew]]:** Really?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** Wow. You want to place a bet? Your demon hunters have won no place.
+
+**[[Fr. Stephen]]:** I was about to suggest placing a little wager, but then I was like, I can't do that. I can't do that.
+
+**[[Fr. Andrew]]:** Not live on air at least. I was raised differently from you, [[Father Stephen]]. I don't smoke, drink, and gamble and all that kind of stuff. The way you...
+
+**[[Fr. Stephen]]:** There you go. You've got that works righteousness. That's for you. Works righteousness.
+
+**[[Fr. Andrew]]:** You didn't inform people that the inmates are running the asylum over there at Ancient Faith this evening. And so...
+
+**[[Fr. Stephen]]:** I know. This is definitely the night to call. You could probably get away with murder. I know I will.
+
+**[[Fr. Andrew]]:** Sheer chaos over there at the poor man's Ohio. Um, I know. Like we don't know how many people are in the studio right now. Trudi is apparently having some kind of like gathering, some sort of big party or whatever with all her closest friends.
+
+**[[Fr. Stephen]]:** Sleepover. Exactly. They're going to be singing into their hairbrushes any time now and doing choreography.
+
+**[[Fr. Andrew]]:** It's a good thing this isn't on video on YouTube. Think about what you guys are missing. There's a pajama party happening over in Ancient Faith Radio headquarters right at this very moment. So, all right, well, since this is all callers, let's get to it. So first we have Andrew calling from Arizona. Andrew, welcome to [[Lord of Spirits]] podcast and congratulations on having such an excellent name.
+
+**Andrew:** Hello, good evening. Can you hear me?
+
+**[[Fr. Andrew]]:** Good evening. We do hear you.
+
+**Andrew:** Awesome. You know, first of all, I want to say I feel honored because I got about 10 minutes of, I got to be a part of the backscenes there. I don't know if that usually happens. There may have been a hot mic button pressed.
+
+**[[Fr. Andrew]]:** Oh, you heard everything going on at the pajama party, huh?
+
+**Andrew:** I did. I did. I will say that the Trudi and Tank, uh, was behaving admirably. You know, I, hot mics and the fire department usually go a lot worse than that. So anyways, first of all, [[Father Andrew]], my, hello from Deacon Stephen in Twin Falls.
+
+**[[Fr. Andrew]]:** Hello, hello.
+
+**Andrew:** Can you hear me?
+
+**[[Fr. Andrew]]:** Yes, yes, we do hear you.
+
+**Andrew:** Oh, oh yes. That's anyway, Deacon Stephen, my dad says hello from Twin Falls. And then I had a quick bone to pick with [[Father Stephen]]. And this has been a little delayed. I've been trying to call, but I needed to straighten something out with you before we, before I ask my question.
+
+**[[Fr. Andrew]]:** All right, here we go.
+
+**Andrew:** The pellet with the poison is in the flagon with the dragon. The vessel with the pestle is the brew that is true. Just wanted to straighten that out.
+
+**[[Fr. Stephen]]:** [Listen from 04:46](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=04:46) I concur.
+
+**Andrew:** Okay. All right. All right. We can agree on that. So my question, my question and you mentioned current events...
+
+**[[Fr. Stephen]]:** In the Danny Kaye of it all. I have a question then before we start. Oh.
+
+**[[Fr. Andrew]]:** You're on the spot now, Andrew from Arizona.
+
+**[[Fr. Stephen]]:** You work at a fire department in Arizona?
+
+**Andrew:** Yes. Yes.
+
+**[[Fr. Stephen]]:** It's, that must be rough, man. It's not as bad as you'd think. Because you've got a lot of heat and no water.
+
+**Andrew:** That is, sometimes, yeah. Well, we have, we have some water.
+
+**[[Fr. Andrew]]:** I was just, no, I was just in Arizona this last weekend and you do not have any water. Like out here where I live and especially where [[Father Stephen]] lives, they put it for free in the air. Anyone can just have it, but you guys do not have it. I was there.
+
+**[[Fr. Stephen]]:** They sell, no, they sell it all to California.
+
+**Andrew:** That's true. That's true. That is the list of one thing bad with California, but... Well, I mean, we could go on. Let's make a list. What, what is your, what is your question, Andrew?
+
+**Andrew:** So, so my question with, um, so I'm, uh, recent, still working through my Protestant dispensationalism, um, in the process of re-reframing my mind. Um, and with, with...
+
+**[[Fr. Andrew]]:** [Listen from 06:07](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=06:07) Yeah, yeah. This is a tough moment in terms of current events to be a dispensationalist. They're all just so excited right now about everything they're seeing on the news.
+
+**Andrew:** [Listen from 06:17](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=06:17) Well, right. Right, right, right. And that's where, so I, I have, uh, we have wonderful conversations with my, with my Protestant friends. Quick shout out to [[John]] [[Luke]], love you guys. But in regards to everything going on, um, one of the passages we keep going back to, and this is in reference to, I, I've listened to your guys' three-part series on Israel, uh, three times, like all three episodes I've been through it three times. Um, and your, your, your [[Father Andrew]], the one comment that, that the nation state of Israel has as much biblical significance as the state of, of Finland, I think you said.
+
+**[[Fr. Andrew]]:** Seems right.
+
+**Andrew:** He likes to insult the Finns with their irrelevance. No. I know, they're such nice people, though. But so when in specifically going through into [[Zechariah]] 14, when it's talking about the day of the Lord, how do we, how do we kind of navigate, and not just [[Zechariah]], but the other some of the prophets where it seems like there's, it seems like there's a, kind of an importance to Jerusalem and Israel being in that place and those events happening, you know, um, I don't know if I kind of lost my question. I apologize. But, but basically like, you know, when you read about the, about Israel and Jerusalem and these end time events, how do we overlay current events and not see kind of that dispensationalist angle or, or the Protestant angle?
+
+**[[Fr. Andrew]]:** [Listen from 08:01](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=08:01) Yeah. I mean, the one thing I'll say is the, the, the big, there's so many wonderful things that we could say about the problems of dispensationalism. But one thing I'll say is that the, the biggest problem is, is pattern matching. Like, again, if there's anything going on in the news with regards to conflict in the Middle East, dispensationalists go crazy. They're all convinced that, you know, something is about to happen, right? This is the fulfillment of biblical prophecy, etc., etc., etc. because they're seeing names of places that they are seeing referenced in the Bible. But the problem is that there's been, in most case, thousands of years of history between that point and now. And why is it that all the other exciting events that happened in those times were not the fulfillment of biblical prophecy, the way the stuff happening at this moment is. Like, why do we think that we are the people who are witnessing all of this? Right? So it, it kind of fails on its own terms. Saying nothing about the fact that this is a completely wrong way to interpret the Bible, right? It's, you know, the human mind, of course, wants to make connections between things. We see this, we see this. Oh, those are, those are similar or those, that's the same name as this or whatever it might be. My favorite version of this is where people look at whatever the Bible verse is. Oh, it's chapter this verse this and and look at the number we just saw in the news. You know, never mind the fact that the chapters and verses of the Bible are what, just a few hundred, several hundred years old at best and have nothing to do with, you know, the way that they're originally being written or compiled or edited or or whatever. Um, it's it's just so much of a stretch in most cases to make all of these connections. But also, it's a completely wrong-headed way of interpreting the scriptures. Um, and I'll, I'll just, I mean, I'll just tell everybody they should definitely listen to those three episodes we talked about with regards to Israel. But I don't know. Do you have something specific to say about this particular passage, [[Father Stephen]]?
+
+**[[Fr. Stephen]]:** [Listen from 10:03](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=10:03) Well, this is a more general point, but so in in Protestant land, you have on the one hand, you have preterists who have this sort of over-realized eschatology. Yeah. And dispensationalists really have an under-realized eschatology. Right? Because essentially their eschatology is acting like the Messiah hasn't come yet. Yeah. That's the way they're reading these Old Testament passages. As if none of them refer to [[Christ]]'s actual like birth and incarnation and life and death and resurrection. All of those Old Testament prophecies were solely aimed at his second coming. You can see the obvious problem there, right? Like from a Christian perspective. So we have to take seriously, for example, that a lot of the signs of the day of the Lord are described as happening at the time [[Christ]] was crucified in the Gospel accounts. Right? That the pattern is there's the day of the Lord when Israel is judged first, then the Messiah comes, that begins the Messianic age, and then after a time, the end comes. That's what you get from the Old Testament. And so a lot of the day of the Lord stuff was fulfilled at [[Christ]]'s quote-unquote first coming. Right? Because he didn't go away. That's why I say we put, you know, scare quotes around coming. So, yeah, I I think I think that's the issue. And Judea was there, Jerusalem was there, the temple was there, the religious leadership was corrupt and was judged, right? The the this is all of the parables, the parable of the wicked tenants, all of these parables that talk about the kingdom being taken away from Israel and given to another people who would bear the fruits thereof, right? That [[Christ]] says over and over again, like that happened then, right? That was [[Christ]] wasn't predicting that the kingdom was going to be taken away from Israel 2,000 years later and given to another people at that time. Right? Obviously, even a dispensationalist would have to say, well, yeah, I mean, that was the time of the Gentile church, right? So, um, it's it's a failure to realize that [[Christ]] in the incarnation, right? That is the fulfillment of a lot of those prophecies. And that then there are other prophecies related to the end, related to the bodily resurrection, the final judgment. But if you read the Old Testament carefully, like in [[Daniel]], when he predicts this in terms of the coming of the son of man, he says, and then after a time, the judgment happens, and there's the river of fire, and the thrones are set. But that's after a time. There's a some period of time between the son of man being enthroned at the right hand of of the ancient of days and the end.
+
+**[[Fr. Andrew]]:** Yeah. Yeah, so I mean, Andrew, just because you see Jerusalem mentioned in a particular passage in the Old Testament and something is happening to it or is said to be happening to it, and it seems like that's happening now, um, they're not necessarily connected. And and we should remember too, by the way, that the center of modern Israeli life is not Jerusalem. It's Tel Aviv. That's the capital of the country.
+
+**[[Fr. Stephen]]:** Well, it wasn't until recently.
+
+**[[Fr. Andrew]]:** Yeah, yeah, yeah. That's where the government and so forth. That's where, you know, most of the missiles and stuff are being aimed. You know, we should be praying for peace, not weirdly cheering from the sidelines, um, that one side or another is successfully shooting the other.
+
+**Andrew:** The only reason the only reason I asked about that [[Zechariah]] passage was because the cliff notes on the the Orthodox Study Bible said this was in uh, I believe it said this is to be accomplished at the second coming of [[Christ]]. So my, my...
+
+**[[Fr. Stephen]]:** Yeah. Let us just say... I don't know if you know this, but those notes are not divinely inspired.
+
+**[[Fr. Andrew]]:** Yes, all the notes in the Orthodox Study Bible are not necessarily ones that we would put a check mark of approval next to.
+
+**Andrew:** Ah, well that's confusing.
+
+**[[Fr. Andrew]]:** Isn't it? It's all right. It's all right. It's all right. Thank you very much for...
+
+**Andrew:** So the tredge continues then.
+
+**[[Fr. Andrew]]:** Yeah, that's okay. Thank you very much for calling, Andrew.
+
+**[[Fr. Stephen]]:** But you know who can help us?
+
+**Andrew:** You guys get, I need you guys to get on the same page then, please. Whoever's writing this with you guys.
+
+**[[Fr. Andrew]]:** Well, I mean, those notes are now decades old. Um, and and you know, published by a different publisher. So... Yeah. Hey, you know, a lot of things can be revised. So let's pray for that.
+
+**[[Fr. Stephen]]:** Sure. You know who can get us through these terrible times, though? Danny Kaye.
+
+**Andrew:** Danny Kaye. Danny Kaye. Uh, thank you guys so much. I appreciate you. Thank you so much.
+
+**[[Fr. Andrew]]:** Thank you for calling, Andrew. Okay, well we've got another call. We've got a caller from uh, the DFW area. We have Paul in Texas. So Paul, welcome to the [[Lord of Spirits]] podcast.
+
+**[[Fr. Stephen]]:** The metroplex.
+
+**[[Fr. Andrew]]:** Yes.
+
+**Paul:** Hello, hello, fathers.
+
+**[[Fr. Andrew]]:** Greetings.
+
+**Paul:** Um, so first I want to begin because uh, this is long overdue. Six months to maybe almost a year ago, one of the one of the more recent-ish Q&As, uh, [[Father Andrew]], I have no idea why I was being, I thought playful, but for whatever reason, the words that left my mouth sounded catty towards you. And I imagine you don't remember that, but regardless, I felt I needed to apologize.
+
+**[[Fr. Andrew]]:** I don't remember. Okay. Thanks. When I go back and listen, it makes me cringe.
+
+**[[Fr. Stephen]]:** Don't don't apologize to him. It's not good for his salvation.
+
+**Paul:** I have no idea how or why that happened. And I even did a double take to myself alone in a room when I did it wondering why. But I thought maybe I imagined until I listened back. And no, I definitely sound like I'm having attitude for no reason at all.
+
+**[[Fr. Stephen]]:** It's probably my malign influence. I just create an environment when people feel like they can pick on [[Father Andrew]].
+
+**[[Fr. Andrew]]:** That's right. Just joining up with you and...
+
+**Paul:** Bully you with technology failing. Yep, yep. So okay, well...
+
+**[[Fr. Stephen]]:** That's because you're a dwarf. I'm just playing.
+
+**[[Fr. Andrew]]:** What else is on your mind, Paul?
+
+**Paul:** Okay, so yeah, what the question I have, um, uh, well, of course, as is tradition for the show and for myself, um, I I've got kind of an opening question to make sure I understood y'all correctly and then my actual one. So back in the day, if I remember correctly, this was back when the show was still pretty young, um, when we were discussing idols and how idolatry actually works and how it's like pretty much a far cry from icon veneration on more than one level. Um, I I thought I remembered y'all saying that, you know, you're you're you're outlining the beliefs of the ancient people, not necessarily what we say actually happened in regards to the demons, uh, you know, being quote-unquote like Pokemon trapped inside of the idols and what not so that the people can try and manipulate them to get what they want.
+
+**[[Fr. Andrew]]:** Yes, that was their understanding of how it all worked.
+
+**Paul:** [Listen from 17:37](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=17:37) Okay, so there, so I so I did remember that correctly, good. Uh, what I wanted to ask is in regards to the Synaxarion reading on March 5th. Um, Holy Martyr Conon of Isauria, what's forgive me if I butchered that.
+
+**[[Fr. Andrew]]:** Yes, Conon the gardener.
+
+**Paul:** [Listen from 17:52](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=17:52) Um, so there's two Conons on that day. I don't remember if it's the gardener, um, or if it's the other one. Um, but the story...
+
+**[[Fr. Andrew]]:** Actually you have me there. I don't know.
+
+**Paul:** [Listen from 18:07](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=18:07) which is related to, uh, it talks about, um, basically him, I think he was being told to come, you know, offer before the idols and whatnot. But the the story in the Synaxarion blatantly just refers to demons being hidden in the idols and then after he banished several, he has them, uh, trapped in earthenware vessels under his home. And so I wanted to ask for clarification if that is still kind of like just as they believed, or since it's in the Synaxarion, does that kind of like solidify it for us, or is that not the way to interpret it?
+
+**[[Fr. Andrew]]:** [Listen from 18:37](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=18:37) There there are a lot of saints, so there are a lot of saints' lives that include stories of saints trapping demons inside things. Believe it or not. Um, and by that, we should not come away with the sense of, wow, demons take up this amount of, you know, 3D space. Yeah, it's it's that this is...
+
+**[[Fr. Stephen]]:** How many can you trap in a single earthenware jar?
+
+**[[Fr. Andrew]]:** Or could dance on the head of a pin? Um, you know, it's it's really that this is this is the experience that the humans are having. Um, and it may well be that God permits them to have this particular experience because this is the way for that he wants them to interact with this scenario, you know, um, whatever it might be. I mean, like like there's a story, I think it's of um, [[St. John]] of Novgorod maybe, who keeps getting irritated by a demon and so he turns around and tells the demon to transform into a winged horse and take him on kind of a day trip pilgrimage to Jerusalem, which he does. Um, and you know, like, well, what, I mean, and that's how it's depicted in icons. This sort of creepy kind of lizardy winged horse thing with a fork tail and claws, you know, taking him flying, flying this bishop down to Jerusalem. Metal. Yeah, I mean, it's pretty cool, it's a pretty cool scene actually. Um, you know, so, but these are the stories as we have them. And I think that any attempt to kind of try to look behind the story is to sort of miss the point of the story, if that makes any sense.
+
+**Paul:** Okay. Well, I mean, I definitely if we're trying to almost make a secular understanding, I I agree. I I definitely was not trying to go that far. I may have accidentally been doing so. Um, I just wanted to see if there was any clarity on like we do believe this is like what happens like straightforwardly or if there's more allegory to it. But um, that's what I...
+
+**[[Fr. Stephen]]:** [Listen from 20:30](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=20:30) Well, I think, I think the the purpose it's getting at is it's sort of parallel to [[Christ]] sending the demons into the pigs, right? So the demons are in the idol and they're sort of working through the idol in the temple to work mischief with the pagans, right? Um, and manipulate them and do evil. And so they get imprisoned under the earth, right? Under his house, sort of symbolically back into [[Sheol]]. The underworld, yeah. Where they can't, where they can no longer work mischief. They kind of get bound by the by the saint, right?
+
+**Paul:** Okay. So this would still relate to the idea of their body. It's just in this case, they're being forced into a body they don't want.
+
+**[[Fr. Stephen]]:** [Listen from 21:13](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=21:13) Right. And and essentially where they can't, they can no longer do any harm. Right. And they're they're back under the ground where they're supposed to be. In the underworld.
+
+**Rory:** Well, after I changed LaVerne back to Lordsburg and my petition to change it to Lord of Spiritsburg, the next petition is to call the state Rory. Okay. I got one signature on that one.
+
+**[[Fr. Andrew]]:** Good luck. So what's on your mind, Rory?
+
+**Rory:** So I have a, I have two questions, uh, one, uh, serious and one less so, but not wrestling related. Uh, I promise I have no questions about Bret Hart today, although I would like to say that my views on dispensationalism were heavily influenced by the fact that Goldberg ended Bret Hart's career.
+
+**[[Fr. Stephen]]:** Yeah, that was ugly.
+
+**[[Fr. Andrew]]:** Was that an eschatological moment?
+
+**Rory:** For Canada. Yeah, for... Yeah. Downhill since. Um, so my first, my my question is about kind of the the views of the Messiah prior to, uh, you know, prior to the the incarnation. Um, that, you know, in Christianity was, uh, you know, to kind of badly paraphrase you, is was a recognition that, you know, [[Jesus]] was, you know, both the Messiah prophesied and also this, you know, second person of [[Yahweh]] that's all throughout the Old Testament. Um, however, I was wondering, were conceptions of the, I know there are different views of what the Messiah would be, like, you know, a lot of people were, you know, upset that [[Jesus]] wasn't a conquering king, you know, whatever. Um, was there a common, was there a common conception that the Messiah would be both, you know, for lack of a better term, the Messiah and also God himself, you know, come down?
+
+**[[Fr. Andrew]]:** [Listen from 26:45](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=26:45) Okay, so if I'm, if I understand correctly, what what you're asking is, how common or was it the case that anyone believed that the Messiah, that [[Yahweh]] would be the Messiah effectively?
+
+**Rory:** Yes.
+
+**[[Fr. Andrew]]:** Okay, so, all right. I think we went over that in our episode about the Messiah, [[Father]], but now it's been so long I do not remember.
+
+**[[Fr. Stephen]]:** [Listen from 27:06](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=27:06) Yeah. So, I mean, yeah, as you say, there were a variety of views on who the second person of [[Yahweh]] was. There was a variety of views about what the Messiah would be like. But there's a lot of places where they overlap. Probably the most prominent one is, uh, in the, uh, Book of Similitudes in First [[Enoch]] that identifies the [[Son of Man]] from [[Daniel]], uh, as the Messiah, that the [[Son of Man]] is going to come down and be the Messiah. Um, that's probably the most prominent one, but there are a lot of others. Uh, so you have in the [[Melchizedek]] scroll in the Dead Sea scrolls, [[Melchizedek]] has, it's identifying that second power in heaven as being [[Melchizedek]] who has been either he has been divinized or that was [[Melchizedek]] was just him appearing on earth, right? Uh, and him coming as the Messiah. There are certain, uh, texts that have [[Enoch]] returning as the Messiah. Um, so there are various people who saw the second power as a divinized human that also saw him as being the Messiah. There are things like the Book of Similitudes in First [[Enoch]] that have a second power in heaven, not totally clear about his precise identity, but have him becoming the Messiah. So that overlap was there in a in a lot of the literature, not 100%, but a lot of it was there. The, so, and that was among what today would be called religious Jews, right? So the people who thought that the Messiah was going to be this conquering king, this like we're using the Hasmonean paradigm, right? The the Hasmoneans in their brief glory days, like [[John]] Hyrcanus, that was their view of what the Messiah would be, but that that was people like the Hasmoneans themselves and the Sadducees, right? Who were descendants from that family and who, as you can imagine with the Sadducees not believing in the resurrection, not accepting most of the Hebrew Bible as Bible, were far more this-worldly oriented, right? And so their view of the Messiah was also very much related to that. Um, and that brings us full circle back to the modern nation-state of Israel, but anyway, um, that's yeah, who doesn't seem to be waiting for a Messiah to come.
+
+**[[Fr. Andrew]]:** Um, yeah, yeah, yeah.
+
+**Sarah:** Hello. I have a couple questions and in keeping with the last two, I'm going to ask a question specifically for [[Father Stephen]]. Sorry, [[Father Andrew]].
+
+**[[Fr. Andrew]]:** It's all right. I'm just going to take another break.
+
+**Sarah:** [Listen from 32:04](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=32:04) So this question is for [[Father Stephen]]. The question is when Nienna teaches sympathy, pity, mourning to Alorren, what is that significance for his, you know, spiritual being? For instance, um, Sauron doesn't have this tutelage under Nienna. So why, why does this matter for Alorren? How does it affect his, his journey as a character?
+
+**[[Fr. Stephen]]:** [Listen from 32:39](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=32:39) Well, here's what you have to understand. When [[Mark]] Spector first became Moon Knight, he was just a mercenary in Egypt. And it was kind of ironic that as a Jewish guy who would become a mercenary and was an atheist, he ends up serving an Egyptian god, right? You see the irony there? Uh, that his dad being a rabbi, having grown up celebrating Passover, and hearing the the stories of his people, nevertheless, although he's had to be brought back from the dead several times, he continued to fight crime. And I think if you understand what's going on in Moon Knight's psychology, it really answers your question.
+
+**Sarah:** All right. Makes perfect sense to me. Also, how do you feel about them casting Oscar Isaac in a role playing an Egyptian?
+
+**[[Fr. Stephen]]:** He's not playing an Egyptian. He's playing a Jewish guy.
+
+**Sarah:** Well, he's playing a Jewish guy. I guess that's not less weird though, but...
+
+**[[Fr. Stephen]]:** He's played Jewish guys several times. Now he did play an Egyptian technically, uh, in X-Men [[Apocalypse]] because En Sabah Nur is an Egyptian.
+
+**[[Fr. Andrew]]:** That's right. That's right.
+
+**Sarah:** [Listen from 33:45](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=33:45) Okay. And your other question? My other question was, what, what is going on with, what is [[John]] the Baptist's baptism? What is, what is going on there? So obviously, baptism is the current circumcision, but the spiritual baptism given through [[Christ]]. What is [[John]] the Baptist's baptism? What is that doing for the people who receive that? Because then aren't they re-baptized as in [[Jesus]]? Because you have those disciples who received the baptism of [[John]] and they believe what they know, but then they're re-baptized as Christians later. So what was [[John]] the Baptist baptism for?
+
+**[[Fr. Andrew]]:** [Listen from 34:21](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=34:21) I mean, [[Father]], isn't it, I mean, isn't this essentially one of the mikvah, I'm getting the word wrong, um, you know, one of those washings of repentance that's in the [[Torah]] already, right? It's not baptism into [[Christ]], it's a baptism of repentance. I mean, that's how it's described in the Gospels. So it's one of these washings that you have to do.
+
+**[[Fr. Stephen]]:** [Listen from 34:43](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=34:43) Well, it's a, yeah, it's a baptism of repentance for the for the forgiveness of sins. But what beyond that, right? So he's calling on Israel to repent and to come and be washed and experience this baptism uh, for the forgiveness of their sins. But he's telling them to repent because the kingdom of God is at hand. The axe is at the root of the tree. See, this ties back to the first question. This judgment is about to come upon the Jewish people. And so now is their chance to repent. And in doing that, he is preparing this repentant people. That's why he's doing it in the Jordan. So on the other side of the Jordan, you have this people that's being put together. And then when [[Christ]] comes, when the Messiah comes, [[Jesus]] comes, and he comes and leads these people, [[Jesus]] who shares the same name as [[Joshua]], who led the people across or through the uh Jordan to uh take the land of Canaan originally from the evil spiritual forces and their human underlings who held it. He comes and leads those people back into the land. And we see several of the the 12 disciples had been disciples of [[St. John]] previously. Right? And so he is by this, he is creating a very literal instantiation of the holy remnant. Oh, okay. Right? So that [[Christ]] can then come and this is the new, this is the new beginning for Israel. Right? Because Israel is restored with the holy remnant of Judah and then the Gentiles come in to fill up the other tribes. So those who are being baptized, and this is why as [[St. John]] makes the point that [[Christ]] didn't baptize anyone, his disciples did. So his disciples were continuing to baptize people with [[St. John]]'s baptism throughout [[Christ]]'s ministry. And then the baptism that comes afterwards, after, right, [[Matthew]] 28, the Great Commission and [[Christ]]'s [[Ascension]] in the name of the [[Father]], Son, and the [[Holy Spirit]], that is baptism with water and the [[Holy Spirit]] that [[St. John]] was talking about would come.
+
+**Sarah:** Okay, so do all the people who are baptized under [[John]] have to get re-baptized then? Like obviously this isn't a relevant question, it's more of a hypothetical, but...
+
+**[[Fr. Stephen]]:** [Listen from 37:22](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=37:22) Right, most of them, what we see, the general pattern in [[Acts]] is that they aren't re-baptized, they have hands laid on them and they receive the [[Holy Spirit]].
+
+**Sarah:** Okay.
+
+**[[Fr. Stephen]]:** So they don't get baptized again, they just get chrismated.
+
+**Sarah:** So he's functioning as sort of a an icon or maybe [[Joshua]]. They're functioning as icons of each other in a way. And then he also gets called Elijah and I've never really understood that either though that might be.
+
+**[[Fr. Andrew]]:** Oh, man. You should listen to our whole episode about [[John]] the Forerunner. Yeah, yeah, because we talk about Elijah as his patron saint.
+
+**Sarah:** Okay.
+
+**[[Fr. Andrew]]:** The one who's animating his ministry.
+
+**Sarah:** I will go back and listen to it.
+
+**[[Fr. Stephen]]:** Yeah. Yeah, and there's, see there's also a connection there between, remember there's this transition from Elijah to Elisha. Yes. And right after Elijah goes up into heaven and Elisha kind of receives the double portion of his gifts, what does he do? He crosses, he hits the Jordan with Elijah's mantle and the Jordan parts and he walks... Yeah. He walks through.
+
+**[[Fr. Andrew]]:** All kinds of fun stuff there. So...
+
+**Sarah:** This is very important question and if you still had your Lord of the Rings podcast, I'd call in and ask there, but thank you guys so much.
+
+**[[Fr. Andrew]]:** You're welcome. Thanks for calling, Sarah.
+
+**[[Fr. Stephen]]:** I have read The Silmarillion. I have not memorized The Silmarillion.
+
+**[[Fr. Andrew]]:** Well, that's good. That that puts you out in front of a lot of a lot of other talking fans out there.
+
+**[[Fr. Stephen]]:** I have not memorized it though.
+
+**[[Fr. Andrew]]:** Yeah. Yeah, I do not. You caught some of you caught some of the names.
+
+**[[Fr. Stephen]]:** I do not fi upon it fortnightly, so.
+
+**[[Fr. Andrew]]:** Yes.
+
+**Zack:** Hello, thank you fathers, happy to be here. We're happy to have you. What is on your mind, Zack?
+
+**Zack:** [Listen from 42:17](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=42:17) I just have one like lingering question about it. So it's if the goat for Azazel can't be sacrificed because it has the people's sins on it, I was wondering why [[Christ]]'s sacrifice, while bearing the sins of the people, is acceptable to the [[Father]].
+
+**[[Fr. Andrew]]:** [Listen from 42:44](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=42:44) Ah, it's because [[Christ]] is both goats. See, I knew this one.
+
+**[[Fr. Stephen]]:** I think the question is how can he be both goats?
+
+**[[Fr. Andrew]]:** I yeah, I guess so. Okay.
+
+**[[Fr. Stephen]]:** But the point is that his sacrificial function there is not the goat for Azazel, it's the goat for [[Yahweh]].
+
+**Zack:** Okay.
+
+**[[Fr. Stephen]]:** [Listen from 43:01](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=43:01) Well, and we also have to say he's not literally both goats.
+
+**[[Fr. Andrew]]:** Yes, right. He's not an actual goat.
+
+**[[Fr. Stephen]]:** No, but I mean, but I mean in the sense that, right, he is the fulfill, what we mean by that is he is the fulfillment of both goats. Okay. So he fulfills what the scapegoat, the goat for Azazel did by taking away the sins of the people. And he fulfills what the goat for [[Yahweh]], the sin offering and all of the sin offerings did by offering himself as a pure, unblemished sacrifice, right? Turning his murder into a sacrificial, a voluntary sacrificial self-offering. So he does both of those things.
+
+**Zack:** Okay. So am I, am I kind of over-literalizing the actual putting sins on on himself? Is that what's happening?
+
+**[[Fr. Stephen]]:** Okay. Yes.
+
+**Zack:** Yeah.
+
+**[[Fr. Stephen]]:** Yes.
+
+**Zack:** Okay. Thank you very much.
+
+**[[Fr. Andrew]]:** Yeah. Does that make sense? Yeah. Okay.
+
+**Jim:** So I'm in modern speculative fiction. There are many, many rifts on the idea of a parallel universe or an alternate dimension and that type of thing. And to me it, these stories often they they just they reduce to dualism or determinism because whether you're a good Vulcan or a bad Vulcan depends upon whether or not your universe has the federation or the empire or that um, your fate is just decided by random things outside or the fate of the universe is decided by things outside of your control like a a tire in the in Ma and Pa Kent's truck. Um, but as orthodox, is there a way that is there anything of value or meaningful that we take can take away from these stories? Or is there any Christian way to interpret them? Is there a way that we can view the world that God originally created as a prime universe and the one that we live in now that with the consequences of sin as a darkly mirrored alternate version? Or are these stories only for entertainment value?
+
+**[[Fr. Andrew]]:** [Listen from 46:28](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=46:28) So I I wouldn't say that they're only for entertainment value. Um, but I I don't think that they literally describe the universe as it actually, you know, the world that God created as it actually is because part of what's in some ways being, you know, like if this is, if this is the darkest timeline, uh, or a darker timeline and then there's some other timeline that's not darker, then then what does that mean in terms of the eschatological value of this world? Right? If, you know, the the point is that this world has an arc, it has a story. There is, you know, there is the creation with [[Eden]] and so forth, and then there is fall, right? But then there is also rise. And I think that the the the if you sort of fracture things out so that there's different versions, then what you get is it's easier to accept the idea that that this world because it's been corrupted, well, that's just the way that it is, but you know, but thank goodness there's some uncorrupted version somewhere else. The the kind of narrative because we're talking about story, right? So the narrative tension is that in in the way that the story actually is, is that the that the story is ongoing and it's going to turn out differently than we have it now. Like the the the oppressed will be vindicated, the oppressors will be brought brought low, the day of the Lord is coming and everything will be put to rights. Whereas if it's simply alternate timelines, then often the way that goes is that a given timeline just kind of keeps going in the direction that it goes and the idea of redemption or something like that, why do you need that because you have something elsewhere that's better? Right? So I mean, I I think I think it is useful to think in um, about stories and write stories and read stories of this these kinds. But there is, you know, to to my, I mean, this is a kind of a literary question, right? So to my literary understanding is that unless there is some kind of way of bringing them all together, which I think in some ways is some of what some of the Spider-Verse stuff has been trying to do in the movies, I don't know if it succeeds. Unless there's some way of trying to bring them all together and kind of have a unitive story, then all you're really doing is you're serving the idea that um, you know, like like if in a multiverse, right? Where is God? Because God, the the existence of of God implies that there is a unifying narrative for everything. Whereas multiverse, the whole point of multiverse is that there's not. And it just kind of in some ways, the the spiritual effect of of that if that's where we leave it, is to serve the current fragmentation of our of our society. Um, what ultimately brings people together is that there is there is truth, one truth, you know, our Lord [[Jesus]] [[Christ]]. So, yeah, I mean it's it's interesting, but I I think that to try to, you know, say that [[Eden]] is like one timeline and we're in some other timeline, there's problems there, you know, from a literary point of view. Um, I don't know, [[Father]], what what do you think about all that stuff?
+
+**[[Fr. Stephen]]:** [Listen from 49:51](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=49:51) Well, so, yeah, so that's from a cosmological perspective. But I think, and I and I think using the the couple of examples you gave is a good way at this. I I think the point that the best of that kind of literature is making is actually an anthropological one. And it's one that has certain resonances with Orthodox theology. So, uh, now St. Dimitru Stanoy, if you read his Orthodox dogmatics, talks about how a human person is in some sense absolute, that this is part of us being in the image of God, meaning that there is something about us, each of us, that is not determined by our heredity and our environment that makes us free to choose and that is a created gift of God. And so, for example, Spock in Mirror Mirror has is is part of the Vulcan race that's been enslaved by the Terran Empire, right? But through the experience of the Captain Kirk getting switched, he gets inspired, he gets inspired to begin essentially a kind of cultural revolution in his universe that gets talked about later in the Deep Space 9 episodes that go back to the mirror universe, or if we're talking about Justice League: The Nail, we see that the other heroes, for example, are still the other heroes. We have this meditation on the significance of Superman in particular, right, in his world. But if you look at a lot of the other else worlds, like the best of the else worlds, a lot of them, especially the Superman ones, he lands in Soviet Russia instead of Kansas, he lands outside Gotham City instead of Smallville, uh, and gets adopted by Thomas and Martha Wayne, right? He, uh, lands on [[Apocalypse]] instead of Earth. At some point, there's a point in the story where based on how he was raised, he has become quote-unquote bad Superman or evil Superman. But there's some point in the story where the person who he is kind of takes over, right? And we find out just like with mirror universe Spock, there was some of our Spock in there, just having been repressed and conditioned by the environment. There there's something about Superman who is still in that elseworld's Superman that comes out and is and is sort of transformative. And so I think those stories are intended to inspire the kind of idea that St. Stanoy is talking about, that regardless of your circumstances as a person and how bad they may be that you find yourself in, uh, what you've gone through, what external forces are acting upon you, there is a part of you that is free and self-determined and and able to, for example, follow [[Christ]] even if that costs you your life. Right? Uh, that can be brought out, this this person who God created within you, regardless of whatever forces the world may want to marshal against it.
+
+**Jennifer:** So first I just wanted to say, [[Father Stephen]], thank you so much for your last words on the episode, um, so something kill a goat. You had kind of given a similar, similar answer to someone else's question when they were asking about burial and cremation. And the way that you put it, it's just like, God loves us. Coming from a Protestant background, even though we are told that, I just feel like that's, and you guys know because you also came from Protestant backgrounds, but it's, it's so powerful to just be like, oh yeah, God, God loves us and he wants us to be saved and it's there in the scriptures and why don't we believe it? Um, so just thank you, thank you for putting it the way that you put it and saying.
+
+**[[Fr. Stephen]]:** Thank God.
+
+**Jennifer:** [Listen from 01:02:59](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:02:59) Um, so my question actually goes back to the episode on divination. Um, when I was listening to it, I thought, is this, is this kind of what personality tests are these days? I have so many friends that are really into the Enneagram and Myers-Briggs and I hate personality tests, but I don't know if I'm just biased because they never give me any useful information, or if I hate them because they're spiritually wrong.
+
+**[[Fr. Andrew]]:** You must be an ENFP clearly.
+
+**[[Fr. Stephen]]:** True, true story. [[Father Andrew]] took a personality test and it came back negative.
+
+**[[Fr. Andrew]]:** It's true. Oh. Oh. It's true.
+
+**[[Fr. Stephen]]:** Yeah.
+
+**[[Fr. Andrew]]:** [Listen from 01:04:18](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:04:18) I mean, it would be so easy to just go all out on this question. Um, indulge yourself, sir. Yeah, why not? I mean, I think everybody's looking for some kind of skeleton key, you know? Um, yeah. And I I think that like it's interesting to me, I've noticed, you know, like part of my job I I use social media, unlike [[Father Stephen]], who just watches other people use social media. Um, I I and you know, when you use social media, you notice of course that ads are, you know, they're tailored to you and the best guess, right? And one thing I noticed is that when I, when I turned 50, the ads like suddenly shifted, you know? And because of course like, I mean like my my age is is in these things. So um, and there were all kinds of ads that were promising like they were techniques that had to do with usually health problems, you could tell I'm turning 50, or or or like, oh so you're at a certain stage in your marriage now. You know, like it's interesting, all these things suddenly went in this direction. And almost all of them were just like, look, if you buy our program, if you do our technique, if you whatever, you know, and and often the promises were like, I did this one thing, crazy thing for a week and it completely flipped my marriage or completely flipped my health or completely whatever, whatever, whatever. And I think a lot of these personality tests, I mean there's obviously a big variety of them and they function in different ways. I have friends who frankly, you know, think that they are useful and use them in their counseling practice. Um, you know, thank God I'm not a counselor. But but I don't know what I would do with myself if that were my job. Um, but but I I I think that people are looking for, like I said, a key, you know, like, oh, so this is the, and then and what gets even more amazing like, okay, I'm this, and then the person that I'm with is that, and of course, of course you would say that, you're such an INTJ, you know, the one I know the best is Myers Briggs. Right. And, um, you know, which I know all about INTJs because I'm pretty sure my brother must be one. Um, and he doesn't listen to this show, but people who know him do. Um, and so it's it's really tends to be reductionist, is I think the problem and and in many ways often kind of cuts off the idea of repentance, you know, this is just who I am, this is just who you are, and that's just the way that it is. Yeah. Um, and and so I I I think that that's, is it a form of divination? Maybe, in that divination of course is looking for that again, the skeleton key, you know, the answer. Um, and and within the Christian context, the answer is is usually, okay, be faithful long term, whether you have results or not, because it's the right thing to do and because, you know, God will honor your faithfulness, um, even if the person around you is not, even if it doesn't feel any different, right? I mean, I I so I, I don't think that those things are necessarily useless. Some are more useless than others probably. But I I think that the reason that people are interested in them is largely not good. Even if it's well-meaning, because it's it's in many ways is about short-circuiting the hard work of being human, you know, and sometimes about making excuses. Like I've known of people who have gotten divorced when they found out what their, you know, different personality types were like, oh, this was never going to work, you know, because you're this and I'm that. And and that's wrong. That's absolutely wrong. You know, um, so I mean that that's that's my take on all that. What do you think, [[Father Stephen]]?
+
+**[[Fr. Stephen]]:** [Listen from 01:08:10](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:08:10) Yeah, well, I, so is the Myers Briggs the four-letter thing? Yes, yes. Okay, yeah. So I I took that like three or four times over my high school, undergrad, early grad school days and got completely different results each time. Oh nice. Um, which kind of told me that maybe, I don't know, that's super helpful. But I I I think to me part of the issue is that it's kind of a way to get softball self-knowledge. Like the most important thing you can have in life is self-knowledge, is to really come to know and understand yourself. And this is a way of doing that that's very clean and nice because no matter what results you get on that test, you're not going to like look up your four letters and it's going to say, you're a jerk, you have no friends, right? Like... It's always going to be like... It's always going to take, oh, here are your good qualities and then here's a way of making your bad qualities sound not so bad, right? Um, and that's not real self-knowledge, right? And this is a problem with a lot of counseling, too. Right? Is that a lot of counseling does the same thing. There's never, you're never really called upon to actually confront yourself. Right? It gets short-circuited at some point. Like you're talking to a Jungian and you know, it's like, okay, you've now come to see your shadow self. Now embrace it, you know? Um, that's the opposite of what you want to do with the dark parts of yourself, right? You want to repent of those. You want to try to exercise those, right? And so to me that's that's part of part of the danger of it, right? It's kind of a bootleg confession for people who don't have confession. And it doesn't have the same effect. Okay, well thank you so much. Yeah, right. Okay, so repentance, self-knowledge leads to repentance and the problem with these is that it doesn't really give you self-knowledge and what it does give you is kind of telling you like pat on the back, like you're doing okay. Yeah. It could be or it could be, you know, pretty damning. Uh, you know, it could be very, you know, it could be kind of depressing.
+
+**Jennifer:** So in personality is there's like personality disorders and these are not part of the personality tests of course, but like in narcissism and stuff like that, they like they basically have difficulty seeing a need for repentance. How does that work for them?
+
+**[[Fr. Andrew]]:** [Listen from 01:11:14](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:11:14) I mean, I don't know what it's like to be a narcissist who doesn't see a need for repentance.
+
+**[[Fr. Stephen]]:** I do. Oh.
+
+**[[Fr. Andrew]]:** [Listen from 01:11:19](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:11:19) You know what it's like for me to be a, no. Yes, everyone who knows you knows what it's like, [[Father]]. That's right. No, I mean, we're all selfish jerks, right? Um, in one way or another, right? We all are, whether that's labeled with the term narcissism or not. Um, yeah, I mean, one of our prayers is to be granted a vision of repentance. Like like we're praying right now in Lent, grant me to see my own sins and not to judge my brother. That means I don't see my own sins. So I'm asking God, show me. I I might know some of them, but just be, you know, oblivious about other ones. And and that's why we have our husbands or our wives, uh, or, you know, other people that we're living with and our spiritual fathers, you know, to say, look, you know, yeah. Yeah.
+
+**[[Fr. Stephen]]:** [Listen from 01:12:43](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:12:43) Yeah, the, I think it's important too. And this goes back to some stuff we talked about with the Michelle Foucault on the uh, didn't think he was going to come up tonight, but uh, in our episode about about madness in the sense of how he shows how we've now medicalized this stuff. So somebody will be like, oh, well they've been diagnosed with borderline personality disorder or they've been diagnosed as as a narcissist. And the language we use causes us to frame it as if like they got measles. Right. And sort of like, oh, well it's not their fault. What those things mean, what those diagnoses mean, actually mean in the real world is that there are certain things emotionally and spiritually and mentally that it is harder for those people to do than the average person. It comes less naturally to them. That doesn't absolve them of the need to do it.
+
+**[[Samuel]]:** So first I wonder if the the reason why the VeggieTales characters are all Protestant is because since they don't have any hands, none of them can be ordained because none of them can lift up the chalice or do any of the other things that require hands.
+
+**[[Fr. Andrew]]:** Wow, that may be the spiciest take we've heard in a while, the [[Lord of Spirits]] podcast. But they do move things around. How are they doing that?
+
+**[[Samuel]]:** I don't know.
+
+**[[Fr. Stephen]]:** Also, if they, if they were Orthodox when Lent came, they would not be safe.
+
+**[[Samuel]]:** [Listen from 01:15:55](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:15:55) And I was also wondering about the consecration of a church and so in previous, uh, shows you've talked about how, uh, the, the, in the Paschal service, the lift up your gates so you princes Psalm is, uh, the part of participating in the harrowing of [[Hades]]. So in the, in the consecration of a church, like for example, a church that used to be a pagan temple, like the Parthenon, would that be, would the bishop consecrating that as a church be speaking to Athena, the former patron of that church?
+
+**[[Fr. Andrew]]:** Wow.
+
+**[[Fr. Stephen]]:** [Listen from 01:17:09](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:17:09) Basically, yes.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** Yeah. Yeah, because that is, not just the invasion of the other world, but the, specifically the invasion of Baal's palace in the other world.
+
+**[[Fr. Andrew]]:** Yeah, Psalm 24. Have you got a copy of the Baal book or is as our our voiceover person said the the Baal book?
+
+**[[Samuel]]:** Yes. So if a pagan temple was selling, uh, was raising funds to build idols, would be they be selling Baal bonds?
+
+**[[Fr. Andrew]]:** Isn't that one of the titles of your chapter?
+
+**[[Fr. Stephen]]:** I think that's one of the chapter titles, is Baal bonds. I think I did. Yes, Baal out.
+
+**[[Fr. Andrew]]:** People don't know what they're missing if they haven't gotten this book. I mean,
+
+**[[Fr. Stephen]]:** It referenced to the, to the commercial. Uh, wasn't [[Origen]] convicted of Baal worship as one of the...
+
+**[[Fr. Andrew]]:** Wow.
+
+**[[Fr. Stephen]]:** Anyway,
+
+**[[Samuel]]:** Yeah, it was a pretty interesting book. I'd never really thought about the connections between Baal and Zeus. Yeah. Yeah, absolutely.
+
+**Jordan:** Hello?
+
+**[[Fr. Andrew]]:** Hello.
+
+**Jordan:** Yeah, yeah, I just wanted to, yeah, I just wanted to clarify because, uh, on two things because one, I think, uh, [[Father Stephen]] when he was talking about like virtue, uh, about faith being like a, um, what is it called? Like a, um, you know, you can't, uh, you're unsure about it, right? Um, especially like in the Protestant kind of worry, um, and especially I know that for Calvinism that's really prevalent because you have to look towards your works. But I know in like Lutheranism they look towards the sacrament, so I don't know how that applies to it if that was like my first follow-up and then I have a second one after that if that's okay.
+
+**[[Fr. Andrew]]:** [Listen from 01:21:26](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:21:26) I'm not sure I understand exactly what you're asking. Could you re, I don't know, [[Father]], did you get that?
+
+**[[Fr. Stephen]]:** [Listen from 01:21:32](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:21:32) I think, yeah, no, I think I, I think I know what you're talking about, right? Yeah. Yeah. So I'm talking about, so the Lutherans still also consider faith to be an empty virtue and a receptive faculty, right? But as you point out, they will often when asked about assurance, they will point to the sacraments because they say, a Lutheran would say, well, a Lutheran would say, [[Martin Luther]] said in his catechism that the, the sacraments, at least the ones he accepted, which are actually three, uh, baptism and the [[Eucharist]] and absolution, those are purely receptive. And and he said that, right, infant baptism is the purest form of baptism because the baby contributes nothing, right? The baby just receives baptism. Uh, you receive the [[Eucharist]], you receive absolution, forgiveness of your sins, right? Um, and that's why he was so keen on having it be absolution and not confession. Right? Because confession can be something. But so, so the problem with that, the problem with that, uh, that's a better approach than the Calvinist approach. I will say. There there are things to recommend it over the Calvinist approach. But you still have the problem of Judas was baptized. Judas even received the [[Eucharist]]. It was still in his mouth when he went and betrayed [[Christ]]. Okay, yeah, yeah, yeah. Right. You see what I'm saying? Like there there are people who aren't going to end up finding salvation who have received the sacraments. Yeah, yeah, yeah. I guess that would make sense with us like the thief on the cross as well. Yeah. Yeah.
+
+**Jordan:** Uh, okay, yeah, that makes a lot of sense. And I deeply appreciate you answering it. The second follow-up I just had was like, I just want to make sure I understood like the Eastern Orthodox idea of like the righteousness, because like I think I got it from what you guys have said in the past on the podcast and like I read your writings. Uh, but I just want to confirm like a, because like in my head I think it makes sense, but I don't know if, you know, I want to make sure I'm like understanding it correctly. Um, because in my head I was thinking like, uh, the Eastern Orthodox view is that you know it's about theosis and that the righteousness is [[Christ]] and the relationship that's formed from yourself, therefore there's not like a problem of like, oh am I perfect or not because you're you're growing closer to [[Christ]] and that perfection and righteousness is the person formed out of [[Christ]]. Is that, am I understanding that right or am I totally off like thinking wrong?
+
+**[[Fr. Stephen]]:** [Listen from 01:24:59](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:24:59) Yes, so this is, this is, um, so what is understood as links in a chain, right, in in classical [[Protestantism]], we understand as aspects of theosis. So justification, being made righteous, us becoming righteous, us being set right, right, put back in order, that is one sort of facet of theosis. [[Sanctification]], us being made holy, that's another facet of theosis. That's another thing that's happening in theosis is we are being made holy. Uh, glorification, us coming, [[Christ]]'s coming to share his glory with us is another facet, right, of theosis. All of these are going on at the same time. And none of these are us being made holy or righteous or or receiving our own glory like apart from God. All of this is us coming to participate in God's righteousness, God's good order, God's holiness, God's, uh, glory in and through [[Christ]], right? And through us being transformed into his likeness. Yeah. Yeah. Okay. Okay. Yeah, yeah. I appreciate you clarifying and I appreciate you answering answering the follow-ups I had with all that and my rambling. I appreciate it and your patience and have a you guys have a good night.
+
+**[[Fr. Andrew]]:** You too. Thanks very much for calling, Michael.
+
+**David:** Hello, is this thing on?
+
+**[[Fr. Andrew]]:** It is on. Where where are you calling in from here in the Keystone State?
+
+**David:** Um, uh, my town is Thompsontown, but a lot of people don't know where that is. It's it's kind of outside Harrisburg a little bit.
+
+**[[Fr. Andrew]]:** Oh, okay. All right. All right. All right. Well, hello down there.
+
+**David:** Hello. What's on your mind? Um, I have kind of a fun question, but maybe it might turn out to be useful for someone. Uh, so as I'm still new to this, I'm looking at soon becoming a catechumen, uh, and like talking with my priest about that, but, uh, I was, you know, doing things like making the sign of the cross and praying and it's just been really, really helpful for me, but I don't know, the funny thing I think is like if someone were to, if someone were to, you know, lose their right hand, which is typically the hand you would want to use, is it, is it, you know, would they just start using their left hand? Or is this kind of like how Dr. Strange was getting hung up on not being able to use the sling ring because of his hand, they showed him, well, it doesn't matter because look at this guy with no hands that can use it.
+
+**[[Fr. Andrew]]:** I'm not a Whovian. Uh, it's too creepy for me.
+
+**David:** No, Doctor, Dr. Strange man. I'm sorry.
+
+**[[Fr. Andrew]]:** Did I say Dr. Who? Oh, sorry.
+
+**[[Fr. Stephen]]:** He's falling asleep already, old man.
+
+**[[Fr. Andrew]]:** No, he said Dr. Strange. I heard Dr. Who. I I have, I have a, I have a, some of the stuff is is not coming through. Um, either way, I'm actually, I'm not that much of a Dr. Strange fan either. I mean, I like him, I just don't know his stuff that way.
+
+**[[Fr. Stephen]]:** Is it because of the Amy Grant thing?
+
+**[[Fr. Andrew]]:** Yes, it's because of the Amy Grant thing. Okay. Makes me so happy. Um, no, I mean, if someone's mis, okay, if someone's missing a hand, they're missing their right hand or their right arm, that would be even even easier to ask, you know, I I don't see why it would be a problem for someone to use the other hand to make the sign of the cross. I I just don't see why it would be. You know, and I mean, I've I've I've recalled, I can't remember if this was in a patristic text, but I think it was. Um, you know, one of the, whoever the writer was saying something to the effect like if you can't use your hand for some reason, like for instance, I think in the case of maybe a Christian who's captive and his hands are tied, you know, that they said, well, you can still make the sign of the cross with your eyes. Oh yeah. You know, move your eyeballs inside your head. So like, it it's not like there's something magical about a particular hand or whatever. It is obviously the custom, it is with lots of amazing symbolism to use the right hand. Right. But but it's not like it's an an absolute, you know. So, yeah, it's okay. I don't know. what, what else?
+
+**[[Fr. Stephen]]:** I'm just grumbling around in my head about the Doctor Strange thing because now I'm like, should you sort of make the sign of the cross with your phantom limb? That's what I was thinking. Yeah. That's like a whole fascinating concept. So I've just been ruminating on that while [[Father Andrew]]'s been actually answering your question. Yeah.
+
+**[[Fr. Andrew]]:** Yeah. So, all right, well, uh, there's been a lot more, uh, pop culture this time around than I was expecting. So, uh, thanks for that. So thanks for, thanks for calling, David.
+
+**Tyler:** Hello, fathers? Hello. Hi. Um, I have a question about the breastplate of St. Patrick. Yes. So, um, it even before I was Orthodox, it's like people discover it and they think it's this amazing and beautiful tear-jerking poem and prayer. And, um, even since becoming Orthodox, I thought, well, it's a nice way to take a lorica, like a, like a magical spell formula and switch it out into a prayer. And then I listened to you guys and I'm back to thinking it's probably magic because the, the first portion of the prayer is calling all these powers of nature to defend you. The second portion of the prayer is plugging [[Christ]] in for other beings, but in a like, almost kind of, it feels kind of like warding people off with him in a way that doesn't feel right. And then the third part of the tradition is that St. Patrick wrestled with God on the mountain until he convinced God to save anyone's soul that prays the prayer every day, which feels definitely magical. So, I just wondered your thoughts on it.
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Yet another facet of the Irish problem.
+
+**[[Fr. Andrew]]:** Wow. Although St. Patrick, of course, was not Irish. No, yeah. He was an immigrant. Well, you know, he was initially taken as a slave by the by Irish pirates. Um, so really there's nothing in the breastplate of St. Patrick or the Lorica, as it's also called, that is not biblical. Okay? So, I mean, Lorica itself, it just means body armor. So that's why it's also called the breastplate of St. Patrick. It's just a translation of that word, that Latin word. Um, but I mean, let's look at how it begins, right? It says, I arise today through mighty strength, the invocation of the [[Trinity]]. Right. Right? That's where it begins. And that's the frame for the whole thing. Okay? Um, and you know, it it goes on for instance, talks about, you know, a belief through the in the threeness of the [[Trinity]], the confession of the oneness of the [[Trinity]] of the creator of creation. So this is clearly like it's it's all about through God, you know, and who he truly is, right? I mean, the way that it continues on is the strength of [[Christ]]'s birth in his baptism, the strength of his crucifixion in his burial, the strength of his resurrection in his ascension, the strength of his descent for the judgment of doom. Right? It is sent into [[Hades]], right? Like and then there's references to calling upon, you know, the various ranks of angels, through the various kinds of saints, all this sort of stuff. I mean, this is, this is, it certainly has a different kind of poetic character to it than a lot of like um, you know, Byzantine hymnography. No. But the content itself is is really no different than all of that. So even if someone says, you know, even and even though you get for instance this notion of uh the strength of heaven, the light of the sun, the splendor of fire, whatever, the frame for all of that is God's creation of those things. Like all those things are gifts from God. There's nothing good that does not come from God. Nothing good that does not come from God. Yeah. Right? So if I say something like I arise through the strength of my my right hand, well, that doesn't mean I'm trusting only in myself. I mean it might mean that, but but if I acknowledge that that comes from God and that is a gift from God, then it's because of what God has given me. Right? I mean you the whole thing is that way. Um and it goes back and forth between, you know, references to things in creation, but also um God's particular his actions, right? God's strength, his might, his wisdom, his eyes, his ears, his word, his hands, on and on and on. I mean just goes on and on. I mean you, you know, I'm looking at the text right now as you might have guessed, you know.
+
+**Tyler:** I thought you memorized it. I was impressed.
+
+**[[Fr. Andrew]]:** Well, don't be too impressed. Um, I know people, I know people who who who have memorized of course, you know, um, but um, yeah, I mean it's it's really and it ends with the invocation of the [[Trinity]] as well just as it does in the beginning. You know, and right before that, [[Christ]] with me, [[Christ]] before me, [[Christ]] behind me, [[Christ]] in me, [[Christ]] beneath me, [[Christ]] above me, [[Christ]] on my right, [[Christ]] on my left, [[Christ]] where I lie down, [[Christ]] when I sit down. I mean, what is he putting his his his faith in? It's really obvious. It's really obvious, okay?
+
+**Tyler:** So was it, did I misunderstand then? I guess I would have thought that your definition of like magic or idolatry or witchcraft was the the control aspect of it, whether whether [[Christ]] is the the recipient of the prayer or not.
+
+**[[Fr. Andrew]]:** Well, okay, what makes what makes Christian prayer different from pagan prayer is the understanding that God is completely free and is in no way manipulated by the particular words or actions that you take. So it's it's a request. It's it's a prayer. Indeed, prayer means to ask. Yes, yeah. Right? I mean, this idea that if someone says the prayer every day, they'll be saved, within the whole context of the Christian tradition, of course, that doesn't mean if I just read this out loud and do nothing else as a Christian, that I'm golden. Right. You know, of course, it doesn't mean that. The whole Christian tradition mitigates against that interpretation. I mean, are there cases of people using traditional Christian prayers as a magical formula? Of course there are. Of course there are, you know? I mean, in Psalm 50 or, you know, 51, depending on which version of the [[Psalms]] you're reading, you know, Greek or Hebrew, you know, David says very deliberately, you know, basically that God has reject, you know, God doesn't want your sacrifices, your actions, you know, like this, if you don't have a contrite heart. But then when you have it, then you do these things. This is the whole package. Right? And there's many places in the Old Testament where God basically says to Israel, cut it out because you're not living right. Right? So, so you know, they're acting, they were acting as though the actions themselves or the prayers themselves kind of took care of everything.
+
+**Tyler:** So even in one sense, if you live by that prayer every day, you will be saved.
+
+**[[Fr. Andrew]]:** Absolutely. I mean, if you do everything that's in there and you live in such a way that you're putting your faith in [[Christ]] in all these ways and you're invoking all the saints in all these ways, like, yeah. I mean, this is, this is one of the most awesome pieces of Christian poetry that that we have. And it's it's I I love the fact that it's so beloved in the English language and that that a lot of Orthodox Christians have latched onto it. You know, um, it's it's completely an Orthodox prayer. In every way.
+
+**Jordan:** Hello, fathers blessed. I have a question about the uh in the second second temple period or after the exile when the ten northern tribes were said to have been destroyed. I was curious about mentions in the New Testament of certain individuals who are said to have been from that tribe. So specifically in the book of [[Luke]] with the prophetess Anna when it says that she's from the tribe of Asher. Yeah. And I also think I read I read somewhere that one another one of the New Testament female saints was said that she was from the tribe of Issachar. Um and so I was curious as to what the traditions were at that time. Like did those people have families that were from those tribes and like was that common or is that kind of a anomalous event?
+
+**[[Fr. Andrew]]:** [Listen from 01:29:34](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:29:34) Yeah. Well, I mean, so destroyed does not mean erased. Like every single person is wiped out. Right? Uh, just like for instance, you know, if if if a church gets destroyed, that doesn't mean that there's no stone left standing on another that there's nothing left. It just means it's smashed. Right? Um, so the the 10 northern tribes being destroyed, I mean, they they're carried off, but some people are left. There's people that are hanging around, you know, intermarrying with the people that the Assyrians brought in there and you know, you get the Samaritans. And then of course, a lot of those tribes, most of those tribes have been carried off, they eventually become absorbed into the nations. But it takes several generations for that to happen. Um but people who are left in Judea, some of them are going to have ancestry, including paternal ancestry from one of these other tribes for various kinds of reasons. But that doesn't mean that the tribe still exists. It means that there's a person from that tribe that's around. You know, but a tribe is the, but no right, but a tribe is the community. If the community is no longer there, is not really functioning, um, they can they absolutely can be said to have been destroyed or carried off or, you know, whatever. Right?
+
+**Jordan:** Yeah, I guess that that definitely makes sense. Maybe curious,
+
+**[[Fr. Stephen]]:** [Listen from 01:31:02](https://media.ancientfaith.com/lordofspirits/los_2024-09-26.mp3#t=01:31:02) so slight um actually. Okay. All right. All right. That may have been the case. That may have been the case in some cases. So I'm not ruling that out entirely, right? But we also know and this is this is getting into biblical things that people don't read, right? Uh, like first Esdras and right? And even the canonical [[Ezra]] in Greek. Um, so after the exile, uh, after the the people of Judah, which include some Benjamites and some Levites, um, after they return to the land, they have a lot of problems, right? That gets laid out in the [[Ezra]] literature and in [[Nehemiah]]. And in a few cases, they have people who are then dwelling in the land, who weren't Samaritans, weren't the people who are later called the Samaritans, but other peoples who had been moved there by the Assyrians and stuff, who helped them, like tribal groups that helped them. And when they did that and entered into a covenant with Judah, they became part of the people. Uh, they sort of adopted those people into some of the missing tribes. So, uh, and Issachar is one of the tribes that's specifically mentioned in First Esdras. Uh, as this particular group, they were, they said, okay, you guys could be part of us now, you're Issachar, right? Um, reconstituted them. Right. And so even though they were Gentiles, right? And this is one of the little steps on the way toward Gentile inclusion. In the sense that the reason the the Judaites thought they could do that, right? Because you'd say, well, why didn't they just adopt them into Judah or Benjamin, right? Yeah. They already had the idea at that point that the people of the nations, right, into which, especially the, uh, the northern tribes had been scattered, were going to reconstitute the tribes. That idea already existed at the end of the exile. Many things that Christians didn't just make it up. Yes. And it pre-existed that. Yeah. Yeah. And so those people, by the time you get, so now we're talking about 500 years later when we get to the New Testament, so some of those folks are descendants of those people who were sort of adopted in that way.
+
+**Jordan:** I see. Okay. It's very interesting. Thank you.
+
+**[[Fr. Stephen]]:** Yep.
+
+**[[Fr. Andrew]]:** Yeah. Yep.
+
+**Jordan:** It's very interesting. Thank you. Yeah. Yep.
+
+**[[Fr. Andrew]]:** All right. Thank you for calling. We're going to take one more call and it's Jordan, you're our final caller and you're calling from the holy land of Virginia, but apparently from Northern Virginia, which is kind of not Virginia. Is it better be good.
+
+**Jordan:** Oh gosh, there's so much pressure.
+
+**[[Fr. Andrew]]:** I mean, you do live in the in Satan's in the shadow of Satan's throne up there, so.
+
+**Jordan:** Yeah, I believe it. I get some sort of prize. Anyways, fathers blessed, I...
+
+**[[Fr. Andrew]]:** God bless you. Thank you.
+
+**Jordan:** I just finished last night listening through all [[Lord of Spirits]] episodes. Wow. So I'm primed and I have a whole lot of questions. But I picked one and uh, if you hate it, you can just tell me to pick another one.
+
+**[[Fr. Andrew]]:** Oh, okay. We'll just say next.
+
+**Jordan:** But uh, so in one of in one of your episodes, uh, you guys were talking about Stephen when he's going and he's seeing himself in the heaven, seeing himself in the council of God and also [[St. Paul]] saying that we're already seated in the heavenly places. Uh, with that idea of eternity in mind, why why would we not pray to ourselves or assuming like we can't know that we're saved and that's why we wouldn't pray for ourselves. What about like somebody like [[St. John]]? Why wouldn't he pray to himself in eternity? And a corollary to that is if with [[Christ]]'s body being resurrected and him being eternal existing outside of time, and therefore being able to walk in the garden of [[Eden]] or in a way having always existed in the incarnate body, then wouldn't that imply that at least with reference to some point in time, the 30 years that he existed on earth, that [[Christ]] had slash has two bodies?
+
+**[[Fr. Andrew]]:** Oh, no. Oh, no.
+
+**Jordan:** I know I know why me whimy questions.
+
+**[[Fr. Andrew]]:** You were doing so well. No. But you put it in the form of a question, so it's like jeopardy. Um...
+
+**Jordan:** But yeah.
+
+**[[Fr. Andrew]]:** Well, I mean, you shouldn't pray to yourself. We'll just start that as our baseline. Um, I mean it's...
+
+**[[Fr. Stephen]]:** What would be the point of that?
+
+**[[Fr. Andrew]]:** Yeah, like what would you do for yourself that you couldn't already...
+
+**[[Fr. Stephen]]:** do for yourself?
+
+**[[Fr. Andrew]]:** Yeah, I mean there's only one you, right? You are you. So... you are you. So praying to yourself implies that you're there's a you and there's a not you that you're talking to, you know? It's it's still just one person. So it's not like, oh, there's me in another part of the timeline. It's still you. I don't know. This is a little wibbly wobbly timey wimey, but of course the whole question is kind of that way. You know, I know I feel like maybe some of the answer to this is some of the stuff that you talked about the resurrection when you had that whole conversation on stage with a certain Canadian psychologist. Um, you think I'm tracking correctly here, [[Father]]?
+
+**[[Fr. Stephen]]:** Well, so... I guess, yeah, part of it is how we're envisioning time, and part of us we can't help it. Yeah, yeah, of course. Right? As [[St. John]] of Damascus talks about this, like we are finite beings in time and space, we that's the only way we can think about things, right? But it's like it's like my least favorite trope in time travel stories, right? That where you have these time travel stories that are badly written where you have some action going on in the past and some action going on in in the future, right? And to build dramatic tension, they're somehow happening at the same time. Yeah. Like, oh no, I need the person in the future to push the button. When will he push the button? Right? And you're like, you're in the past. Right? Like... Yeah. You know, and because it's treating it as if you have like these two like something is happening at the same time in the past and the future even though that's totally nonsensical. Yeah. Like the past and the future are simply different spaces in the same time. Different places. Right. Yeah. Right. And so that's part of the problem with the question, right? And like I said, you can't help doing this because this is how we think. But it's like, okay, [[Christ]] is, you know, walking from Capernaum to Bethsaida in 30 AD, right? Uh, at the same time he's enthroned in heaven. Well, no, not not at the same time. Yeah, not the same time. Right. Like... See what I'm saying? Right? Like we can't help but think that way, but it's not at the same time. Like heaven is not like this other place in a parallel time track, right? So even though there is this weird trippy thing where [[St. John]] kind of meets [[St. John]] in a vision, right? Or kind of sees himself in a vision, glorified, right? Sees his glorified self in a vision, um, that doesn't mean that like right now at the same time that I'm here praying, there is a [[Father Stephen]] at the same time in another place, right? You see what I'm saying? who's glorified, who's also praying. Or suffering in hell or whatever, you know, future me is doing. Um, right, you see what I'm saying? Like the...
+
+**Jordan:** It kind of feel like the transcendence arguments problem that if if that's the case and we're saying that we can't, we can't say that he's at the same time enthroned in heaven because then we're applying the concepts of time to that, then how how do we say that like the divine liturgy is participating in history? Like how are we, how is eternity making contact at all with time or with us in time? Like what, you know, what it doesn't seem like there's an unconnectable gap there.
+
+**[[Fr. Stephen]]:** We're entering into eternity by being brought up into eternity the way [[Isaiah]] was, the way [[St. John]] was, the way [[Ezekiel]] was.
+
+**[[Fr. Andrew]]:** And and you know, the incarnation of the son of God um, breaks down this division, right? Between eternity and time, between God and man, because he is, you know, he is those things all at once. Yeah. Like we can't avoid thinking about it is like, oh, well the angels and saints are worshiping God in heaven right now. And when I go and do that, oh, we're all doing it together, right? That's how we have to think about it because we're finite beings and we're limited in what we can understand.
+
+**[[Fr. Andrew]]:** It's not wrong as far as it goes.
+
+**[[Fr. Stephen]]:** Right. But that's that's not really capturing the reality of it because we can't fully comprehend the reality of it, of the heaven part. The earth part we can comprehend. The heaven part is is the part that we can't fully comprehend. And so we have to sort of turn that into a version of the earthly part that we can understand in order to even talk about it.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**Jordan:** Yeah. No, yeah. I think I think that makes sense. I mean, well, I mean, we just, we know it the best we can. And... Yeah. We have good reasons for believing the things we believe, but we can't comprehend the extent of it.
+
+**[[Fr. Stephen]]:** I guess. Yep. Yeah. There there are certain things where there is mystery and you can't dispel that mystery and understand it. You just have to point at it. Right? Yeah. Yeah.

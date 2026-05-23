@@ -1,0 +1,57 @@
+---
+title: "The Action of Angels"
+tags: [lordofspirits]
+---
+
+## The Action of [[Angels]]
+
+[[Fr. Andrew]] and [[Fr. Stephen]] discuss the roles and activities of angels in the world, contrasting them with the actions of demons from the previous episode. They explore the angelic hierarchy, the concept of guardian angels, and how spiritual warfare is primarily a battle of thoughts within the human mind.
+
+### The Ranks of [[Angels]] and Their Roles
+
+[Listen from 04:35](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=04:35)
+[[Fr. Stephen]] clarifies the distinction between the nine ranks of angels described by St. Dionysius the Areopagite and the seven chief archangels. The nine ranks—[[Seraphim]], [[Cherubim]], [[Thrones]], [[Dominions]], [[Virtues]], [[Powers]], [[Principalities]], [[Archangels]], and [[Angels]]—are not different species but describe different roles or jobs within the [[Divine Council - Unseen Realm]]. The seven archangels, such as [[Michael]] and [[Gabriel]], are understood to be the chief angels across all these ranks, not just belonging to the rank of Archangel.
+
+> [Fr. Stephen at 05:43](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=05:43): The seven archangels are the seven chief angels out of all the angels of all the ranks. And if you pay close attention to the church's tradition, this is borne out. For example, the Synaxarion of the feasts of St. [[Michael]] say he's a [[Seraphim]].
+
+### The Exaltation of Humanity and the Theotokos
+
+[Listen from 08:33](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=08:33)
+[[Fr. Stephen]] explains that through [[Christ]]'s incarnation and ascension, humanity has ascended the heavenly hierarchy, even above the angels. The [[Theotokos]] is presented as the primary example and exemplar of this glorified humanity. Hymns that describe her as "more honorable than the [[Cherubim]] and more glorious than the [[Seraphim]]" place her at the pinnacle of creation. This exaltation is not unique to her in kind but in degree; she represents what all glorified saints become.
+
+> [Fr. Stephen at 17:30](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=17:30): When we're talking about human saints, we're talking about redeemed humanity, glorified humanity. We use her as the primary example because she is the prime example of a glorified human. The things we say about the Theotokos in this regard are true of glorified humanity in general... She's just being used as an exemplar.
+
+### Why [[God]] Works Through Intermediaries
+
+[Listen from 29:30](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=29:30)
+[[Fr. Andrew]] asks why an omnipotent [[God]] needs to work through angels or saints. [[Fr. Stephen]] explains that [[God]]'s use of intermediaries is not out of necessity but out of love. By giving angels and saints roles to play in His plan, He allows them to participate in His life and share in His love. Efficiency is irrelevant to an omnipotent being; relationship and participation are what matter.
+
+> [Fr. Stephen at 31:22](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=31:22): It's the whole reason why [[God]] created anything, and that's love... A big part of love is sharing. We've now turned into Mr. Rogers, but... That's what we're talking about when we say that [[God]] is doing this out of love and for the purpose of love.
+
+### The Nature of Angelic Falls
+
+[Listen from 24:21](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=24:21)
+[[Fr. Stephen]] explains that an angelic fall is not an isolated event but occurs when an angelic being aligns its will with a human will *in opposition* to [[God]]. This communion in rebellion is what constitutes the fall. The mutability of angels is tied to their relationship with humanity, which is why stories from the desert fathers sometimes depict demons repenting through their communion with a very holy person.
+
+> [Fr. Stephen at 25:01](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=25:01): What that means is we're talking about an angelic being aligning its will with a human will over against aligning themselves with [[God]]'s will. So angelic falls happen in communion with humanity.
+
+### The Battlefield of the Mind
+
+[Listen from 25:22](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=25:22)
+The primary arena for spiritual warfare is the human mind, or *nous*. Both angels and demons present thoughts (*logismoi*) to humans. [[Demons]] aim to lead humanity to destruction, while angels aim to guide people toward [[God]]. The battle is about which thoughts we choose to nurture, develop into ideas, and act upon.
+
+> [Fr. Andrew at 32:29](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=32:29): As Orthodox Christians, a thought comes into your head. It's good to ask this question of this thought, "Is this thought going to help my salvation or harm it?" And then you're like, "Oh, it would help my salvation." "Okay, well then I'm going to work with that." "Oh, it would harm my salvation." "Okay, then I'm going to tell it to take a hike."
+
+### Guardian [[Angels]]
+
+[Listen from 49:30](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=49:30)
+The tradition of the Church affirms that a guardian angel is assigned to a person at their baptism. This angel's primary role is to guide the person toward [[God]], protect them spiritually, and intercede on their behalf. The litany prayer for "an angel of peace, a faithful guide, a guardian of our souls and bodies" is a petition for our cooperation with the angel assigned to us.
+
+> [Fr. Stephen at 51:49](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=51:49): That is the guardian angel's most important task: to help guide. But we also pray all the time for that angel to watch over us and to protect us... And because, as we just said, assignments can change... some of those prayers have as their subtext, "Man, I've been doing a lot of rotten stuff that my guardian angel, being holy, doesn't want to know about and doesn't want to see. Don't take him away."
+
+### The [[Holy Spirit]] and Angelic Thoughts
+
+[Listen from 66:36](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=66:36)
+[[Fr. Stephen]] addresses a common misconception, particularly in some Protestant circles, where every good thought is attributed directly to the [[Holy Spirit]]. He clarifies that the indwelling of the [[Holy Spirit]] is about [[God]]'s *presence* within us, making us temples. The communication of specific thoughts or guidance is more typically the role of angels.
+
+> [Fr. Stephen at 71:34](https://media.ancientfaith.com/lordofspirits/los_2020-10-08.mp3#t=71:34): The comparison [St. [[Paul]] is] always making is to the presence of [[God]] in the temple and the tabernacle. And the [[Holy Spirit]] is the presence of [[God]] in us. That's the comparison he makes over and over again. And the presence of [[God]] in the tabernacle and the temple was not like whispering prophecies to the priests while they served. That wasn't a thing.

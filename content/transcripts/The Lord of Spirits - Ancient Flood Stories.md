@@ -1,0 +1,124 @@
+---
+title: The Lord of Spirits - Ancient Flood Stories
+tags: [lordofspirits]
+---
+
+# The Lord of Spirits - Ancient Flood Stories
+
+This is a comprehensive summary of the Lord of Spirits episode "Ancient Flood Stories," originally aired as Episode 123.
+
+## Episode Description
+
+What is the real story of the great flood? The account in [[Genesis]] is not the only ancient record of such a cataclysm. [[Fr. Andrew]] Stephen Damick and [[Fr. Stephen]] De Young look at the pagan versions of the flood story—from Mesopotamia to Greece to the bizarre modern versions—and show how the inspired Scriptures correct and transform them to reveal the truth about [[God]], mankind, and the world.
+
+## Show Notes & Transcript
+
+### Introduction
+
+**[[Fr. Andrew]] Stephen Damick:** [Listen from 01:05](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:05) Hey good evening, Ufologists, paranormal investigators, and psychic psychotics. You are listening to Coast to Coast AFM, and it's episode 123. My co-host, [[Fr. Stephen]] De Young, renowned KJV-onlyist and uncredited subject of the "Bree Sharp" signal, [[David]] Duchovny, is with me straight from the swamp in Lafayette, Louisiana. And I'm [[Fr. Andrew]] Stephen Damick in Ambridge, Pennsylvania, broadcasting live from the [[Ark of the Covenant]] Experience, where no one's going to catch us with our eyes closed.
+
+**[[Fr. Stephen]] De Young:** [Listen from 01:35](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:35) Once, once again... I don't know why they keep putting us on after that guy.
+
+**[[Fr. Andrew]]:** [Listen from 04:27](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=04:27) Tonight, kids, this is our fifth anniversary episode! And this episode on ancient flood stories is our special gift to you.
+
+### Part 1: Mesopotamian Flood Stories
+
+[[Fr. Stephen]] begins by establishing that the story in [[Genesis]] 6-9 is not the only account of a great flood from the Ancient Near East. He discusses several Mesopotamian versions, explaining how they provide the cultural and religious context into which the [[Genesis]] account was revealed.
+
+#### The Sumerian Flood Story
+
+**[[Fr. Stephen]]:** [Listen from 11:07](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=11:07) We're going to start with what's called the Sumerian flood story. And it's called the Sumerian flood story because it is on tablets that are written in the Sumerian language. And because it seems to be part of a larger story where we're just missing the part before and potentially the part after the flood story itself.
+
+This account is recorded on a tablet dated to 1600 BC, found in the city of Nippur, and currently housed at the University of Pennsylvania Museum. The hero of this story is Ziusudra, whose name means "he of long life." He is identified as the son of Ubar-Tutu, the last king of Shuruppak before the flood, a detail which aligns with the Sumerian Kings List. [Listen from 20:25](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=20:25) The story depicts Ziusudra surviving the flood by gathering his wives and animals onto a boat, seemingly through his own ingenuity, which impresses the gods. As a reward, they settle him in the land of Dilmun, "where the sun rises."
+
+#### The Atrahasis Epic
+
+**[[Fr. Stephen]]:** [Listen from 25:08](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=25:08) Probably the most well-known version of the flood story in the Ancient Near East, as far as we can tell... is the Atrahasis epic.
+
+This version, written in Akkadian and dated to the 17th century BC, presents a more complete narrative. It begins with the lesser gods creating humanity as a slave race to do their work. The flood is sent by the most high [[god]], Enlil, because humanity has become too numerous and noisy, preventing the gods from sleeping.
+
+**[[Fr. Stephen]]:** [Listen from 39:05](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=39:05) The reason we're told why in the Atrahasis epic is that the humans have gotten too noisy, and so the gods can't sleep. There's this horrible racket coming from earth all the time.
+
+The hero, Atrahasis ("the most wise one"), is a [[priest]] of the [[god]] Ea (the Akkadian equivalent of Enki). Ea repeatedly thwarts Enlil's attempts to wipe out humanity (first with a plague, then a famine) before finally instructing Atrahasis to build a boat to survive the flood. After the flood, Atrahasis and his family are made immortal, but the gods inflict humanity with early death, infant mortality, and barrenness to control their population.
+
+[[Fr. Stephen]] contrasts the character of Enlil with [[Yahweh]], noting Enlil's actions are comparable to those of Pharaoh in [[Exodus]] 1, who sought to kill the Hebrew children because they were becoming too numerous.
+
+#### The Epic of Gilgamesh
+
+The flood story in the Epic of Gilgamesh is a later retelling that is nearly identical to the Sumerian version. The flood survivor is named Utnapishtim, an Akkadian name that is a calque of the Sumerian Ziusudra ("he of long life"). Gilgamesh seeks out Utnapishtim to learn the secret of immortality.
+
+**[[Fr. Stephen]]:** [Listen from 55:19](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=55:19) He tries to grab the flower that holds the secret of immortality... and it is snatched away by a serpent.
+
+This detail presents a striking parallel to the story of [[The [[Fall]] of Man]] in [[Genesis]] 3.
+
+#### The Account of Berosus
+
+Berosus was a 3rd-century BC [[priest]] of Bel-Marduk who wrote a history of Babylonian traditions in Greek, the *Babyloniaca*. His version of the flood story features a hero named Xisuthros (a Hellenized form of Ziusudra).
+
+**[[Fr. Stephen]]:** [Listen from 01:04:57](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:04:57) Berosus has at the end of the flood, Xisuthros starts releasing birds to go look for dry land.
+
+This inclusion of birds is a parallel to the [[Genesis]] account. Berosus also claimed that remains of the boat could still be found in Armenia, and that people would scrape pitch from it for use in spells.
+
+### Part 2: The [[Genesis]] Account & Its Polemic
+
+[[Fr. Stephen]] argues that the [[Genesis]] account was revealed into a world already familiar with these Mesopotamian flood stories. It is not an independent, isolated narrative but a direct polemical engagement with, and correction of, the pagan myths.
+
+**[[Fr. Stephen]]:** [Listen from 01:30:52](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:30:52) [[Genesis]] 6-9 is written and read and heard in a world that already has those other stories in it... So when the [[Genesis]] story of the flood is told, it's not trying to convince you that this happened. It's trying to tell you what it means.
+
+#### The Cause of the Flood: Wickedness, Not Noise
+
+Unlike the pagan accounts where the gods seek to destroy humanity for being a noisy nuisance, [[Genesis]] states the flood is a response to profound human wickedness.
+
+**[[Fr. Stephen]]:** [Listen from 01:34:10](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:34:10) [[Genesis]] has a very different answer. [[Genesis]] says that the flood comes because of the wickedness of humanity. Humanity is wicked, humanity is evil... We see in [[Genesis]] in the chapters leading up to the flood, specifically chapters four and five, that there's this downward spiral starting with Cain that spirals down to the flood of wickedness.
+
+The flood in [[Genesis]] is not an act of divine annoyance but an act of [[God]] *saving* creation from the corruption of humanity.
+
+#### The Hero: A Righteous Man, Not a Clever One
+
+The hero of the [[Genesis]] account, Noah, is fundamentally different from his pagan counterparts like Ziusudra or Atrahasis. While they survive through cleverness or by being favorites of a particular [[god]], Noah is saved because he is righteous.
+
+**[[Fr. Stephen]]:** [Listen from 01:40:35](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:40:35) [[Genesis]] 6 does not say, "and Noah was just a sinful as everyone else... but [[God]] chose to freely impute the righteousness of [[Christ]] to Noah." That's not what the text says. It says he was alone righteous in his generation. He was the only righteous man on earth.
+
+This righteousness is not self-generated but comes from his faithful cooperation with [[God]]'s grace. He is fundamentally different in his way of life from the rest of the world.
+
+#### The Flood as Uncreation
+
+The description of the flood in [[Genesis]] deliberately inverts the order of creation from [[Genesis]] 1. The "windows of heaven" open and the "fountains of the great deep" burst forth, rejoining the waters above and the waters below that were separated on Day 2 of creation. The dry land, which appeared on Day 3, is once again covered.
+
+**[[Fr. Stephen]]:** [Listen from 01:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:48:00) What [[Genesis]] describes is [[God]] uncreating the world. That's what [[Genesis]] says happened... [[God]] uncreates the world and you're left with where we started at the beginning of the book of [[Genesis]]: the waters.
+
+The Ark, containing the remnant of humanity and the animals, floats on these waters, a microcosm of the new creation to come, just as the Spirit of [[God]] hovered over the waters in the beginning.
+
+#### The New Covenant and [[Atonement]]
+
+After the flood, [[God]] re-establishes creation, giving Noah and his family the same command given to Adam: "Be fruitful and multiply." However, there is a crucial difference. [[God]] now permits the eating of meat but forbids the eating of blood.
+
+**[[Fr. Stephen]]:** [Listen from 01:53:23](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:53:23) So, humans are allowed to eat animals in [[Genesis]] because they need to sacrifice animals. And they need to sacrifice animals so they can get blood. And they need to get the blood so they can make [[atonement]] for sin to keep the situation from before the flood from happening again.
+
+This establishes the principle of [[Atonement - Sacrifice]]. The blood, representing life, is now reserved for the purpose of making [[atonement]] for sin, thereby purifying creation and preventing another total destruction. This is why Christians, following the council in Acts 15, still refrain from consuming blood—it is set apart for [[atonement]], a purpose ultimately and perfectly fulfilled in the blood of [[Christ]].
+
+### Part 3: The Atlantis Mythos
+
+[[Fr. Andrew]] introduces the "weird" section of the episode, where [[Fr. Stephen]] traces the bizarre afterlife of the flood myth, specifically the story of Atlantis.
+
+#### Plato's Original Story
+
+The story of Atlantis originates with the Greek philosopher Plato in his dialogues, the *Timaeus* and the *Critias*. Plato claims to have received the story from Solon, who in turn learned it from Egyptian historical records.
+
+**[[Fr. Stephen]]:** [Listen from 01:57:57](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:57:57) The main place where Plato talks about the Atlantis story and Atlantis as such is the Critias... It is unclear in the Critias... The Critias talks about where Atlantis was in relationship to the pillars of Hercules, which are the ancient name for what we call the Strait of Gibraltar.
+
+According to Plato, Atlantis was a great island empire founded by the [[god]] Poseidon and his ten sons with a human woman, Cleito. The eldest son, Atlas, became the first king. This powerful civilization conquered much of the Mediterranean before being defeated by the ancient Athenians 9,000 years prior. Afterward, a cataclysm caused Atlantis to sink into the sea. Early [[Christian]] writers, including Tertullian and St. Clement of Alexandria, were familiar with Plato's account and treated it as a historical event.
+
+#### The Modern Mythos
+
+The modern, esoteric version of the Atlantis myth begins to take shape after the European "discovery" of the Americas.
+
+*   **Ignatius Donnelly (1882):** [Listen from 02:09:04](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:09:04) This American congressman wrote a book called *Atlantis: The Antediluvian World*. He proposed that the Garden of [[Eden]] was on Atlantis, and that all ancient civilizations, including the Egyptians and the Mayans, were colonies founded by Atlantean survivors. This theory attempted to explain the presence of pyramids and similar structures in both the Old and New Worlds as originating from a single root culture.
+
+*   **Helena Blavatsky (late 19th c.):** [Listen from 02:12:28](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:12:28) The founder of Theosophy incorporated Atlantis into her elaborate theory of "root races." She posited that the Atlanteans were a previous master race, succeeded by the "Aryan" race. Blavatsky introduced elements of psychic [[powers]], advanced crystal technology, and occult wisdom into the Atlantis myth.
+
+*   **The Thule Society and Nazism:** [Listen from 02:15:29](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:15:29) In early 20th-century Germany, groups like the Thule Society fused Blavatsky's ideas with myths of a northern land called Hyperborea or Thule. They envisioned a Nordic/Aryan race of [[giants]] descended from Atlanteans, which became a foundational element of Nazi occult paganism.
+
+*   **Edgar Cayce (early 20th c.):** [Listen from 02:17:09](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=02:17:09) The American "sleeping [[prophet]]" claimed to have clairvoyant visions of Atlantis, including its location. He predicted that parts of Atlantis would rise from the sea near Bimini in the late 1960s. This led to the "discovery" of the Bimini Road, an underwater rock formation that his followers believe to be a remnant of Atlantean civilization.
+
+[[Fr. Stephen]] concludes by emphasizing that these modern, bizarre interpretations are a far cry from the original texts and serve as a cautionary tale about how ancient stories can be distorted to serve various agendas. The key is to return to the biblical text and understand its purpose: to reveal the truth about [[God]]'s relationship with humanity and His plan for salvation.

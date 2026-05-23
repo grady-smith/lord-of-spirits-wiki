@@ -1,0 +1,1357 @@
+--- 
+ title: "Ancient Religion and the Neolithic Revolution" 
+ tags: [lordofspirits] 
+ ---
+# ANCIENT RELIGION AND THE NEOLITHIC REVOLUTION
+
+## Introduction
+
+**[[Fr. Andrew Stephen Damick]]:** [He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=00:00:00) First [[Enoch]], chapter 48, verses 4 through 5.
+
+The modern world doesn’t acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew Stephen Damick]] and [[Father Stephen De Young]], host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by God and experienced by mankind throughout history. Welcome to the *[[Lord of Spirits]]*.
+
+## Introduction
+
+**[[Fr. Andrew]]:** [Good evening, giant-killers, dragon-slayers, demon-dodgers, and hammerers of homunculi.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=01:06:21) You are listening to the *[[Lord of Spirits]]* podcast. My co-host, [[Fr. Stephen De Young]], is with me from Lafayette, Louisiana, and I am [[Fr. Andrew Stephen Damick]] in Emmaus, Pennsylvania, in the beautiful Lehigh Valley. And we are live. So, and if you are listening to us live, you can call us at 855-237-2346, and you can talk to us. We're going to get to your calls in the second half of the show, and our very own Matushka Trudi will be taking those calls.
+
+**[[Fr. Stephen]]:** [Before, before the commercial, um…](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=01:37:37)
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** That news station identification, right? Like right before our intro logo.
+
+**[[Fr. Andrew]]:** With the voice of Trudi?
+
+**[[Fr. Stephen]]:** Yeah. Yeah. Is *we* her new preferred pronoun?
+
+**[[Fr. Andrew]]:** Wow.
+
+**[[Fr. Stephen]]:** [I, I don't want to commit any microaggressions while we're recording.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=01:53:11)
+
+**[[Fr. Andrew]]:** [laughs]
+
+**[[Fr. Stephen]]:** [I thought I'd clarify that before we go live. Oh!](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=01:57:46)
+
+**[[Fr. Andrew]]:** Is it the editorial "we"?
+
+**[[Fr. Stephen]]:** Never mind. Oh, okay.
+
+**[[Fr. Andrew]]:** The royal "we"?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** Okay.
+
+**[[Fr. Stephen]]:** Okay, thank you for clearing that up.
+
+**[[Fr. Andrew]]:** [So this episode, this episode is sponsored by the Orthodox Studies Institute at St. Constantine College, which exists to advance the study and application of Orthodox Christianity in faithfulness to holy tradition.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=02:07:07) OSI is currently offering a live online course on the book of [[Enoch]], taught by our very own [[Fr. Stephen De Young]]. The course is underway, but, by popular demand, OSI has reopened registration, and you can catch up on the recordings of earlier classes and participate in the live classes going forward. So to learn more and to register, go to orthodoxstudies.org/los. Registration is now open also for OSI’s next course, which is Holy Women of Byzantium, and that’s going to begin in October. So, again, go to orthodoxstudies.org/los to learn more about the [[Enoch]] course.
+
+**[[Fr. Stephen]]:** [On Tuesday night, a participant described this course as *Lord of Spirits* in a suit and tie.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=03:01:21)
+
+**[[Fr. Andrew]]:** [laughs]
+
+**[[Fr. Stephen]]:** Although I do not, in fact, wear a suit and tie.
+
+**[[Fr. Andrew]]:** I mean, do you even own a suit and tie?
+
+**[[Fr. Stephen]]:** [I own a suit. I don't think I own a tie anymore.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=03:16:34) I've been a priest for more than 15 years. I think I no longer own a tie.
+
+**[[Fr. Andrew]]:** Yeah. Yeah. So, well, in the long-ago times, there was something called the Stone Age, and this is generally divided into the Paleolithic, Mesolithic, and Neolithic periods, which just means Old, Middle, and New, people. It is this last period from which archaeology tells us something about ancient religion. But what does this have to do with Christianity? And how should we understand the continuity of religion from that most ancient of detectable prehistory to the Orthodox Christianity of our own day?
+
+We should probably start with asking what religion is, though. So I'm assuming everybody agrees on what religion is?
+
+**[[Fr. Stephen]]:** [Pretty much.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=04:07:07)
+
+**[[Fr. Andrew]]:** Oh. That's just that's the first half is gone.
+
+**[[Fr. Stephen]]:** Yeah. There we go. We can roll right in. Go ahead and go to break. Yeah.
+
+**[[Fr. Andrew]]:** Well, I also want you to know, I don't know if you actually prepared for this evening.
+
+**[[Fr. Stephen]]:** Uh…
+
+**[[Fr. Andrew]]:** [I did by eating my own version of the Paleo diet today.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=04:21:40)
+
+**[[Fr. Stephen]]:** Nice.
+
+**[[Fr. Andrew]]:** So, for lunch I had a pound of bacon and two fingers of Scotch.
+
+**[[Fr. Stephen]]:** [laughs] I had breakfast for dinner, which feels pretty, pretty Paleo.
+
+**[[Fr. Andrew]]:** [Well, it depends, it depends on what kind of breakfast. Are we talking steak and eggs, or?](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=04:37:48)
+
+**[[Fr. Stephen]]:** Eggs and sausage.
+
+**[[Fr. Andrew]]:** Mm, no, that's fair. That's fair.
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** Was it the cheap sausage, with lots of filler?
+
+**[[Fr. Stephen]]:** [No, no, this was, this actually comes from a farm out in western Pennsylvania.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=04:50:35)
+
+**[[Fr. Andrew]]:** Okay. Okay. So, yeah. Yeah, you're doing all right. Yeah.
+
+**[[Fr. Stephen]]:** Thank you very much.
+
+**[[Fr. Andrew]]:** Um… So, uh… Yeah, so we are, uh… There was kind of a confluence of *[[Lord of Spirits]]* tropes for tonight's episode, because on one hand, we like to start episodes in the Stone Age, but on the other hand, our topic tonight is the Stone Age, and everyone knows we don't get to our topic until the third half.
+
+**[[Fr. Andrew]]:** [Waves of disappointment are now flowing through YouTube.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=05:23:42)
+
+**[[Fr. Stephen]]:** Yes. Right. So, which, which one of those would take effect? Well, the latter. So, fair warning, we will, as typical, get to our actual topic in the third half. But until then, we will be laying groundwork.
+
+**[[Fr. Andrew]]:** [Yeah. And as… Comic books, Star Trek, whatever else.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=05:40:53) Yes.
+
+**[[Fr. Stephen]]:** As [[Father Andrew]] alluded, uh, we're going to start by talking about what religion is anyway, right? Because, uh, you say the term religion and everybody kind of thinks they know what that means, but if you press people about what that means, often people can't tell you exactly what that means, in the sense of trying to give a definition, trying to say, "Okay, this is what religion is."
+
+**[[Fr. Andrew]]:** [Yeah, especially something that's going to fit all of the things that we regard as being religions.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=06:14:26)
+
+**[[Fr. Stephen]]:** As being religious, but then also exclude all the things that we generally don't think of as being religious.
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Um, so that's actually a lot trickier right, than it sounds. And even the people who talk about religion the most, and by that I mean atheists on the internet, uh, can't come up with a good definition of what religion is. And therefore we can safely say those folks don't know what they're talking about. Um…
+
+But the and and a lot of these arguments, you will hear these sort of broad statements from the fedora gang, uh… saying things like, you know, "Well, religion is responsible for all the war, hate, bad things, expired lunch meat in the world," right? Like… uh, it's just religion. If we could just get rid of religion, right, then we'd live in this beautiful utopia, right, of wonder.
+
+**[[Fr. Andrew]]:** It's enlightenment. Wow.
+
+**[[Fr. Stephen]]:** [Yeah. And by this I mean, you know, everyone from edgy teens to, uh, Richard Dawkins and Sam Harris.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=07:27:06)
+
+**[[Fr. Andrew]]:** It's true. I mean it's true.
+
+**[[Fr. Stephen]]:** Make these kind of broad, unsupported, yeah… frankly childish statements. Um…
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** So… and again, when pressed, right, what, what's religion and what isn't? Yeah.
+
+**[[Fr. Andrew]]:** I remember when back in the late [[Neolithic era]] when you and I were undergrads, which I know for you like lasted a good two months or whatever…
+
+**[[Fr. Stephen]]:** It was a little less than three calendar years.
+
+**[[Fr. Andrew]]:** There we go.
+
+**[[Fr. Stephen]]:** Did you to exaggerate?
+
+**[[Fr. Andrew]]:** [Didn't you start on your undergrad when you were like 16 or something like that? Is that right?](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=08:05:54)
+
+**[[Fr. Stephen]]:** Yeah.
+
+**[[Fr. Andrew]]:** Yeah. Yeah. A little bit later for me. Um… Yeah, I mean I remember I took, I actually took a class um, in philosophy of science, and the whole beginning of the class was the professor essentially eviscerating every definition that a student could come up with that said, "Religion is on this side and science is on this side." And um, as I told you earlier today, I don't remember the particulars of that class because again, it was in the late Neolithic period, but, um, I did come away with a very beautiful sense of, "Okay, this game is not like what the fedora clan, you know, make it out to be."
+
+**[[Fr. Stephen]]:** Right. Although were were edgy atheists in the early 90s wearing fedoras?
+
+**[[Fr. Andrew]]:** Or more more of they're really kind of a trilby's actually, I think, not actual fedoras.
+
+**[[Fr. Stephen]]:** Yeah, well, yeah. I'm trying to think the atheists I knew. See, those were the old atheists, right? The guys I'm describing are the quote-unquote new atheists.
+
+**[[Fr. Andrew]]:** New atheists. Yeah, that's true.
+
+**[[Fr. Stephen]]:** And old atheists were just a better class of atheist, right? I mean like… Especially if you go real old school, like your your Nietzsche, your…
+
+**[[Fr. Andrew]]:** Oh yeah, that guy actually didn't believe in things.
+
+**[[Fr. Stephen]]:** Yes. That's… Right. Like… There were some top-level atheists, you know, back in the late 19th and early 20th century. You know, and then, you know… I really think the first, like edge lord publicity-seeking atheist who like public atheist to sell books and file annoying nuisance lawsuits was, uh, Madalyn Murray O'Hair.
+
+**[[Fr. Andrew]]:** Oh, yes.
+
+**[[Fr. Stephen]]:** Remember her?
+
+**[[Fr. Andrew]]:** Oh yes. Yes indeed.
+
+**[[Fr. Stephen]]:** Who had an interesting personal life. Um… But, uh… Yeah, she was on Phil Donahue's show talking about how God doesn't exist, which was a super edgy thing to do even on Phil Donahue's show in like the 80s. Um…
+
+**[[Fr. Andrew]]:** Wow.
+
+**[[Fr. Stephen]]:** So, yeah, a lot of atheists were in the closet then, at least in the US. I think, I think in in Europe they were more free to, you know…
+
+**[[Fr. Andrew]]:** But they also didn't have the same chip on their shoulder in Europe, I think. I think they just in Europe they just weren't religious.
+
+**[[Fr. Stephen]]:** [Yeah. I mean, a lot of the… They didn't feel the need to badger anyone about it.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=10:30:26)
+
+**[[Fr. Andrew]]:** A lot of the New Atheist stuff was really not about like presenting any kind of new or better arguments. It was, it was like, "Okay, let's all point and laugh," you know, is is… honestly. Honestly.
+
+**[[Fr. Stephen]]:** Yes. I don't have a religion, but all I'm going to do every day is think about and post about religion. Yeah. Um… Yes.
+
+**[[Fr. Andrew]]:** Whatever religion is.
+
+**[[Fr. Stephen]]:** [Yeah, whatever exactly, whatever whatever that, you know, sort of is.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=10:55:82) You know, and if you ever tried to argue with those people, which I did in the early days of the internet when the system of tubes had just been connected, um… before I realized it was pointless. Uh, you would get these interesting things, you know, because they would say things like, "Well, non-religious people never go and murder religious people for being religious." And you'd bring up say, you know, Stalin, Mao, Pol Pot, right? Uh… Lenin, you know. Um, I would get two responses. One, I literally had an atheist once tell me that uh, Lenin's League of the Militant Godless was not a militant atheist organization.
+
+**[[Fr. Andrew]]:** Which was fascinating, right?
+
+**[[Fr. Stephen]]:** It doesn't do what it says on the tin. Yeah, exactly. It's a sham. Uh, and and, uh, but more common was they would say that communism or Marxism is a religion.
+
+**[[Fr. Andrew]]:** Wow.
+
+**[[Fr. Stephen]]:** Right. So, so any bad ideology that they don't like, even if it was just as atheistic as them, they would try and say, "Well, that ideology is a religion or is religion." Um… So basically everything except science, as they understand it, and of course, you know, they'd taken like three science classes in high school so, but, uh…
+
+Yeah, so even there they would they would get you slid in a slippery way in the other direction, right? And and there were Christian apologists doing that too. Josh McDowell at one point published a book called *Secular Religions*.
+
+**[[Fr. Andrew]]:** Oh, man.
+
+**[[Fr. Stephen]]:** [Where he described like secular humanism and communism and fascism as religions.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=12:40:48)
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** So, you know, that's not, that that's not, "Everything I don't like is religion." That was more, um, in his case I think he was trying to argue that just everybody is religious, like people won't admit it.
+
+**[[Fr. Andrew]]:** I mean, that's basically kind of valid on a certain level.
+
+**[[Fr. Stephen]]:** So yeah, so then you argue, "Well, okay, you're a whatever, so that's really your religion, and Christianity is better than that one." Right, I think was his was the approach he was trying to take, uh, at that point. Um… So where where does the word religion come from? Because it's a relatively late comer to English, but it's developed from a Latin word.
+
+**[[Fr. Andrew]]:** Yeah, it's only from the 13th, early 13th century in English, and, um, I don't have the jingle to play. Sorry everybody. Which is very, I'm not going to do a whole…
+
+**[[Fr. Stephen]]:** …for a Latin word.
+
+**[[Fr. Andrew]]:** Yeah, yeah, exactly. Late for even a Latin word. And when it comes into English, it's it's literally from day one, it's being used to describe like people who live in a monastery. Uh…
+
+**[[Fr. Stephen]]:** Yes, religious. Right.
+
+**[[Fr. Andrew]]:** Yeah, yeah, right, which is, which sounds like a funny way of using it now, like, you know, especially Catholics talk about the religious. And that by that they mean monks and nuns and so forth. Um, but that is the oldest use of it in English, is is that. But the idea is that they're sort of, you know, bound to this particular life, right, which is probably where the Latin *religio* comes from.
+
+**[[Fr. Stephen]]:** [Yeah. People argue about this because, you know, journal articles, dissertations.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=14:15:35) Yeah. Uh… But the majority opinion, a large majority opinion is that it comes from, it's the prefix "re-" in front of *ligio*, which is the same root as ligature, which means to tie or bind something.
+
+**[[Fr. Andrew]]:** [And in this case the "re-" is an intensifier.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=14:34:65)
+
+**[[Fr. Stephen]]:** Yeah.
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** So it's it's something that binds something together. And that that fits right with how religion is used. For example, as we've talked about a lot on the show, uh, one of the main purposes of religious ritual, ritual in general is to bind together groups of people. To maintain, establish, reestablish when broken bonds within a community and between a community and its god or gods. Um…
+
+So that that seems a very apt, right, um, origin for the term, even if we can't 100% prove it. Um…
+
+Now, before that though, right, when we start seeing it used in Latin, um, very early in, uh, Latin literature, right? So, um, Cicero uses it, though in a weird way, um, by our current standards. Um, but I mean, later on Augustine, [[St. Augustine]] uses it. I mean, it's in, it's in Latin. It is a Latin term, albeit one whose meaning shifts over time like all terms.
+
+Um, before that though, before that though, you're talking about various words that we now translate with some version of piety, which is based on a different Latin word. Right? So you're not going to find in Greek literature, for example, there's not really a word for religious. Right? There are some, sometimes people will translate certain Greek words, like in the New Testament as "religious," but really if you translate those words consistency, consistently everywhere they translate them, it ends up being something like pious, piety. Right.
+
+**[[Fr. Andrew]]:** [Yeah, which is which is like like *pius* in in Latin is sort of like dutiful, basically.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=16:39:07)
+
+**[[Fr. Stephen]]:** Right. Right. And so…
+
+**[[Fr. Andrew]]:** And piety that's coming coming the Greek *sebasteia*.
+
+**[[Fr. Stephen]]:** Which has a similar idea. The idea is that, um, this is, this is an ethical, piety is an ethical quality. Right? So we we think of piety or religiosity as this sort of accessory that someone may or may not have, right?
+
+**[[Fr. Andrew]]:** In their life. He's very pious.
+
+**[[Fr. Stephen]]:** Yeah. Um, and then some people are less pious and some people aren't at all, right? But it was considered a sort of ethical virtue, um, right alongside things like courage and honor and dealing justly. Right, what made you a good person, part of that was piety, particularly in the Roman sphere, which is why we get the word piety to translate it. Uh, it was, you know, a sense of honoring all of your duties.
+
+**[[Fr. Andrew]]:** Yeah. I mean, just read, read the Aeneid if you need to know what the Roman idea of piety is. Like Aeneas is he is the pious guy in Roman legend.
+
+**[[Fr. Stephen]]:** Whereas in, um, in, uh, Greek circles, it was more seen as a another way in which a great man could display his excellence, right? But [[Aristotle]], for example, will argue that piety like everything is a mean between two extremes. So someone can for [[Aristotle]] be too pious. Um… Uh, think religious extremist, I guess.
+
+**[[Fr. Andrew]]:** [I don't know, sacrificing one too many goats or…](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=18:39:62) Yeah.
+
+**[[Fr. Stephen]]:** Right. Well, I I don't know. I think it would more be, I think for him, you'd probably be talking about someone who was like overly obsessed with augury or something, right? Like who…
+
+**[[Fr. Andrew]]:** Yeah, yeah, yeah. To the point that it detracted from their life or something, right?
+
+**[[Fr. Stephen]]:** Um…
+
+**[[Fr. Andrew]]:** I've met people like that.
+
+**[[Fr. Stephen]]:** That's augurs?
+
+**[[Fr. Andrew]]:** Mostly on the internet.
+
+**[[Fr. Stephen]]:** Yeah. People obsessed with augury. Yeah. So the, um… And so like when when [[St. Paul]] says to the people of Athens, it's translated often, "I see that you're very religious," right? Um, he's talking about the fact that he sees all these idols and all these shrines, right? He says, "I see," it means, "I see you take these things very seriously." Yeah. Right? Um, "This is something you've invested time and effort as a community in," right? "This is something that is of concern to you." Right? Um, and so they would have received that as a compliment, right? Like, "I see that you are very courageous," or "I see that you are very just," right? The same kind of… Um, yeah, so that, you know, it's important to kind of understand this idea of religion or religiosity in the ancient world, but that doesn't really help us define it too much.
+
+**[[Fr. Andrew]]:** No, because I mean we're pointing at a certain set of, well, various sets of behaviors. I shouldn't say a certain set of behaviors. Various sets of behaviors, and we're calling all that stuff religion.
+
+**[[Fr. Stephen]]:** [Right. Right. And we're talking about some property of a human who has some dutifulness right, or diligence about something.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=20:16:92)
+
+**[[Fr. Andrew]]:** Right. Yeah. I mean within like Greek paganism, it's duty to the gods, but that's that's not the only religion in the world.
+
+**[[Fr. Stephen]]:** And that can take various forms at various times in various places that are radically different, right? Um, so, um, what we've talked before on the show about how our now our definition of religion, as we think about it as modern post-[[Enlightenment]] people, which we all are whether we like it or not, is very much tied up with the concept of religions. Or that there is such a thing as *a* religion. Right? There are these various individual religions out there. And then if we're going to talk about religion in general, right, then like, uh, religion is the genus and then there are all these species right of of religions under beneath that.
+
+**[[Fr. Andrew]]:** [With with groupings…](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=21:24:26)
+
+**[[Fr. Stephen]]:** Underneath those. Yeah. Right. Um… And that is a very new way of thinking. So the idea of *a* religion really, uh, starts being spoken of in the 17th century.
+
+**[[Fr. Andrew]]:** [Yeah. I mean, like when when ancient people encountered people that we would regard as being from a different religion, they would… I mean, they could certainly see that there's a difference between them, right?](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=21:44:81) But it was more like, "These are your ways. These are our ways. You serve those gods. We serve these gods."
+
+**[[Fr. Stephen]]:** Yeah. You know?
+
+**[[Fr. Andrew]]:** That was the way that they conceived it. It wasn't like, "Oh, I have this religion, and you have that religion."
+
+**[[Fr. Stephen]]:** [Yes. "I practice Greek paganism, and you practice, you know, Indian paganism or Persian paganism or Egyptian paganism," right?](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=22:08:79) Because that's not how they thought of it. Right? Um… It was, "Those are your gods, these are my gods. Your gods want you to do XYZ for them, my gods want me to do XYZ for me." Right? And there was a little bit of, "Our gods are better than your gods."
+
+**[[Fr. Andrew]]:** Sure.
+
+**[[Fr. Stephen]]:** Especially from the Greeks. Uh, because the Greeks, even though their gods were originally therianomorphic for example, uh, are always accusing Egyptians and Indians of worshiping animals. Right? "This proves that our religion is more refined." But what they meant by that was, "We understand the divine better than they do." Yeah. Not, "We have a different religion and our religion is better than theirs and we want to try to convert them to ours."
+
+**[[Fr. Andrew]]:** Yeah. That was…
+
+**[[Fr. Stephen]]:** That was not a thing, right? But so the the prerequisite in thought for talking about *a* religion is that there has to be a concept of religion in which religion is an element of human life or human culture that is separable from other elements of human life and human culture. And this is how we're used to thinking about it as modern people. So you have your religion, that's like one basket, you have your politics, that's another basket, you have your, you know, ethnic identity, that's another basket, right? And there may be connections between these baskets. In fact, people will probably argue all of these are connected, but they really are different baskets.
+
+And especially when you look at, um, after the Thirty Years' War in Europe, right? So the Thirty Years' War wrecks Europe, kills like a third of the people. And then after the Thirty Years' War, right? And and Catholics and Protestants have finished for the time being killing each other and don't want to kill each other anymore and they take a break from killing like Jewish people and other minorities. Short break, but right. Um, they say to prevent this from happening again, we need to reconceive of what binds us together as a people.
+
+**[[Fr. Andrew]]:** [Yeah, there's this sort of idea of kind of the secular space on some level is is born.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=24:48:07)
+
+**[[Fr. Stephen]]:** Right. You know, you have this identity of being, you know, Prussian or something like that, you know, that is above your quote-unquote religion.
+
+**[[Fr. Andrew]]:** Right. And so it shifts to nationalism. Right? It shifts to nationalism. Instead of, you know, the center of my identity, the center of someone's identity being, uh, a Roman Catholic, it becomes they are a Frenchman. Yeah. Right? And so someone can be a Frenchman and be Roman Catholic, someone can be a Frenchman and be Jewish, someone can be a Frenchman and be Protestant, right? We have they had to reconsider so that right, they didn't have to, you know, try and kill all the Protestants, right, or in Protestant countries kill all the Roman Catholics, right? Um…
+
+And so this identity formed. And and this is, you can definitely see this kind of thinking at the forefront in the United States today.
+
+**[[Fr. Andrew]]:** [Oh, totally. Yeah. We're Americans first of all.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=25:54:19)
+
+**[[Fr. Stephen]]:** Yeah. And then we have all kinds of different religions and different practices and different cultures, but we're all Americans and that's what's really important, right? Um, and what that does is, right, that that shift of identity then relativizes religions, cultures, political views, all of these other things, ethical views, right? And turns them into these baskets, these ancillary baskets into which different things can be put.
+
+**[[Fr. Andrew]]:** Yeah, and you get this idea that religion is a, can be a private matter.
+
+**[[Fr. Stephen]]:** Right. You know. That kind of thing. So you have this religion socket, right, and you can plug all these different things into the socket. And once you have that idea that it's a socket with different things you could plug into the socket, then all of those potential plugins, right, get referred to as religions. Right? As religions. And, um, so that means, and it was mainly the Europeans doing this, right? This means that, for example, we're going to talk about a religion, Hinduism. And we're going to talk about it like it's an organized religion.
+
+**[[Fr. Andrew]]:** Right. And for people who don't know, the term Hinduism is just a catch-all. It literally means "the religion of the people of the Indus River Valley."
+
+**[[Fr. Stephen]]:** Yeah, it's not… It's not a religion. It's… Yeah, it's just sort of… It's a whole big collection of traditions of over a billion people. You know, most of which are super local.
+
+**[[Fr. Andrew]]:** Yeah. Yeah. And so you get, and and we could say the same thing, right, about, I mean we don't think of it this way, but you could say the same thing about Greek religion. Right? We've kind of thrown everything into this big paganism pile, right? But that's… But the same thing, Hinduism is a religion, Buddhism is a religion, right? And then, you know, the the Europeans taxnomized like as if there were denominations of Buddhism, right? That had split off or something as if it was [[Protestantism]], right? There's Zen Buddhism and there's Theravada Buddhism and there's, you know, that…
+
+Um… And so all these, all these things just sort of get, uh, normalized. And then once you have that, right? So once we have this idea that there are these different religions that can all be sort of hooked up or that people could choose between, you get the whole concept of comparative religions. Right? And the problem with comparative religion, the idea of comparative religion is not that, you know, you can't compare things. You can compare any two things.
+
+**[[Fr. Andrew]]:** Sure.
+
+**[[Fr. Stephen]]:** You can compare a raven and a writing desk. You can compare chalk and cheese. Right? Uh, there there are no two things that you cannot compare to one another. Uh, the problem is that in order to compare things, you have to have some kind of structure in order to perceive commonalities. So if I was going to write an essay comparing chalk and cheese, right? I would have to try to find things that chalk and cheese have in common. That's tricky, right?
+
+But in order to do that, I'd have to do a couple things. Number one, I would probably have to make those comparisons really broad and not detailed. Right? Like, uh, most chalk is yellow or white, most cheese is yellow or white. Right? Which is sort of so vague it doesn't tell you anything about chalk or anything about cheese really. Right? So how helpful is that comparison at that point, right? Because it's so vague.
+
+So that's the first thing that happens. Or you make a comparison in some way, uh, that sort of does a little violence to either chalk or cheese. You can bite off a piece of chalk and you could bite off a piece of cheese.
+
+**[[Fr. Andrew]]:** Many of us out there have done so though.
+
+**[[Fr. Stephen]]:** Technically, technically true. Right? But biting off a piece of chalk and biting off a piece of cheese are two fundamentally different experiences. Right? And so again, you're kind of having to fudge a little on the the side of the chalk, right, in order to make this comparison. And so again, how helpful or useful is that comparison at this point? Right?
+
+And so this is what you find with with comparative religion. Right? You find a lot of square pegs getting beaten into round holes. I think I've mentioned this before on the show, uh, but you you see this, you see this a lot around, uh, Christmas and around [[Pascha]], around Nativity and around [[Pascha]]. The here's all the ways that the story of [[Jesus]] is ripped off from fill in the blank pagan story.
+
+**[[Fr. Andrew]]:** Oh, yes. Yes.
+
+**[[Fr. Stephen]]:** Right? Yeah. And first of all, most of them aren't even true. Right? Like you get this Mithras had 12 disciples stuff. There's literally, there's citation needed. Like…
+
+**[[Fr. Andrew]]:** Yeah, making stuff up.
+
+**[[Fr. Stephen]]:** There is no source for that. Right? Um… But even the ones that are true, right? Like you'll get the list of people who had a virgin birth. Right? And invariably when you get that, one of the people on the list is Adonis. Right? And for those who don't know, the way Adonis was born was Zeus was wandering around one day on his way to probably commit sex crimes. And…
+
+**[[Fr. Andrew]]:** As Zeus does.
+
+**[[Fr. Stephen]]:** As is his want. Uh, and he decided to pleasure himself. Okay? And from the place where he does that, a tree grows.
+
+**[[Fr. Andrew]]:** Yeah. Yeah. I should have given a parental warning at the beginning of this episode.
+
+**[[Fr. Stephen]]:** Maybe, I don't know. I think those were vague enough terms. Um… And so then, uh, years later, a young woman is sitting under the tree, a piece of fruit falls off of the tree and lands in her lap, and she gets pregnant and gives birth to Adonis. And that is just like in the New Testament, right?
+
+**[[Fr. Andrew]]:** Yes, that is exactly like [[Luke]] 2.
+
+**[[Fr. Stephen]]:** [Like you can clearly see how how… St. Luke stole that to describe Jesus' birth, right?](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=32:57:33) So you see what I'm saying? This is an example, right? We go so vague, right? Someone who is born without their parents having participated in conjugal relations, right? And then we say, "Oh, see, look, [[Jesus]] and Adonis," right? But then how helpful is that comparison when you actually read the two stories?
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Right? It doesn't do justice to either of the two stories, right? And it just is kind of absurd, right? But this is because we've got, "Well, Christianity is a religion, and Greek paganism is a religion," right? So… we can sort of chart out and see, you know, how they're similar.
+
+This also, and relatedly, this is where you start getting the sort of taxonomies of religion. Um, and the taxonomies of religion kind of take two forms. One form is, "Well, okay, we're going to, we're going to group things together that we've decided are similar." Right? So you get these big categories like monotheism, which again, it's in the 17th century when people start using that word in Europe.
+
+**[[Fr. Andrew]]:** Yeah, see episode one of the *[[Lord of Spirits]]* podcast.
+
+**[[Fr. Stephen]]:** Yeah. Even though they're Greek words, *monos* and *theos*, right? So the Church Fathers could have talked about monotheism all day if they wanted to, but they didn't use the term. Um… There's monotheism and there's polytheism. Right? So, you know, here's two categories, and all the, all the religions that we're going to say for the sake of argument only have one god, right, we're going to put in the monotheism category, like what do you do with Ahura Mazda? What do you do? Anyway. Like… And then all these other pagan religions where they talk about lots of gods, we're going to put those over in the polytheism category, right?
+
+And you start getting these groupings like, "Oh, the Abrahamic religions." Yeah. Right? That somehow involve Abraham, right, I'll get grouped over here. Right? And you sort of group together things that you think are alike, right? Um… But again, your decision that they're alike is based on these sort of bad, awkward comparisons in a lot of cases. Right?
+
+Um… And then also, you start getting the taxonomies which lead inevitably to the 19th-century German conclusion that all of human religion has culminated in 19th-century German Lutheranism. Um…
+
+**[[Fr. Andrew]]:** [I feel like I've heard that somewhere before.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=35:45:11)
+
+**[[Fr. Stephen]]:** Yeah, because, you know, starting with the most primitive, you know, religion, the most primitive polytheism, right, uh, in their in their taxonomies, the crudest, most idolatrous, you know, polytheism, working their way up to the stately cadence of the German chorale. Right? Um…
+
+And so once we have this idea of these discrete religions, we could chart them into this evolutionary framework of, you know, religion becoming more and more refined until it inevitably leads to us, whoever us is. Um…
+
+**[[Fr. Andrew]]:** I guess earlier in the show, Trudi is is the us.
+
+**[[Fr. Stephen]]:** Trudi is the pinnacle of human development, apparently. Self-proclaimed, that's what's crazy. Um…
+
+**[[Fr. Andrew]]:** Wow.
+
+**[[Fr. Stephen]]:** Right? And so, so all these, all these things just sort of get, uh, normalized. And then once you have that, right? So once we have this idea that there are these different religions that we have, whatever, we've talked about what religion is, or whatever, yeah, whatever that is.
+
+So, yeah, but what we've talked about is kind of descriptive, right, in terms of what has happened and how the term religion and religions came into use and are used, that doesn't really help us understand what religion is though, right? Because as we just talked about, a lot of the the fruit of that, of those taxonomies and comparative religion are, uh, unhelpful and phony, right, and do violence to the actual religious expressions that they're talking about. Um…
+
+**[[Fr. Andrew]]:** [Yeah. And I mean, and just to kind of like… Like sometimes people say things like, "Well, religion is about God." But there are religions that don't have any kind of God figure, or, "You know, religion is about spiritual things."](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=37:25:70) Well, you know, like… I mean, not that you should ever take Scientology seriously. And… Never give them money. Yeah, exactly. Don't, definitely never give them money. Uh, but like their whole deal is that they're sort of using this kind of scientific-ish, yeah, you know, to measure things. You know, like the whole thing is like that they're kind of a non-spiritual religion, you know, like… Anyway.
+
+**[[Fr. Stephen]]:** [Let me tell you, as somebody who's read all 10 volumes of *Mission Earth*, L. Ron Hubbard was not even a good sci-fi author.](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=38:17:15)
+
+**[[Fr. Andrew]]:** Why did you do that? That I need to know, because…
+
+**[[Fr. Stephen]]:** I was really bored one summer.
+
+**[[Fr. Andrew]]:** Like really bored, and they were…
+
+**[[Fr. Stephen]]:** And they had all of them at the local library.
+
+**[[Fr. Andrew]]:** Wow. I remember, I remember the ads for Dianetics in the 1980s, you know, like with the volcano and and all that kind of stuff. Dianetics.
+
+**[[Fr. Stephen]]:** Yeah. I mean, you're 14 years old, you know, you can only afford so many comic books to read. And it's just like, "I'm going to read sci-fi novels," and you know, you've you've gone through the classics, you've gone through Ray Bradbury, you've gone through Isaac Asimov, you're running out of stuff, right? There's a long summer yawning out ahead of you. What are you to do?
+
+**[[Fr. Andrew]]:** The summer [[Father Stephen]] hit rock bottom.
+
+**[[Fr. Stephen]]:** Yeah, you say whatever. And by book six of *Mission Earth*, trust me, you're like, "Why am I reading this? This is horrible." But then it's like a 14-year-old…
+
+**[[Fr. Andrew]]:** But I've come this far, I got to finish it.
+
+**[[Fr. Stephen]]:** But now you're six books in out of 10. 60% is a failing grade, right? Like you can't… Just stop.
+
+**[[Fr. Andrew]]:** You know? If you're… In for a penny, in for a pound.
+
+**[[Fr. Stephen]]:** If you win in at L. Ron Hubbard novels, aren't you failing at life?
+
+**[[Fr. Andrew]]:** I don't know. I don't know, but I I finished them. And uh, I am… Even if you like bad sci-fi novels, I am not recommending them because they are in places literally pornographic.
+
+**[[Fr. Stephen]]:** Yeah, they're not so bad they're good, they're just so bad they're bad.
+
+**[[Fr. Andrew]]:** Yeah. They're just bad. Um… Like L. Ron Hubbard was clearly just a giant weird dysfunctional id, just like pouring out his weirdest and deepest thoughts and fantasies onto a page.
+
+**[[Fr. Stephen]]:** Could it be… Satans?
+
+**[[Fr. Andrew]]:** Yeah. So, um… Yeah. Um… But technically they're a religion, I guess.
+
+**[[Fr. Stephen]]:** They have 501(c)3 status, I think, still.
+
+**[[Fr. Andrew]]:** Yeah. Although in some countries they're not a religion legally.
+
+**[[Fr. Stephen]]:** Yeah, that's true. Yeah. Yeah. Yeah. Um… In in wiser countries perhaps. Um…
+
+So, uh, what can we, what can we come up with as a definition of religion that is both workable, right, meaning there aren't obvious massive flaws in it, right? Obvious massive flaws would be excludes some things that are obviously religious.
+
+**[[Fr. Andrew]]:** Yes.
+
+**[[Fr. Stephen]]:** Or includes some things that obviously aren't.
+
+**[[Fr. Andrew]]:** Yeah, like the classic example would be saying, "Well, religion is about how you relate to God or gods." And people saying, "Okay, well then Buddhism is not a religion because it's sort of non-theistic. Therefore, it's a philosophy." But… I mean, take a look at any kind of Buddhist practice. And I don't, I don't mean California Buddhism, okay? I mean, I mean Buddhism in where it's native. And that is clearly a religion. Just look at it. Just look at it.
+
+**[[Fr. Stephen]]:** Yes. Yes. Richard Gere's, uh, pool parties are not actual Buddhist rituals. Um…
+
+**[[Fr. Andrew]]:** I know, there's probably a lot of disappointed people out there that just…
+
+**[[Fr. Stephen]]:** I know. What? They're like, "That means I've never been to church." Um…
+
+So, uh… And then but also a working definition, meaning a definition that's actually useful for something. Right? That's, that's not like so vague in some way in order to not transgress those limits that it's not, there's nothing to be derived from it. Right?
+
+So here's, here's what we're proposing tonight, right, as sort of a working and workable definition of religion. That religion is a way of being in the world that encompasses all levels of reality and expresses itself in practices. Okay?
+
+So there's three sort of key parts there, Yeah. right? Um… The first one is talking about a way of being in the world, right? Because, and the reason it's phrased that way is that we want to get away from the idea of thought or ideas or beliefs, right? That can be included in a way of being in the world, but sort of isn't required. Right?
+
+So a way of being in the world can include, right, who who you think God is, a relationship you believe you have with him, right, it can include all these things, right? Every belief that any form of Christian or Jewish person or Muslim would Vince and say, "This is, this is a key part of our religion is believing this," right? Uh, that is encompassed in that idea of a way of being in the world. But this also encompasses, right, your peasant farmer who doesn't care about theology, right, but who goes and participates in the festivals, goes and participates in the sacrifices, right? Uh, has the what anybody would call the quote-unquote religious elements of weddings, funerals, births, rites of initiation, right, all of these things, right, yeah. has that in a non-reflective or pre-reflective way, right? Because religion has to include that too.
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Right. So that's why you use the "a way of being in the world," not a "way of thinking" or a "worldview," but a way of being in the world. Right?
+
+Um, so then the second piece is that it encompasses all levels of reality, right? And that sounds, I know, like a weird circumlocution, but if we start talking about the natural and the supernatural or the spiritual and the material, yeah.
+
+**[[Fr. Andrew]]:** That's that's one particular way of looking at that stuff.
+
+**[[Fr. Stephen]]:** Right. You're not going to include all, right, all religions in that. Yeah, yeah, most of, most of what we would consider religion throughout the history of the world does not think of the world that way.
+
+**[[Fr. Andrew]]:** Does not make those distinctions. Right? Yeah.
+
+**[[Fr. Stephen]]:** But the idea is that it encompasses all of reality as reality is conceived by those people. Right? Um… So that it encompasses everything that's real, right? And this is to get away from the idea that religion is just this element that covers this one part of life. Yeah, that it's not. Right?
+
+**[[Fr. Andrew]]:** Yeah. I mean, and and most people who think of themselves as religious would not say, "Oh, well, that's just this little part of my life over here."
+
+**[[Fr. Stephen]]:** Yeah. I mean, there are people like that for sure. There are, but most, yeah. Yeah.
+
+**[[Fr. Andrew]]:** In the modern era there are people like that. Yes. Right. Um… But that doesn't cover most of world history. And then finally we have that expresses itself in practices. Right? Um… And that is that there is some kind of, not just things you do and things you don't do, but that those form a routine or a habit or a cycle or right, repeated, repeated practices. Right? And we're using the term practices because this encompasses things like worship, right? But also encompasses things like ethical considerations. Yeah. And political considerations in the classical sense, right? Now, politics classically was just ethics at the level of community. Right? So the way a person should govern their own life was seen as being of a piece with the way a ruler should govern a city, for example. Right? [[Aristotle]] writes his ethics then his politics. Right?
+
+Um… So we're using practices because it encompasses all that. It encompasses everything from fasting and dietary stuff to how and when you worship and who leads it and how you structure your family unit and how you write all of these things are encompassed by this idea of practices, right? Um, and practices are kind of inescapable.
+
+**[[Fr. Andrew]]:** Yeah, like… I mean, and this is, and this again, not to pick too much on our our Protestant friends, but but there is this idea amongst a lot of Protestants, um, certainly the kind that I was when I was growing up, that had this idea that the practices you engage in, especially like for instance how you worship, is kind of optional. Right? Like they would certainly say you should worship, but the particular way in which you do it, right, these specific practices of worship, that's kind of a matter of taste or preference, you know, so it's kind of switch-outable, right? And and one of the reasons that on the other side that you can kind of see this is, go to the website of almost frankly almost any Protestant church and you will find a statement of faith if they're going to have include something like this, right? A statement of faith. And the statement of faith is a list of beliefs. But rarely is there like a list of practices, because the beliefs are the core thing. And I remember even hearing a lot of people say, like one major religious practice obviously is music. They say, "Well, it doesn't matter exactly what kind of music you use as long as the lyrics are expressing the beliefs correctly." So again, it's this idea that practices are sort of variable and optional and all that kind of stuff. But again, historically, that's not, that's not the case. And and early Protestants, of course, would not have seen it that way either. Like this is a more of a modern Protestant kind of idea.
+
+**[[Fr. Stephen]]:** Yeah. And this is… And we want to be fair, and part of it is this thing that's been sort of bred into a lot of our Protestant friends, right? Like… pretty much any Protestant I've ever known, in a low-stakes conversation, in a low-stakes friendly conversation, if you say, "Should someone who becomes a Christian get baptized?" They're going to say yes. And if you say, "If someone, should someone who becomes a Christian attend Sunday worship?" They're going to say yes. You know, "Should someone who's going to be a Christian, should they not participate in sexual morality?" "No, they should not." Right, etc. etc. etc. Right?
+
+But if anyone says that, even with the word "should" a little too forcefully, right?
+
+**[[Fr. Andrew]]:** Works righteousness.
+
+**[[Fr. Stephen]]:** Right, there's this blanching, there's this pulling back of, "Well no, none of those things are required for salvation. None of, none of those things." Right? Yeah. Yeah, there's just a sort of a should but not a must.
+
+**[[Fr. Andrew]]:** Right. But then if you wrap around and say, "Well okay, so wait a minute, wait a minute. Let's pause, lower the stakes a second, right? Are you saying right, that if someone, you know, uh, comes and says they got saved on this date, but then they never go to church, they never get baptized, and they're a fornicator and a murderer, that they're going to, that they're going to go to heaven because they got saved on that date and it doesn't matter?" And they're going to say, "Well no," right? They're going to say, "They never really got saved then." Right?
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** And if you say, "Well then, so aren't you saying those things are required for salvation?" Then they're like, "No, they're not." Right? So…
+
+**[[Fr. Stephen]]:** That's what I mean by this ambivalence.
+
+**[[Fr. Andrew]]:** Yeah. It's it's, I mean, we're not going to solve this tonight, but it's the whole faith works thing. We we've talked about it in detail before, but that's where that comes from.
+
+**[[Fr. Stephen]]:** It's just been, been sort of bred in. Yeah. And exhibit A, the the, I don't know if folks know, on on YouTube, uh, the good folks at Ancient Faith took a clip from our last episode and uh, of some things I said to that of, to the effect of what I just said, and the comment section is kind of amazing, right, um, in the knee-jerk reactions. And I say knee-jerk reaction because in some cases it's very clear that there was not any intent to try to figure out what I was actually saying. There was just a reaction, like a visceral reaction to, "This sounds like a false gospel of works righteousness." Right, because… Beware. Right? Um… But again, practices, right? Every Protestant I know goes to church at least most Sundays and thinks and does it because they think they should. They go and get baptized. Whenever their church offers communion, they they participate in it. Uh, you know, they uh, refrain from gross sin as best they can. When they do sin, they ask for forgiveness. Right, like… I don't know any Protestants who don't do that. I don't know any Protestants who are like, you know, "I am going to do zero good works between getting saved and dying." Right, just to prove that the one who does not work, it is reckoned as grace, right? I don't know anyone like that, right? I doubt you do either. If you do, get them help. Um…
+
+Right. So, obviously Protestants aren't that way. And acting like Protestants are that way, like some Roman Catholic apologists do sometimes, is just ridiculous and childish. Right? Um, we get it. But, but… you know, we need to stop, be careful with the knee-jerk reaction, right? Because probably even when I said practices, "Practices? What you got to practice it?" "Yeah, you do." Right? And we all know you do. We all know you do. And you can frame it as, "Well, that's part of sanctification, not justification." Whatever you need to do so that we can have the conversation, okay, cool. But, but… there's practices involved. Right? They're just are in religion. Right?
+
+Um, this also, this definition is also nice because we don't have to worry about this whole distinction between what is a religion or what is religion and what is philosophy.
+
+**[[Fr. Andrew]]:** Yeah, especially because I mean like, yeah, I mean this idea of of the difference between religion and philosophy, like it's, it's like, "Well," you know, people think of the philosophy department, you know, a bunch of guys sitting around thinking thoughts and writing books about those thoughts and teaching classes. But, I mean ancient philosophy, there were religious, what we would regard as religious practices. I mean, heck, ancient mathematics, there was, there was religious practice that went along with it.
+
+**[[Fr. Stephen]]:** Oh yeah.
+
+**[[Fr. Andrew]]:** The mysticism of numbers. And and and on top of all that, the Church Fathers often refer to Christianity as the true philosophy.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. And even, even people who distinguish between philosophy and religion acknowledge that Pythagoreanism was a religion.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** For example. But Platonists at the Academy, they had patterns of fasting. They spent periods of time in meditation. Right? All, all of these things, right, were…
+
+**[[Fr. Andrew]]:** I mean, it wasn't [[Aristotle]]'s school like in a temple of Apollo?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** There you go.
+
+**[[Fr. Stephen]]:** Right? So, I know you've been told by the [[Enlightenment]]. In the [[Enlightenment]], all of all of the new, the newfound atheists, uh, or worshipers of pure reason, um, recast [[Socrates]] and [[Plato]] and [[Aristotle]] as like them in togas, right? Um… and said, "Oh, just like I have risen above the superstitious religion of my day which is Christianity, they rose above the primitive religion of their day which was Greek paganism." We've talked about this before on the show, that's absolute nonsense.
+
+Yeah. Now, we're going to talk a little more about that in the second half. They thought they had a more refined version of religion, right? But they didn't think it was a separate religion. They didn't have a concept of *a* religion. But they didn't feel like they had absented themselves from the general civic and religious life of Athens by doing that.
+
+**[[Fr. Andrew]]:** They weren't dissenters.
+
+**[[Fr. Stephen]]:** They weren't Quakers living in the midst of Anglicans. Right. Um…
+
+And so, we want to be fair, and part of it is this thing that's been sort of bred into a lot of our Protestant friends, right? Like… pretty much any Protestant I've ever known, in a low-stakes conversation, in a low-stakes friendly conversation, if you say, "Should someone who becomes a Christian get baptized?" They're going to say yes. And if you say, "If someone, should someone who becomes a Christian attend Sunday worship?" They're going to say yes. You know, "Should someone who's going to be a Christian, should they not participate in sexual morality?" "No, they should not." Right, etc. etc. etc. Right?
+
+But if anyone says that, even with the word "should" a little too forcefully, right?
+
+**[[Fr. Andrew]]:** Works righteousness.
+
+**[[Fr. Stephen]]:** Right, there's this blanching, there's this pulling back of, "Well no, none of those things are required for salvation. None of, none of those things." Right? Yeah. Yeah, there's just a sort of a should but not a must.
+
+**[[Fr. Andrew]]:** Right. But then if you wrap around and say, "Well okay, so wait a minute, wait a minute. Let's pause, lower the stakes a second, right? Are you saying right, that if someone, you know, uh, comes and says they got saved on this date, but then they never go to church, they never get baptized, and they're a fornicator and a murderer, that they're going to, that they're going to go to heaven because they got saved on that date and it doesn't matter?" And they're going to say, "Well no," right? They're going to say, "They never really got saved then." Right?
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** And if you say, "Well then, so aren't you saying those things are required for salvation?" Then they're like, "No, they're not." Right? So…
+
+**[[Fr. Stephen]]:** That's what I mean by this ambivalence.
+
+**[[Fr. Andrew]]:** Yeah. It's it's, I mean, we're not going to solve this tonight, but it's the whole faith works thing. We we've talked about it in detail before, but that's where that comes from.
+
+**[[Fr. Stephen]]:** It's just been, been sort of bred in. Yeah. And exhibit A, the the, I don't know if folks know, on on YouTube, uh, the good folks at Ancient Faith took a clip from our last episode and uh, of some things I said to that of, to the effect of what I just said, and the comment section is kind of amazing, right, um, in the knee-jerk reactions. And I say knee-jerk reaction because in some cases it's very clear that there was not any intent to try to figure out what I was actually saying. There was just a reaction, like a visceral reaction to, "This sounds like a false gospel of works righteousness." Right, because… Beware. Right? Um… But again, practices, right? Every Protestant I know goes to church at least most Sundays and thinks and does it because they think they should. They go and get baptized. Whenever their church offers communion, they they participate in it. Uh, you know, they uh, refrain from gross sin as best they can. When they do sin, they ask for forgiveness. Right, like… I don't know any Protestants who don't do that. I don't know any Protestants who are like, you know, "I am going to do zero good works between getting saved and dying." Right, just to prove that the one who does not work, it is reckoned as grace, right? I don't know anyone like that, right? I doubt you do either. If you do, get them help. Um…
+
+Right. So, obviously Protestants aren't that way. And acting like Protestants are that way, like some Roman Catholic apologists do sometimes, is just ridiculous and childish. Right? Um, we get it. But, but… you know, we need to stop, be careful with the knee-jerk reaction, right? Because probably even when I said practices, "Practices? What you got to practice it?" "Yeah, you do." Right? And we all know you do. We all know you do. And you can frame it as, "Well, that's part of sanctification, not justification." Whatever you need to do so that we can have the conversation, okay, cool. But, but… there's practices involved. Right? They're just are in religion. Right?
+
+Um, this also, this definition is also nice because we don't have to worry about this whole distinction between what is a religion or what is religion and what is philosophy.
+
+**[[Fr. Andrew]]:** Yeah, especially because I mean like, yeah, I mean this idea of of the difference between religion and philosophy, like it's, it's like, "Well," you know, people think of the philosophy department, you know, a bunch of guys sitting around thinking thoughts and writing books about those thoughts and teaching classes. But, I mean ancient philosophy, there were religious, what we would regard as religious practices. I mean, heck, ancient mathematics, there was, there was religious practice that went along with it.
+
+**[[Fr. Stephen]]:** Oh yeah.
+
+**[[Fr. Andrew]]:** The mysticism of numbers. And and and on top of all that, the Church Fathers often refer to Christianity as the true philosophy.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. And even, even people who distinguish between philosophy and religion acknowledge that Pythagoreanism was a religion.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** For example. But Platonists at the Academy, they had patterns of fasting. They spent periods of time in meditation. Right? All, all of these things, right, were…
+
+**[[Fr. Andrew]]:** I mean, it wasn't [[Aristotle]]'s school like in a temple of Apollo?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** There you go.
+
+**[[Fr. Stephen]]:** Right? So, I know you've been told by the [[Enlightenment]]. In the [[Enlightenment]], all of all of the new, the newfound atheists, uh, or worshipers of pure reason, um, recast [[Socrates]] and [[Plato]] and [[Aristotle]] as like them in togas, right? Um… and said, "Oh, just like I have risen above the superstitious religion of my day which is Christianity, they rose above the primitive religion of their day which was Greek paganism." We've talked about this before on the show, that's absolute nonsense.
+
+Yeah. Now, we're going to talk a little more about that in the second half. They thought they had a more refined version of religion, right? But they didn't think it was a separate religion. They didn't have a concept of *a* religion. But they didn't feel like they had absented themselves from the general civic and religious life of Athens by doing that.
+
+**[[Fr. Andrew]]:** They weren't dissenters.
+
+**[[Fr. Stephen]]:** They weren't Quakers living in the midst of Anglicans. Right. Um…
+
+And so, we want to be fair, and part of it is this thing that's been sort of bred into a lot of our Protestant friends, right? Like… pretty much any Protestant I've ever known, in a low-stakes conversation, in a low-stakes friendly conversation, if you say, "Should someone who becomes a Christian get baptized?" They're going to say yes. And if you say, "If someone, should someone who becomes a Christian attend Sunday worship?" They're going to say yes. You know, "Should someone who's going to be a Christian, should they not participate in sexual morality?" "No, they should not." Right, etc. etc. etc. Right?
+
+But if anyone says that, even with the word "should" a little too forcefully, right?
+
+**[[Fr. Andrew]]:** Works righteousness.
+
+**[[Fr. Stephen]]:** Right, there's this blanching, there's this pulling back of, "Well no, none of those things are required for salvation. None of, none of those things." Right? Yeah. Yeah, there's just a sort of a should but not a must.
+
+**[[Fr. Andrew]]:** Right. But then if you wrap around and say, "Well okay, so wait a minute, wait a minute. Let's pause, lower the stakes a second, right? Are you saying right, that if someone, you know, uh, comes and says they got saved on this date, but then they never go to church, they never get baptized, and they're a fornicator and a murderer, that they're going to, that they're going to go to heaven because they got saved on that date and it doesn't matter?" And they're going to say, "Well no," right? They're going to say, "They never really got saved then." Right?
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** And if you say, "Well then, so aren't you saying those things are required for salvation?" Then they're like, "No, they're not." Right? So…
+
+**[[Fr. Stephen]]:** That's what I mean by this ambivalence.
+
+**[[Fr. Andrew]]:** Yeah. It's it's, I mean, we're not going to solve this tonight, but it's the whole faith works thing. We we've talked about it in detail before, but that's where that comes from.
+
+**[[Fr. Stephen]]:** It's just been, been sort of bred in. Yeah. And exhibit A, the the, I don't know if folks know, on on YouTube, uh, the good folks at Ancient Faith took a clip from our last episode and uh, of some things I said to that of, to the effect of what I just said, and the comment section is kind of amazing, right, um, in the knee-jerk reactions. And I say knee-jerk reaction because in some cases it's very clear that there was not any intent to try to figure out what I was actually saying. There was just a reaction, like a visceral reaction to, "This sounds like a false gospel of works righteousness." Right, because… Beware. Right? Um… But again, practices, right? Every Protestant I know goes to church at least most Sundays and thinks and does it because they think they should. They go and get baptized. Whenever their church offers communion, they they participate in it. Uh, you know, they uh, refrain from gross sin as best they can. When they do sin, they ask for forgiveness. Right, like… I don't know any Protestants who don't do that. I don't know any Protestants who are like, you know, "I am going to do zero good works between getting saved and dying." Right, just to prove that the one who does not work, it is reckoned as grace, right? I don't know anyone like that, right? I doubt you do either. If you do, get them help. Um…
+
+Right. So, obviously Protestants aren't that way. And acting like Protestants are that way, like some Roman Catholic apologists do sometimes, is just ridiculous and childish. Right? Um, we get it. But, but… you know, we need to stop, be careful with the knee-jerk reaction, right? Because probably even when I said practices, "Practices? What you got to practice it?" "Yeah, you do." Right? And we all know you do. We all know you do. And you can frame it as, "Well, that's part of sanctification, not justification." Whatever you need to do so that we can have the conversation, okay, cool. But, but… there's practices involved. Right? They're just are in religion. Right?
+
+Um, this also, this definition is also nice because we don't have to worry about this whole distinction between what is a religion or what is religion and what is philosophy.
+
+**[[Fr. Andrew]]:** Yeah, especially because I mean like, yeah, I mean this idea of of the difference between religion and philosophy, like it's, it's like, "Well," you know, people think of the philosophy department, you know, a bunch of guys sitting around thinking thoughts and writing books about those thoughts and teaching classes. But, I mean ancient philosophy, there were religious, what we would regard as religious practices. I mean, heck, ancient mathematics, there was, there was religious practice that went along with it.
+
+**[[Fr. Stephen]]:** Oh yeah.
+
+**[[Fr. Andrew]]:** The mysticism of numbers. And and and on top of all that, the Church Fathers often refer to Christianity as the true philosophy.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. And even, even people who distinguish between philosophy and religion acknowledge that Pythagoreanism was a religion.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** For example. But Platonists at the Academy, they had patterns of fasting. They spent periods of time in meditation. Right? All, all of these things, right, were…
+
+**[[Fr. Andrew]]:** I mean, it wasn't [[Aristotle]]'s school like in a temple of Apollo?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** There you go.
+
+**[[Fr. Stephen]]:** Right? So, I know you've been told by the [[Enlightenment]]. In the [[Enlightenment]], all of all of the new, the newfound atheists, uh, or worshipers of pure reason, um, recast [[Socrates]] and [[Plato]] and [[Aristotle]] as like them in togas, right? Um… and said, "Oh, just like I have risen above the superstitious religion of my day which is Christianity, they rose above the primitive religion of their day which was Greek paganism." We've talked about this before on the show, that's absolute nonsense.
+
+Yeah. Now, we're going to talk a little more about that in the second half. They thought they had a more refined version of religion, right? But they didn't think it was a separate religion. They didn't have a concept of *a* religion. But they didn't feel like they had absented themselves from the general civic and religious life of Athens by doing that.
+
+**[[Fr. Andrew]]:** They weren't dissenters.
+
+**[[Fr. Stephen]]:** They weren't Quakers living in the midst of Anglicans. Right. Um…
+
+And so, we want to be fair, and part of it is this thing that's been sort of bred into a lot of our Protestant friends, right? Like… pretty much any Protestant I've ever known, in a low-stakes conversation, in a low-stakes friendly conversation, if you say, "Should someone who becomes a Christian get baptized?" They're going to say yes. And if you say, "If someone, should someone who becomes a Christian attend Sunday worship?" They're going to say yes. You know, "Should someone who's going to be a Christian, should they not participate in sexual morality?" "No, they should not." Right, etc. etc. etc. Right?
+
+But if anyone says that, even with the word "should" a little too forcefully, right?
+
+**[[Fr. Andrew]]:** Works righteousness.
+
+**[[Fr. Stephen]]:** Right, there's this blanching, there's this pulling back of, "Well no, none of those things are required for salvation. None of, none of those things." Right? Yeah. Yeah, there's just a sort of a should but not a must.
+
+**[[Fr. Andrew]]:** Right. But then if you wrap around and say, "Well okay, so wait a minute, wait a minute. Let's pause, lower the stakes a second, right? Are you saying right, that if someone, you know, uh, comes and says they got saved on this date, but then they never go to church, they never get baptized, and they're a fornicator and a murderer, that they're going to, that they're going to go to heaven because they got saved on that date and it doesn't matter?" And they're going to say, "Well no," right? They're going to say, "They never really got saved then." Right?
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** And if you say, "Well then, so aren't you saying those things are required for salvation?" Then they're like, "No, they're not." Right? So…
+
+**[[Fr. Stephen]]:** That's what I mean by this ambivalence.
+
+**[[Fr. Andrew]]:** Yeah. It's it's, I mean, we're not going to solve this tonight, but it's the whole faith works thing. We we've talked about it in detail before, but that's where that comes from.
+
+**[[Fr. Stephen]]:** It's just been, been sort of bred in. Yeah. And exhibit A, the the, I don't know if folks know, on on YouTube, uh, the good folks at Ancient Faith took a clip from our last episode and uh, of some things I said to that of, to the effect of what I just said, and the comment section is kind of amazing, right, um, in the knee-jerk reactions. And I say knee-jerk reaction because in some cases it's very clear that there was not any intent to try to figure out what I was actually saying. There was just a reaction, like a visceral reaction to, "This sounds like a false gospel of works righteousness." Right, because… Beware. Right? Um… But again, practices, right? Every Protestant I know goes to church at least most Sundays and thinks and does it because they think they should. They go and get baptized. Whenever their church offers communion, they they participate in it. Uh, you know, they uh, refrain from gross sin as best they can. When they do sin, they ask for forgiveness. Right, like… I don't know any Protestants who don't do that. I don't know any Protestants who are like, you know, "I am going to do zero good works between getting saved and dying." Right, just to prove that the one who does not work, it is reckoned as grace, right? I don't know anyone like that, right? I doubt you do either. If you do, get them help. Um…
+
+Right. So, obviously Protestants aren't that way. And acting like Protestants are that way, like some Roman Catholic apologists do sometimes, is just ridiculous and childish. Right? Um, we get it. But, but… you know, we need to stop, be careful with the knee-jerk reaction, right? Because probably even when I said practices, "Practices? What you got to practice it?" "Yeah, you do." Right? And we all know you do. We all know you do. And you can frame it as, "Well, that's part of sanctification, not justification." Whatever you need to do so that we can have the conversation, okay, cool. But, but… there's practices involved. Right? They're just are in religion. Right?
+
+Um, this also, this definition is also nice because we don't have to worry about this whole distinction between what is a religion or what is religion and what is philosophy.
+
+**[[Fr. Andrew]]:** Yeah, especially because I mean like, yeah, I mean this idea of of the difference between religion and philosophy, like it's, it's like, "Well," you know, people think of the philosophy department, you know, a bunch of guys sitting around thinking thoughts and writing books about those thoughts and teaching classes. But, I mean ancient philosophy, there were religious, what we would regard as religious practices. I mean, heck, ancient mathematics, there was, there was religious practice that went along with it.
+
+**[[Fr. Stephen]]:** Oh yeah.
+
+**[[Fr. Andrew]]:** The mysticism of numbers. And and and on top of all that, the Church Fathers often refer to Christianity as the true philosophy.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. And even, even people who distinguish between philosophy and religion acknowledge that Pythagoreanism was a religion.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** For example. But Platonists at the Academy, they had patterns of fasting. They spent periods of time in meditation. Right? All, all of these things, right, were…
+
+**[[Fr. Andrew]]:** I mean, it wasn't [[Aristotle]]'s school like in a temple of Apollo?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** There you go.
+
+**[[Fr. Stephen]]:** Right? So, I know you've been told by the [[Enlightenment]]. In the [[Enlightenment]], all of all of the new, the newfound atheists, uh, or worshipers of pure reason, um, recast [[Socrates]] and [[Plato]] and [[Aristotle]] as like them in togas, right? Um… and said, "Oh, just like I have risen above the superstitious religion of my day which is Christianity, they rose above the primitive religion of their day which was Greek paganism." We've talked about this before on the show, that's absolute nonsense.
+
+Yeah. Now, we're going to talk a little more about that in the second half. They thought they had a more refined version of religion, right? But they didn't think it was a separate religion. They didn't have a concept of *a* religion. But they didn't feel like they had absented themselves from the general civic and religious life of Athens by doing that.
+
+**[[Fr. Andrew]]:** They weren't dissenters.
+
+**[[Fr. Stephen]]:** They weren't Quakers living in the midst of Anglicans. Right. Um…
+
+And so, we want to be fair, and part of it is this thing that's been sort of bred into a lot of our Protestant friends, right? Like… pretty much any Protestant I've ever known, in a low-stakes conversation, in a low-stakes friendly conversation, if you say, "Should someone who becomes a Christian get baptized?" They're going to say yes. And if you say, "If someone, should someone who becomes a Christian attend Sunday worship?" They're going to say yes. You know, "Should someone who's going to be a Christian, should they not participate in sexual morality?" "No, they should not." Right, etc. etc. etc. Right?
+
+But if anyone says that, even with the word "should" a little too forcefully, right?
+
+**[[Fr. Andrew]]:** Works righteousness.
+
+**[[Fr. Stephen]]:** Right, there's this blanching, there's this pulling back of, "Well no, none of those things are required for salvation. None of, none of those things." Right? Yeah. Yeah, there's just a sort of a should but not a must.
+
+**[[Fr. Andrew]]:** Right. But then if you wrap around and say, "Well okay, so wait a minute, wait a minute. Let's pause, lower the stakes a second, right? Are you saying right, that if someone, you know, uh, comes and says they got saved on this date, but then they never go to church, they never get baptized, and they're a fornicator and a murderer, that they're going to, that they're going to go to heaven because they got saved on that date and it doesn't matter?" And they're going to say, "Well no," right? They're going to say, "They never really got saved then." Right?
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** And if you say, "Well then, so aren't you saying those things are required for salvation?" Then they're like, "No, they're not." Right? So…
+
+**[[Fr. Stephen]]:** That's what I mean by this ambivalence.
+
+**[[Fr. Andrew]]:** Yeah. It's it's, I mean, we're not going to solve this tonight, but it's the whole faith works thing. We we've talked about it in detail before, but that's where that comes from.
+
+**[[Fr. Stephen]]:** It's just been, been sort of bred in. Yeah. And exhibit A, the the, I don't know if folks know, on on YouTube, uh, the good folks at Ancient Faith took a clip from our last episode and uh, of some things I said to that of, to the effect of what I just said, and the comment section is kind of amazing, right, um, in the knee-jerk reactions. And I say knee-jerk reaction because in some cases it's very clear that there was not any intent to try to figure out what I was actually saying. There was just a reaction, like a visceral reaction to, "This sounds like a false gospel of works righteousness." Right, because… Beware. Right? Um… But again, practices, right? Every Protestant I know goes to church at least most Sundays and thinks and does it because they think they should. They go and get baptized. Whenever their church offers communion, they they participate in it. Uh, you know, they uh, refrain from gross sin as best they can. When they do sin, they ask for forgiveness. Right, like… I don't know any Protestants who don't do that. I don't know any Protestants who are like, you know, "I am going to do zero good works between getting saved and dying." Right, just to prove that the one who does not work, it is reckoned as grace, right? I don't know anyone like that, right? I doubt you do either. If you do, get them help. Um…
+
+Right. So, obviously Protestants aren't that way. And acting like Protestants are that way, like some Roman Catholic apologists do sometimes, is just ridiculous and childish. Right? Um, we get it. But, but… you know, we need to stop, be careful with the knee-jerk reaction, right? Because probably even when I said practices, "Practices? What you got to practice it?" "Yeah, you do." Right? And we all know you do. We all know you do. And you can frame it as, "Well, that's part of sanctification, not justification." Whatever you need to do so that we can have the conversation, okay, cool. But, but… there's practices involved. Right? They're just are in religion. Right?
+
+Um, this also, this definition is also nice because we don't have to worry about this whole distinction between what is a religion or what is religion and what is philosophy.
+
+**[[Fr. Andrew]]:** Yeah, especially because I mean like, yeah, I mean this idea of of the difference between religion and philosophy, like it's, it's like, "Well," you know, people think of the philosophy department, you know, a bunch of guys sitting around thinking thoughts and writing books about those thoughts and teaching classes. But, I mean ancient philosophy, there were religious, what we would regard as religious practices. I mean, heck, ancient mathematics, there was, there was religious practice that went along with it.
+
+**[[Fr. Stephen]]:** Oh yeah.
+
+**[[Fr. Andrew]]:** The mysticism of numbers. And and and on top of all that, the Church Fathers often refer to Christianity as the true philosophy.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. And even, even people who distinguish between philosophy and religion acknowledge that Pythagoreanism was a religion.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** For example. But Platonists at the Academy, they had patterns of fasting. They spent periods of time in meditation. Right? All, all of these things, right, were…
+
+**[[Fr. Andrew]]:** I mean, it wasn't [[Aristotle]]'s school like in a temple of Apollo?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** There you go.
+
+**[[Fr. Stephen]]:** Right? So, I know you've been told by the [[Enlightenment]]. In the [[Enlightenment]], all of all of the new, the newfound atheists, uh, or worshipers of pure reason, um, recast [[Socrates]] and [[Plato]] and [[Aristotle]] as like them in togas, right? Um… and said, "Oh, just like I have risen above the superstitious religion of my day which is Christianity, they rose above the primitive religion of their day which was Greek paganism." We've talked about this before on the show, that's absolute nonsense.
+
+Yeah. Now, we're going to talk a little more about that in the second half. They thought they had a more refined version of religion, right? But they didn't think it was a separate religion. They didn't have a concept of *a* religion. But they didn't feel like they had absented themselves from the general civic and religious life of Athens by doing that.
+
+**[[Fr. Andrew]]:** They weren't dissenters.
+
+**[[Fr. Stephen]]:** They weren't Quakers living in the midst of Anglicans. Right. Um…
+
+And so, we want to be fair, and part of it is this thing that's been sort of bred into a lot of our Protestant friends, right? Like… pretty much any Protestant I've ever known, in a low-stakes conversation, in a low-stakes friendly conversation, if you say, "Should someone who becomes a Christian get baptized?" They're going to say yes. And if you say, "If someone, should someone who becomes a Christian attend Sunday worship?" They're going to say yes. You know, "Should someone who's going to be a Christian, should they not participate in sexual morality?" "No, they should not." Right, etc. etc. etc. Right?
+
+But if anyone says that, even with the word "should" a little too forcefully, right?
+
+**[[Fr. Andrew]]:** Works righteousness.
+
+**[[Fr. Stephen]]:** Right, there's this blanching, there's this pulling back of, "Well no, none of those things are required for salvation. None of, none of those things." Right? Yeah. Yeah, there's just a sort of a should but not a must.
+
+**[[Fr. Andrew]]:** Right. But then if you wrap around and say, "Well okay, so wait a minute, wait a minute. Let's pause, lower the stakes a second, right? Are you saying right, that if someone, you know, uh, comes and says they got saved on this date, but then they never go to church, they never get baptized, and they're a fornicator and a murderer, that they're going to, that they're going to go to heaven because they got saved on that date and it doesn't matter?" And they're going to say, "Well no," right? They're going to say, "They never really got saved then." Right?
+
+**[[Fr. Stephen]]:** Yeah. Yeah.
+
+**[[Fr. Andrew]]:** And if you say, "Well then, so aren't you saying those things are required for salvation?" Then they're like, "No, they're not." Right? So…
+
+**[[Fr. Stephen]]:** That's what I mean by this ambivalence.
+
+**[[Fr. Andrew]]:** Yeah. It's it's, I mean, we're not going to solve this tonight, but it's the whole faith works thing. We we've talked about it in detail before, but that's where that comes from.
+
+**[[Fr. Stephen]]:** It's just been, been sort of bred in. Yeah. And exhibit A, the the, I don't know if folks know, on on YouTube, uh, the good folks at Ancient Faith took a clip from our last episode and uh, of some things I said to that of, to the effect of what I just said, and the comment section is kind of amazing, right, um, in the knee-jerk reactions. And I say knee-jerk reaction because in some cases it's very clear that there was not any intent to try to figure out what I was actually saying. There was just a reaction, like a visceral reaction to, "This sounds like a false gospel of works righteousness." Right, because… Beware. Right? Um… But again, practices, right? Every Protestant I know goes to church at least most Sundays and thinks and does it because they think they should. They go and get baptized. Whenever their church offers communion, they they participate in it. Uh, you know, they uh, refrain from gross sin as best they can. When they do sin, they ask for forgiveness. Right, like… I don't know any Protestants who don't do that. I don't know any Protestants who are like, you know, "I am going to do zero good works between getting saved and dying." Right, just to prove that the one who does not work, it is reckoned as grace, right? I don't know anyone like that, right? I doubt you do either. If you do, get them help. Um…
+
+Right. So, obviously Protestants aren't that way. And acting like Protestants are that way, like some Roman Catholic apologists do sometimes, is just ridiculous and childish. Right? Um, we get it. But, but… you know, we need to stop, be careful with the knee-jerk reaction, right? Because probably even when I said practices, "Practices? What you got to practice it?" "Yeah, you do." Right? And we all know you do. We all know you do. And you can frame it as, "Well, that's part of sanctification, not justification." Whatever you need to do so that we can have the conversation, okay, cool. But, but… there's practices involved. Right? They're just are in religion. Right?
+
+Um, this also, this definition is also nice because we don't have to worry about this whole distinction between what is a religion or what is religion and what is philosophy.
+
+**[[Fr. Andrew]]:** Yeah, especially because I mean like, yeah, I mean this idea of of the difference between religion and philosophy, like it's, it's like, "Well," you know, people think of the philosophy department, you know, a bunch of guys sitting around thinking thoughts and writing books about those thoughts and teaching classes. But, I mean ancient philosophy, there were religious, what we would regard as religious practices. I mean, heck, ancient mathematics, there was, there was religious practice that went along with it.
+
+**[[Fr. Stephen]]:** Oh yeah.
+
+**[[Fr. Andrew]]:** The mysticism of numbers. And and and on top of all that, the Church Fathers often refer to Christianity as the true philosophy.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. And even, even people who distinguish between philosophy and religion acknowledge that Pythagoreanism was a religion.
+
+**[[Fr. Andrew]]:** Yeah. Yeah.
+
+**[[Fr. Stephen]]:** For example. But Platonists at the Academy, they had patterns of fasting. They spent periods of time in meditation. Right? All, all of these things, right, were…
+
+**[[Fr. Andrew]]:** I mean, it wasn't [[Aristotle]]'s school like in a temple of Apollo?
+
+**[[Fr. Stephen]]:** Yes.
+
+**[[Fr. Andrew]]:** There you go.
+
+**[[Fr. Stephen]]:** Right? So, I know you've been told by the [[Enlightenment]]. In the [[Enlightenment]], all of all of the new, the newfound atheists, uh, or worshipers of pure reason, um, recast [[Socrates]] and [[Plato]] and [[Aristotle]] as like them in togas, right? Um… and said, "Oh, just like I have risen above the superstitious religion of my day which is Christianity, they rose above the primitive religion of their day which was Greek paganism." We've talked about this before on the show, that's absolute nonsense.
+
+Yeah. Now, we're going to talk a little more about that in the second half. They thought they had a more refined version of religion, right? But they didn't think it was a separate religion. They didn't have a concept of *a* religion. But they didn't feel like they had absented themselves from the general civic and religious life of Athens by doing that.
+
+**[[Fr. Andrew]]:** They weren't dissenters.
+
+**[[Fr. Stephen]]:** They weren't Quakers living in the midst of Anglicans. Right. Um…
+
+## Part 2
+
+**[[Fr. Andrew]]:** Welcome back everybody. This is the second half of the *[[Lord of Spirits]]* podcast. And this is episode 99, if you can believe it. Um… Anybody know exactly how many hours we've been talking now? I feel like I've been talking to you for a long time. Um…
+
+**[[Fr. Stephen]]:** It's interminable. It's probably related to, as I was thinking during that commercial, right? Like I've got the whole misunderstood comical fool part down. It's the saint part.
+
+**[[Fr. Andrew]]:** Oh!
+
+**[[Fr. Stephen]]:** That's the the tricky bit.
+
+**[[Fr. Andrew]]:** I mean, it's easy to throw sausage at people and say, "Hypocrite! Hypocrite!" I mean…
+
+**[[Fr. Stephen]]:** Who hasn't?
+
+**[[Fr. Andrew]]:** Right? Uh, I've been known to throw a sausage or two at some hypocrites. But yeah, so, so um, yeah, this is episode 99 and and next episode will be episode 100, and we will also be celebrating our fourth anniversary.
+
+**[[Fr. Stephen]]:** That'll be a nice round numbered episode to just end the show with, wouldn't it?
+
+**[[Fr. Andrew]]:** Huh. That's an idea. Could just sort of, yeah, cash in, take retirement. I don't know. I'm kind of done talking to you, so…
+
+**[[Fr. Stephen]]:** I'm not actually employed by Ancient Faith, so I get no retirement.
+
+**[[Fr. Andrew]]:** I'll send you a fruit basket.
+
+**[[Fr. Stephen]]:** Not even a gold watch.
+
+**[[Fr. Andrew]]:** Not even a gold watch.
+
+**[[Fr. Stephen]]:** Straight to the, like a fruit basket, fruit basket or like an edible arrangement at least, like…
+
+**[[Fr. Andrew]]:** Ooh, ooh. I'll have to see what's available in your area. I mean…
+
+**[[Fr. Stephen]]:** Can we get the AFRs to spring for that?
+
+**[[Fr. Andrew]]:** You do kind of live in the sticks. You know.
+
+**[[Fr. Stephen]]:** I, I do not live in the sticks. I live in a swamp. The sticks are all soggy and rotten.
+
+**[[Fr. Andrew]]:** Yeah. You do live in a soggy place.
+
+**[[Fr. Stephen]]:** Especially now after a hurricane.
+
+**[[Fr. Andrew]]:** Yeah, yeah, exactly. Exactly. So… But yeah, so next time, not next week. Next time, that's two weeks from today is episode 100. It'll be our fourth anniversary. So I hope everybody will will tune in. It'll be a very, very special next time on a very special episode of the *[[Lord of Spirits]]*. And I actually will be not here in the tower of podcasting in Emmaus, Pennsylvania, perched high atop the gateway to the underworld that uh, that is the building that I actually currently in. This is a gateway to the underworld down far beneath me, many floors beneath. I will be in the very belly of the beast, the very liver of [[Leviathan]], Chesterton, Indiana. Yes, the poor man's Ohio at AFR Central.
+
+**[[Fr. Stephen]]:** It's true. It's true. I mean there's people sitting on YouTube like, "Don't stop the show, Fathers. Never." I mean, at some point, guys, at least one of us is going to die and it's probably going to be [[Father Stephen]] first.
+
+**[[Fr. Andrew]]:** Probably.
+
+**[[Fr. Stephen]]:** If you were to put your money down.
+
+**[[Fr. Andrew]]:** So I have to… Only the good die young, so…
+
+**[[Fr. Stephen]]:** Um… So, um, the real reason, next time is going to be a very special episode is that, uh, they're luring you to HQ for an intervention.
+
+**[[Fr. Andrew]]:** Oh. They're like, "[[Father Andrew]], we know you like [[Father Stephen]], but…"
+
+**[[Fr. Stephen]]:** No, I think it's more the Tolkien thing.
+
+**[[Fr. Andrew]]:** Oh, oh, oh. Yeah. I mean it is true. It is true that I'm ending the Tolkien podcast, so maybe they're trying to make that go faster or something. I don't know.
+
+**[[Fr. Stephen]]:** Yeah. I think it's when you started commissioning the icons that we all knew that you had a problem.
+
+**[[Fr. Andrew]]:** Yeah. I mean, should Balrogs have halos in addition to wings? I don't, I'm not sure yet, but…
+
+**[[Fr. Stephen]]:** Should it be spelled B-A-R-L-O-G and should it look like Mike Tyson? These are the real questions.
+
+**[[Fr. Andrew]]:** Wow, oh man, that's, that's a deep cut right there. Nice. So, anyway, yeah, so next time is going to be episode 100 and our fourth anniversary. It's hard to believe we've we've been doing this since 2020.
+
+**[[Fr. Stephen]]:** A lot has happened since then.
+
+**[[Fr. Andrew]]:** We need to get people chanting, "Four more years." That's what we need.
+
+**[[Fr. Stephen]]:** Come on, do it on, do it on YouTube, you guys. Start chanting, "Four more years," in the chats. They're not doing it.
+
+**[[Fr. Andrew]]:** Yeah. De Young-Damick '24.
+
+**[[Fr. Stephen]]:** Disobedience. Um… Yeah. Okay, where were we?
+
+**[[Fr. Andrew]]:** Um… Well, we're we're we're working our way back.
+
+**[[Fr. Stephen]]:** That's true.
+
+**[[Fr. Andrew]]:** Right? So we spent a lot of that time, right, in the early modern period. Yeah. With a couple dips back into ancient Rome and ancient Greece. Uh, now we're going, now we're going to go back even further.
+
+**[[Fr. Stephen]]:** Yeah, all the way back to the year 2000. No.
+
+**[[Fr. Andrew]]:** Oh, someone, someone on Facebook is saying, "Four more years," so Facebook has outstripped the YouTubes this time. Take that, YouTubes. There's a very different ecosystem in the YouTube live chats.
+
+**[[Fr. Stephen]]:** Oh, it's true. Oh yeah.
+
+**[[Fr. Andrew]]:** And I say this as someone who has spent hours mostly trolling in YouTube live chats. Yeah.
+
+**[[Fr. Stephen]]:** There is.
+
+**[[Fr. Andrew]]:** I don't know, I haven't seen a lot of quality trolling. When I go back and look at the live chat replay, right, like sometimes I can look at the live chat replay. Sometimes, oh no there's, now they're saying four more years. And actually one person is saying a hundred more years. Look, look, you're not…
+
+**[[Fr. Stephen]]:** I'm not living a hundred more years. Sorry.
+
+**[[Fr. Andrew]]:** You think I'm a vampire? We're going to be lucky to get 20 more years.
+
+**[[Fr. Stephen]]:** As I said… I'm just…
+
+**[[Fr. Andrew]]:** I know there's not any kind of… When I say, like what happens during the episode, and so you guys like take down the live stream and then re-upload it as a video. Right? To remove what I said. Um, and so then I can't see the live chat. Like live chat replay disappears when you do that.
+
+**[[Fr. Stephen]]:** It's true.
+
+**[[Fr. Andrew]]:** Right? But the times when I can, the relatively few times where I can go and look at the live chat replay, uh, I don't see a lot of quality trolling. And and I'm not looking at it during the show, but [[Father Andrew]] is, and [[Father Andrew]] is eminently trollable.
+
+**[[Fr. Stephen]]:** Thanks. As I've proven in every episode. That's because I'm I'm just so tender-hearted.
+
+**[[Fr. Andrew]]:** Yes. I mean, compared to me, you're tender-hearted.
+
+**[[Fr. Stephen]]:** Well, that's true. Yeah. Yeah. Compared to me, week-old steak is tender, but, um…
+
+**[[Fr. Andrew]]:** I sometimes experience emotions.
+
+**[[Fr. Stephen]]:** When inebriated?
+
+**[[Fr. Andrew]]:** No feelings.
+
+**[[Fr. Stephen]]:** Just emotions.
+
+**[[Fr. Andrew]]:** No feelings.
+
+**[[Fr. Stephen]]:** And the emotion is usually rage, but um… Just channeling everything into that. Um… But anyway, we're going back to the middle part of the first millennium BC. Back in the day.
+
+**[[Fr. Andrew]]:** Yes. Even further back in the day. Um…
+
+**[[Fr. Stephen]]:** Preday.
+
+**[[Fr. Andrew]]:** Even further back than the year 2000. I like that now, you know, when I was a kid, the future was always the year 2000.
+
+**[[Fr. Stephen]]:** I know. I know. The future. And now we could say like, "Way back in the long-ago time, all the way back in the year 2000."
+
+**[[Fr. Andrew]]:** Where are the flying cars? Yeah. Um… But no, we're we're not, we're not going quite to 2000 BC yet. We're going to go back further than that. But… right now we're around 500 BC, plus or minus 250 years.
+
+**[[Fr. Stephen]]:** Before Avery Books was born.
+
+**[[Fr. Andrew]]:** Yeah. So the middle part, middle part. And congratulations to everybody on surviving the Bell Riots since [[Father Andrew]] brought it up.
+
+**[[Fr. Stephen]]:** It's true.
+
+**[[Fr. Andrew]]:** Um… So the middle part of the first millennium BC, which is referred to as the Axial Age. A-X-I-A-L. Yeah. Not the Axl Age, which would be either a Beverly Hills Cop reference or something about Guns N' Roses.
+
+**[[Fr. Stephen]]:** Exactly. Yeah.
+
+**[[Fr. Andrew]]:** Um… But this is the Axial Age. Uh, that term, uh, came from a, uh, was coined by a 20th-century German, early 20th-century German. And I know what you're thinking. I know what you're thinking. Slow down. He was German-Swiss.
+
+**[[Fr. Stephen]]:** He was the more peaceful, neutral kind of German. Right? Early 20th-century Germans… a lot of, a lot of not-so-great stuff. But Swiss, he's Swiss, okay?
+
+**[[Fr. Andrew]]:** Supplier of bodyguards to the Pope.
+
+**[[Fr. Stephen]]:** Right. He was probably just, you know, depositing the wealth of those evil Germans from Germany proper. Um… in Swiss banks. Um…
+
+**[[Fr. Andrew]]:** I'm just slandering this anthropologist for no reason. Like, anyway. Um… His name's Jaspers, by the way, which is a good German name.
+
+**[[Fr. Stephen]]:** It's like, "What is happening?"
+
+**[[Fr. Andrew]]:** So, he coins this term to describe this period, for this the center portion of the the first millennium BC. And the reason he wants to coin a term to describe this age or this era is that there's this massive transition, massive shifting of religious forms literally all over the world at that time. Uh, and by all over the world, I mean from China to Greece to Egypt to Judea to, right, anywhere you want to pick, right? Um, what are some of the things that are going on during this period? Well, if we're talking about Judaism, we get really the existence of Judaism proper, right? During this period, the, uh, Hebrew Scriptures are being compiled, edited, right? In some cases, for some books, composed. Right.
+
+**[[Fr. Andrew]]:** Yeah, this is post, this is post-exile, like when they come back from Babylon.
+
+**[[Fr. Stephen]]:** Well, 550…
+
+**[[Fr. Andrew]]:** I mean, there are of course some, some people who claim, um, and you know, I would just say to people listen to some of the recent Whole Counsel of God episodes, some people claim that the whole Hebrew Scriptures were written, written at this period. But there's all kinds of internal evidence that says that that is not the case. But…
+
+**[[Fr. Stephen]]:** Yeah. That's why I talked about in some cases composition, in other cases compilation and editing.
+
+**[[Fr. Andrew]]:** Yeah, because I mean the Hebrew Scriptures were written over a long period.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. Um… But you also have, in addition to that, right, this transformation in what becomes Judaism over against, right, the religion of ancient Israel and ancient Judah, Judaism, you see the rise of synagogues. You see the rise of the Pharisees as a class of scribes and and textual scholars because you have, right, the scriptures being composed, edited, compiled, right?
+
+And the forms, right, the forms that pre-existed that, the forms from ancient Israel and ancient Judah still exist. There's a second temple there, the temple's functioning, sacrifices are being offered, the same feasts are being observed, all those things are still happening, right, from the [[Torah]] that were happening before the exile, right? Um, in terms of religious phenomena. But you also now have this shift and these new religious phenomena related to the text of the Hebrew Scriptures and related to the scholars of that text and the, uh, synagogue system, right, as a means of of, uh, gathering and religious observance. Right? So that's that's a change, that's a shift.
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Right? There's continuity, but there's also now this new layer, this new phenomenon that gets added. Um… In, if you want to go over to Greece, right, at the very beginning of this period, you have Homer and Hesiod writing, um, and then once you get to the middle of this period, you've got the rise of philosophy and philosophical schools in Greece.
+
+**[[Fr. Andrew]]:** Yeah, and you know, like you might think like Homer and Hesiod like how is that a big change? Well, most indications are that a lot of what they're writing was existed in some kind of oral form.
+
+**[[Fr. Stephen]]:** Right.
+
+**[[Fr. Andrew]]:** Um, and and now it's being written down. That's, that kind of fixes it in a way that shifts, you know, it's it's, it's not quite the same. It's probably basically the same content, but but now you're getting stuff written down. It's a literary function now.
+
+**[[Fr. Stephen]]:** And the reading and interpretation of, for example, Homer's texts is going to become the basis of education for a couple thousand years. Yeah. Well into the Christian period.
+
+**[[Fr. Andrew]]:** Yeah. Which that would be very different had it remained purely an oral thing.
+
+**[[Fr. Stephen]]:** Right. Right. Um, if you want to go over to China, right, Lao Tzu is in this period, the *Tao Te Ching*, the founders of almost every school of what's considered quote-unquote Chinese philosophy, right, are all during this period. Uh, if you want to go to India, Buddhism emerges at this period. Uh, if you want to go to Persia, Zoroastrianism emerges at this period. Right?
+
+So there there is something happening, right, all over the world during this period. And that's why there was a need for anthropologists studying this period and studying ancient religion to say we need a term for this era, this age, this period of time when these shifts are happening worldwide.
+
+And when we look at these shifts, you may have already noticed as we were giving examples, there are some through lines, right? There there are some, there are some similar particular phenomena that are going on, uh, in these different places. Uh, so one of them is, uh, the depersonalization or the relativization of spirits and gods within paganism. So for example, [[Plato]]'s forms, we've talked about this on the show before, [[Plato]]'s forms are basically the Greek gods and goddesses stripped of all of the anthropomorphic personhood. Yeah. Right, which [[Plato]], read the *Euthyphro*, right, believes is unworthy to ascribe to them. Right? So instead of a god of justice who is a philanderer and right, goes around doing these things, right, uh, you have justice itself.
+
+**[[Fr. Andrew]]:** Yeah, and and in you know, you even get stuff that's kind of in between like, you know, early you get this idea of Muses, these very specific goddesses who inspire people to do particular artistic things. Um, but then you also have this sense of like, like we might describe the spirit of music. But when someone says that, they don't mean a spirit exactly. You know, but there's this… Yeah. It's yeah, it's a de, as you said, it's a depersonalization, but it's still with a sense of a spiritual reality.
+
+**[[Fr. Stephen]]:** And the personal elements get relativized. Right? Yeah.
+
+So you still have [[Plato]] and [[Aristotle]] engaging in meditative practice, Yeah. right? To connect with things that they think are divine, right? They've just sort of depersonified them. Right? Made them less human in the sense of possessing human foibles. Right? Um… But you could also see this similarly, frankly, in the move of Buddhism out of Hinduism, the way again most forms of Buddhism treat the idea of gods and spirits from within Hinduism. Right? Where it's not sort of like, "Well, we deny all those things exist," any more than [[Plato]] did. But they become relativized. Right? They become principles, they become kind of depersonified. They become tools or elements of a ladder that might be useful to someone spiritually at a certain level of their development. But there are sort of more refined forms that go beyond that. Right?
+
+So this is not in either case, right, a rejection of the preceding pagan religion, but it is, uh, a participation from the perspective of those first participants and leaders, it is a participation in a more refined or purified or more noble or more worthy form of that religion.
+
+**[[Fr. Andrew]]:** Yeah, I mean sometimes a kind of…
+
+**[[Fr. Stephen]]:** Of that religious expression.
+
+**[[Fr. Andrew]]:** Reinterpretation or additional layer of interpretation. Yeah.
+
+**[[Fr. Stephen]]:** Yeah. Um… You also find a shift, um, away from, so what you find in for example a lot of ancient Near Eastern religion and paganism is, uh, the idea that, you know, the world is full of spirits and gods and over places, over things, and things. And they're they're fundamentally capricious. Yeah, they're just dangerous beings that exist in your area and you want to keep them from hurting you.
+
+**[[Fr. Andrew]]:** Right. And kind of fickle, they'll turn on you, they're easily offended, right? Um… Sometimes you just don't want them to know about you at all, right? You can see this in Greek paganism too. I mean, this is kind of a through line in paganism, right? Yeah. Um, and so ritual and sacrifice and these things are often aimed at almost bribing or winning over, right, gaining the allegiance of these spirits and spiritual forces and and gods.
+
+And you see in these more refined forms that emerge in the Axial Age, a shift from that to an understanding that there is some kind of order or structure or harmony or path within the world itself.
+
+**[[Fr. Andrew]]:** Yeah, there's even, I mean almost you could say there's a sense that there is *the* world. You know?
+
+**[[Fr. Stephen]]:** Yeah.
+
+**[[Fr. Andrew]]:** That there's something more than just this.
+
+**[[Fr. Stephen]]:** Right. And so that what that means then is that if there is this kind of order, structure, harmony within the world, you can have start having the concept of like ethics. Right? Um, ethics and religion are so closely tied together in our minds as modern people because we've come from a Christian society that we don't understand that, uh, there was not any real fundamental connection, or even really a sense of ethics.
+
+**[[Fr. Andrew]]:** Yeah, this idea of right and wrong…
+
+**[[Fr. Stephen]]:** Before the Axial Age. I mean really.
+
+**[[Fr. Andrew]]:** It's much more like good and bad in the sense of like, you know, this is a good chair and that is a bad chair.
+
+**[[Fr. Stephen]]:** Well, I'm talking even before that. Yeah. Oh yeah, yeah, yeah, yeah. Right? Even before that. I'm talking about before the, that starts to emerge in the Axial Age. Um… Like before that, in large part, it's, right, the the the, you know, the king goes and, you know, posts in a prominent place like the Code of Hammurabi, right, "Here's the laws. And here's what I will do to you if you break them." Right? But if you're not in that city, there's not a law.
+
+**[[Fr. Andrew]]:** Right. You're just out there. Who's going to make you?
+
+**[[Fr. Stephen]]:** Right? And the same thing with the gods, right? There are certain things that you wouldn't do because you thought, you know, right, like read some Greek tragedy, right? You do certain things and the Furies are going to come up out of [[Hades]] and get you, right? But it was fear of getting caught. Right? It wasn't, "How do I need to behave and live in order to live a fulfilling and successful life, right, as part of a community that is thriving and growing and being successful?" Right? There was no concept of that. Right? You were either in survival mode or you were enslaved or you were the one doing the enslaving. Um… But there was not this sense of like, "There's a way I need to live in the world, you know, and that our community needs to be governed so that it will thrive and grow and be successful." Right?
+
+And that included, right, when you get that idea coming about in the Axial Age in these various places, that included the divine. It wasn't to the exclusion of the gods. It wasn't like, "Oh, don't worry about the gods anymore." The gods were included in that, right? Like you were, you needed to be in harmony with your family, your community, with you with the gods, right, with the divine, right? All of those things, that's how you wanted to live your life so that all would go well with you. Um, and even then, still sometimes bad things happened by chance. Yeah. Right? Um, but there was still this idea, right, that there was a should, the way people should live. And, you know, be careful, right, because even as I'm saying that and I'm trying to choose my words carefully, um, because we as modern people want to individualize that.
+
+**[[Fr. Andrew]]:** Yeah, it's much more like what's good for the community as a whole.
+
+**[[Fr. Stephen]]:** Right.
+
+**[[Fr. Andrew]]:** How can the community flourish?
+
+**[[Fr. Stephen]]:** So at this point in the Axial Age, things are very communal and the should is very dependent on your social class, for example. Yeah. So if you are a slave, then what you should do is work really hard at whatever you're ordered to do. Right?
+
+**[[Fr. Andrew]]:** Yeah. And I mean it's understandable that the communal is such a is so privileged because hanging together meant the difference between survival and and, you know, extinction.
+
+**[[Fr. Stephen]]:** So the yeah, the kind of ethics we're talking about right now though is not, you know, "Live your best life now." Right? No. Like… They fully embraced, and they fully embraced in a way that we as modern people will not admit, they fully embraced, uh, on the face of it that for some people to prosper and have a very high standard of living, a whole lot more would have to not.
+
+**[[Fr. Andrew]]:** Right. Like they just took that for granted and they were had no problem with the idea.
+
+**[[Fr. Stephen]]:** Yes. And everybody was in the social strata that they were because that's where they belonged. Right? And even, you know… And even, you know, there were even detailed arguments that certain kinds of people were just sort of born to be slaves or born to be masters, you know, whatever.
+
+**[[Fr. Andrew]]:** Or born to be merchants or born to be great generals or born to be soldiers, right? And all the different levels, right? And so there's a different ought, there's a different ethic for each of them. And the aim of it is not really at, right? I mean, they accepted when they went to war that a lot of those infantry guys were going to die. Yeah. Right? And them going out there and dying bravely wasn't so great for them, right? Or or their individual families, but it was great for Athens and that's what was important, right?
+
+**[[Fr. Stephen]]:** Yeah. So don't individualize this too quickly. But it is still a watershed having this idea of ethics, right? And having the idea of, uh, having a, that there is this harmony and order in the world that is reflected in that. And it's not just the caprice of gods and kings and larger people, right, with more physical strength, right, that govern the world. Um…
+
+Right. And so we could see elements of this though, we could see some elements of this though, even in this transition from the religion of ancient Israel and Judah to to Judaism. Right? Especially Phariseeism. Phariseeism has a very strong sense of ethics, right? The [[Torah]] when it was given, because I believe it was given well, well, well pre-exile, uh… the [[Torah]] when it was given was talking about how to structure the society, how Israel should be structured. Right? And what Israel should and should not allow within its limits. Right? Um…
+
+Because we have to understand that no one in Israel virtually could read in the pre-exilic period. Right? The king was to, according to [[Deuteronomy]], have a copy of the [[Torah]] and read it, because he needed to, right, he needed it because he needed to know what to allow and what not to allow and how to structure and maintain order in the people of Israel, right? How to administer the temple, right, and its rituals, etc. etc. etc. Right? The priests needed to know those things, right, in [[Leviticus]], right? These people needed to know it, but your your average ancient Israelite or ancient Judahite had pretty much no knowledge of what was in the [[Torah]], contents of the [[Torah]]. Right? There were not like [[Torah]] readings.
+
+**[[Fr. Andrew]]:** There was no Gideons.
+
+**[[Fr. Stephen]]:** At the Tabernacle.
+
+**[[Fr. Andrew]]:** At the end of cow copies.
+
+**[[Fr. Stephen]]:** And if they had done a [[Torah]] reading at the Tabernacle, only the priests would have heard it anyway, right? Because the people didn't all go to the Tabernacle on Saturday to worship.
+
+**[[Fr. Andrew]]:** Yeah. Nobody…
+
+**[[Fr. Stephen]]:** As we've talked about on the show, that's not how it worked. Yeah. Or the temple later, right? That didn't happen. Right? Um, and in the northern kingdom, of course, it's even worse because they're engaging in all kinds of pagan worship and stuff, right? They're not a [[Torah]] scroll to be found, right, for a normal person. Um…
+
+Whereas, right, post-exile, once you have the synagogue system, you do start having public [[Torah]] readings. Right? [[Ezra]] does read the [[Torah]] publicly. Right? Start having all this writing and literary activity, right? So now your average Jewish person who's going to a synagogue is hearing the [[Torah]]. And so those commandments take on a new pertinence to them, right?
+
+So the Pharisees still believed that the solution to the problem, the ongoing problem of exile and Roman oppression was that Israel, right, at that time Judea, had to corporately keep the [[Torah]]. Right? But the way someone participated in corporately keeping [[Torah]] was by keeping [[Torah]] themselves. Right? Which [[Torah]] they now heard read at a synagogue. And so the [[Torah]] took on in this period an ethical dimension for Jewish people that it did not originally have. Right? A new dimension for them.
+
+So these shifts, even though we're talking about, right, different original religious structures, this shift does still take place. A parallel shift does still take place to produce what becomes early Judaism, ancient Judaism, [[Second Temple]] Judaism, right, in all of its diverse forms.
+
+So, what, what causes this? Right? Why does this happen all over the world at this, during this era in history? Right? Well, there's a number of factors that play into it, right? So first and foremost, um, you have sort of the stabilization, a stabilization of society during this period. So remember, we're coming off the Bronze Age collapse at the end of the second millennium BC and kind of throws everything into chaos. Um… And I said, I know I've said before on this show, and I've said to lots of people, when you're envisioning the time period of David and Saul and even into Solomon, right, at the beginning of the first millennium BC, you've got to picture it in as sort of post-apocalyptic. Right? The people are living in and around the ruins of the great Bronze Age civilizations.
+
+And there are people trying to take up those mantles. Like the Assyrians will be trying to sort of, when they show up, uh, after a few centuries, will be trying to take on the mantle of, um, Babylon. Right? And then they're followed by the Neo-Babylonian empire, right? Who are most certainly trying to lay claim to the empire of Hammurabi, right? Um, to which they're not related, right? And trying to rebuild that, right? And and reproduce that. The Philistines who you're running into are refugees from the Aegean who have come and settled in the Levant. And these the sea people, right?
+
+**[[Fr. Andrew]]:** Yes.
+
+**[[Fr. Stephen]]:** They were one of the sea people.
+
+**[[Fr. Andrew]]:** Right.
+
+**[[Fr. Stephen]]:** Yes. Uh, so they're a bunch of Greeks who washed up on shore who are trying to structure some kind of society now in their new environs because they tried to take over Egypt and got repelled, right? Along with other other sea peoples groups, right, in the area. Right? So this is, this is this kind of post-apocalyptic and rebuilding period. So once we get into the middle part of the first millennium BC, things have been rebuilt, right? We've now got the Greek city-states, uh, functioning in Greece in the classical period, right, after sort of the collapse of the Mycenaeans, right? Um… Egypt has kind of recovered economically and financially. The Assyrians are on the rise, trying to rebuild Babylon. Right, so things have stabilized, right? Things have been rebuilt to a certain level, right? And then you're going to get the Neo-Babylonians, then you're going to get the Persians, right? And the Persians during this period are forming their religion, Zoroastrianism, there all of this is being built, right? Um… and taking shape, their whole culture and sense of self is taking place during this this Axial Age. Right? All of this is happening. Similar things are happening in, uh, India and China in terms of rebuilding and so things reach a certain level of stability, right? Because all of the other factors we're about to talk about that contributed to the Axial Age require you to have some kind of stability, right? Economically, in terms of the class structure of your society. If you're, if you're being invaded, if you're being attacked, if you're at war, if you're suffering from famine and plague, you know, you're not going to have time to learn to read.
+
+**[[Fr. Andrew]]:** Yeah, or there's not, not a lot of people going to be sitting around writing big long literature, you know. It's like, "Look, pick up a spear, buddy."
+
+**[[Fr. Stephen]]:** Yeah. So that's why a lot of this starts happening, right, in this period. We first we get this stability. Um, and then as we've kind of already alluded to, you get an economic situation where you have the emergence of a very strong class system within these agrarian economies, right? Mostly based on slavery in various forms. Um… But as we mentioned, there they're very conscious about the fact that yes, for these upper tiers of society to enjoy a certain lifestyle and certain things, to have leisure time, to be able to have time to devote to these other things, uh, there has to be this great pool of people who are meeting their survival needs in terms of food, shelter, etc. etc. etc., tribute, taxes, right? Um… All of this, all of this has to happen. And those structures come into place. Right? Those structures come into place. So that you can have a class of people, a literate class. Right? And so the development of this literate class means there's this rise of literacy rates. This is also the period of time where, uh, people are now, at this time using alphabetic language for the most part. Yeah, as a, as a, as a, as distinct from some of the kind of, you know, pictogram approaches.
+
+**[[Fr. Andrew]]:** Pictographic or consonantal or vocabularies, cuneiform. This is important because this is a prerequisite for having a very high literacy rate, right? Is is that you limit the number of characters that you have to learn. Right? When you're looking at different forms of cuneiform, like simplified cuneiform alphabets have like 80 symbols, the simplified ones. Right? Um, you're not going to have a ton of literate people, right, in that sort of situation. Whereas an alphabetic language, right, where each symbol represents a sound and there's, you know, 20, 22, 24, 26 of them, right? Uh, much more workable, right, much more workable in terms of literacy. And so you get this rise of a literate class, that means people start taking oral tradition, stories, writing all these things that have been handed down orally and putting them into writing. And not only putting them into writing, but there are people able to read them. And they begin to be read publicly. And so you get the rise of public discourse.
+
+**[[Fr. Stephen]]:** Yeah, and then and then, you know, because of that, then you get rituals that are connected with this use of texts.
+
+**[[Fr. Andrew]]:** Right. So you start having, right, the [[Torah]] being read in the synagogues. Right? Or you start having, uh, Homer being sung and performed publicly. Right? And similarly in other in other cultures, right? It's not just a storyteller telling their version of the story that's localized and related to particular traditions, but they start to take on this larger form, right? And so you get a sort of enlarged religious significance of of the text. Right?
+
+So this shift, the reason we've been talking about this shift, there's someone out there who's like, "Wait a second, I thought this episode was going to be about the Stone Age." And I warned you at the beginning, we would not get there till the third half. They say, "Why are you, why are you dilly-dallying in the middle of the first millennium BC?" Well, so this that we've been talking about, the Axial Age, there's this epochal shift we've been describing in in, uh, religion across the world. And this one's really well documented because we've got all these texts from it. Right? So we could describe it, we could research it, you can look at it, you can look at it in various countries spread out all over the world, you can compare and contrast. Right, it's all documented.
+
+This is not the first major shift like this though. There was a previous shift in the [[Neolithic era]], in the Stone Age. Right? That one is not documented because there was no writing. It's prehistoric. Right? And so we've spent this time here in the second half talking about the Axial Age and this shift to give an idea of how this kind of thing works. Right? Since this one is so well documented, to help us understand now as we in the third half go back even way further, right? Um, we're going to go further back from the Axial Age than the Axial Age is from us. Um… uh, to talk about what happened in the Neolithic, uh, revolution and what's going on there religiously. Yeah.
+
+**[[Fr. Andrew]]:** [Yeah.](https://media.ancientfaith.com/audio/podcasts/lordofspirits/los_2023-08-24.mp3#t=1:05:25:21) All right. We're going to go further back in time in the next half of the [[Lord of Spirits]]. But now we're going to go ahead and take our second and final break. See you in a moment.
+
+## Callers
+
+**[[Fr. Andrew]]:** [Welcome back, everybody. It's the third and final half of this 99th episode of the Lord of Spirits podcast.](https://media.ancientfaith.com/audio/podcasts/lordofspirits/los_2023-08-24.mp3#t=1:07:05:41) Next time, it's going to be episode 100 and our fourth anniversary.
+
+**[[Fr. Stephen]]:** So, uh, what happened to that ad for your new show?
+
+**[[Fr. Andrew]]:** It was too long, apparently.
+
+**[[Fr. Stephen]]:** Well, I know it was long. Oh, really? Like…
+
+**[[Fr. Andrew]]:** No. I told you… Okay.
+
+**[[Fr. Stephen]]:** So I was going to say, I kind of liked it. I could go get a cup of coffee, eat a sandwich.
+
+**[[Fr. Andrew]]:** That's true, it was a little long. Yeah. Look, we got to sell books, okay? I mean…
+
+**[[Fr. Stephen]]:** Did, uh, did your co-host Rip Rogers get in trouble?
+
+**[[Fr. Andrew]]:** No, no, no, he's still, he's still on board.
+
+**[[Fr. Stephen]]:** You know, you know the weird thing about him is, now that I've met him in person, um… Like, you know, on on when you hear him on Ancient Faith in a podcast or something, he kind of sounds like he's affecting a little bit of a light English accent. Mm. You know. But that level of affectation, that's commonplace for a Southerner, right? Like…
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** We can deal with that. But here's what's weird when you meet him in person. He constantly speaks in this fake Jamaican patois.
+
+**[[Fr. Andrew]]:** And I don't know like who he thinks he's fooling, like that's his natural voice. Like I went to PesaFest, he's sticking his head out of the sunroof of the car yelling, "Original rude boy," while we're driving around Tampa. I don't know what's with this guy.
+
+**[[Fr. Stephen]]:** I mean, I mean, look, the the guy's name is Richard Roland. He is literally a living Rick Roll.
+
+**[[Fr. Andrew]]:** If that is his real name.
+
+**[[Fr. Stephen]]:** So…
+
+**[[Fr. Andrew]]:** Yes. Yes. I mean, it might be his legal name.
+
+**[[Fr. Stephen]]:** I'm just saying. It's odd. It's just, just odd. I'm not going to say it's racist, but it's weird.
+
+**[[Fr. Andrew]]:** Where were we?
+
+**[[Fr. Stephen]]:** The Stone Age. Paleolithic, Mesolithic, Neolithic.
+
+**[[Fr. Andrew]]:** Exolithic, hyperlithic.
+
+**[[Fr. Stephen]]:** Yes. Yeah. Although, I also, I also want to point out, some people may be wondering, as soon as you hear Stone Age, if you're of a certain age, you you may think of the modern Stone Age family, the Flintstones. Hm. Right. Which celebrated Christmas. Yeah. Well, and here's why. You know why, right?
+
+**[[Fr. Andrew]]:** I've never really considered that question, actually.
+
+**[[Fr. Stephen]]:** There's this misnomer that the Flintstones are living in ancient times. Right? Hmm. Like that this is some kind of, you know, Ken Hannah does the Honeymooners where you've got, you know, humans and dinosaurs living side by side.
+
+**[[Fr. Andrew]]:** I mean, it is true that their theme song says that they are a modern Stone Age family.
+
+**[[Fr. Stephen]]:** A modern, right. The Flintstones is a post-apocalyptic show set in the far future.
+
+**[[Fr. Andrew]]:** They're trying to recreate modern technology with primitive tools. I'm on board with this. And that's why they celebrate Christmas.
+
+**[[Fr. Stephen]]:** So the Flintstones is actually farther in the future…
+
+**[[Fr. Andrew]]:** Than the Jetsons.
+
+**[[Fr. Stephen]]:** Than the Jetsons. Yes. We can just go home now, everybody.
+
+**[[Fr. Andrew]]:** But we're we're now back in the past. Yes. Right.
+
+**[[Fr. Stephen]]:** We're now back in the past. Um… So, um… I mentioned the, uh…
+
+**[[Fr. Andrew]]:** I think we have our first our first New Zealander tuning in. Hello, New Zealand.
+
+**[[Fr. Stephen]]:** Oh, okay.
+
+**[[Fr. Andrew]]:** I thought we had a call.
+
+**[[Fr. Stephen]]:** Wow. No, no, no. No calls. People are just so stunned at this revelation about the Flintstones. They're like, "I don't even know what to do with myself."
+
+**[[Fr. Andrew]]:** Yeah. Yeah. They may not, may not even be… I mean, he got visited by an alien, the Great Gazoo.
+
+**[[Fr. Stephen]]:** Oh yeah. And the schmoo, like… Come on. Okay. So, um…
+
+**[[Fr. Andrew]]:** Yeah, we've we have someone who wants to, uh, fact-check something you said earlier, [[Father]]. Um, so, uh…
+
+**[[Fr. Stephen]]:** About the Flintstones?
+
+**[[Fr. Andrew]]:** We we have, we have Caleb who's, you know, he pulled out his copy of [[Deuteronomy]]. He's like, "Now hold on a minute. Hold on a minute." So Caleb, are you there?
+
+**Caleb:** [Yes, I am here. Uh, greetings, Pod-fathers. Greetings, uh, Father Stephen and Father Andrew.](https://media.ancientfaith.com/audio/podcasts/lordofspirits/los_2023-08-24.mp3#t=1:24:37:34)
+
+**[[Fr. Andrew]]:** Welcome.
+
+**Caleb:** I had to Google the spelling around so I didn't mess up your names.
+
+**[[Fr. Andrew]]:** Yeah, yeah, yeah. Anyway, um…
+
+**Caleb:** Well, clearly you're a liberal because fact-checking is liberal.
+
+**[[Fr. Andrew]]:** Oh!
+
+**Caleb:** Go ahead. Yeah. So, uh, as as for the whole population question, that was, that was hilarious. I will say, uh, it's getting harder to be someone, but it all works out. Yeah, yeah, yeah. Uh, the question I had, um… Oh, speaking of which, I'd also remind me, [[Father Stephen]], we had one of your chanters visit, uh, at our parish up here in the UP of Michigan a little while ago and really appreciated him.
+
+**[[Fr. Stephen]]:** Well, it's good someone appreciates him.
+
+**Caleb:** [laughs] All right, my question is [[Deuteronomy]] 31, uh, there's, uh, a commandment there, Moses commands, uh, that the, uh, the [[Torah]] should be read in the hearing of all the people once every seven years. And I didn't hear your whole spiel earlier, I'm actually on break at work, but, uh, I was wondering how that fits into, uh, most, I mean, obviously it wasn't followed most of the time, but there must have been some times where it was followed.
+
+**[[Fr. Stephen]]:** Yeah, it pretty much wasn't followed, at least during the, uh… It looks like it wasn't followed much at all. I would assume [[Joshua]] did it. And we have record of [[Joshua]] doing it once in the book of [[Joshua]].
+
+**[[Fr. Andrew]]:** In the book of [[Joshua]], he does it at one point.
+
+**[[Fr. Stephen]]:** Um, but in the period of the judges, it wasn't done. Um, and we know because when when King Josiah like rediscovers it in the temple, Yeah. "What is this stuff?" "Whoa." Yeah. So it was basically like the first generation after Moses and then it just disappeared until say the time of Josiah.
+
+**[[Fr. Andrew]]:** Right, it fell into disuse. Right. And you see the same thing happening, I mean in general, right, the the story of the book of judges is about the people sort of forgetting everything and right, the tabernacle falls into disuse, um… they start creating other shrines and altars and things. Um… there's just sort of this immediate falling away. And then there's sort of a, and and judges of course ascribes that to, "Well, Israel needs a king," right? Um, to sort of set this straight and then sort of helps position moving through the Deuteronomistic history into first and second [[Samuel]] or first and second kingdoms that David is the guy. Right? Uh, but then things fall apart pretty quickly again after David. We also know from the Josiah story that Solomon puts a uh, an idol of the sun god's chariot in the temple courts.
+
+**Caleb:** Yikes. Yeah.
+
+**[[Fr. Stephen]]:** Yeah.
+
+**Caleb:** So would it be safe to assume that this was possibly obeyed during the reign of David or reigns of David and Solomon perhaps?
+
+**[[Fr. Stephen]]:** Uh, Solomon would probably be pushing it. Maybe, maybe David.
+
+**Caleb:** Okay. Um…
+
+**[[Fr. Stephen]]:** But for the most part, it wasn't, it wasn't being, it wasn't being followed.
+
+**Caleb:** All right. And you know, they also we know from [[Jeremiah]] never kept the Sabbath year either, which if it was done every seventh year, that's when it would have been done. Oh yeah, huh. That that makes sense. It's tied into that. Yeah. Yeah, so that would be a good way of actually seeing or or or, uh, how would you say, extrapolating whether it was actually being done or not.
+
+**[[Fr. Stephen]]:** Yeah. Yeah, because God tells [[Jeremiah]], "You you basically are going to be in exile for 70 years because you owe me 70 Sabbath years that you didn't keep over the last 490 years."
+
+**Caleb:** Right.
+
+**[[Fr. Stephen]]:** Wow.
+
+**Caleb:** Yeah. So, uh, preach that one to American agriculture. Yeah. Thank you, fathers. I need to get back into work, but, uh, have a just to call you.
+
+**[[Fr. Andrew]]:** Thanks for calling, Caleb. All right. We have, we have another caller, actually. So since we're paused, we're going to go ahead and take Catherine. So Catherine, welcome to the [[Lord of Spirits]] podcast.
+
+**Catherine:** Hi, fathers, how are you?
+
+**[[Fr. Andrew]]:** Good, how are you?
+
+**Catherine:** I'm excellent. Um, I do have, it's maybe an adjacent question, um, but it's a, it's a serious question and and I was wondering if if you could answer them. Um, in in the description of this of this podcast, I I saw the word "Neolithic." Yeah. And that just, you know, that just, uh, you know, um, fired off a couple things in my mind and I was wondering if if you could answer them. Um, since Neolithic, the etymology of it, if I'm not mistaken, means "new stone." Right?
+
+**[[Fr. Andrew]]:** Yeah, that's that's sort of like there's like three ages of the, three parts of the Stone Age. Paleolithic, Mesolithic, and Neolithic, and that's the latest part is the Neolithic period.
+
+**Catherine:** Okay, because what I was thinking is if there's a new, there has to be an old. And so I'm wondering if that's the Paleolithic? Okay, so so in regards to that, is that is that pre-flood or pre pre-Babel, or, you know, were people writing things down? Um, you know, I'm I'm just wondering where does that start, uh, where where, like what is the difference? You know, did they did they have the the Neolithic period after the flood or after Babel, um, or before, in in regards to, you know, just to writing in general?
+
+**[[Fr. Stephen]]:** What do you think, [[Father]]? I mean, there's so many different ways you could shake this question out, I guess.
+
+**[[Fr. Andrew]]:** Well, yeah. So it partly depends on what you think is the relationship, as I mentioned very briefly, between the Ice Age and the flood. So there are some people who would say that all of the archaeological and geological evidence of the last Ice Age is really evidence of the flood. So they would say that basically the the last Ice Age *is* the flood. Right? They would identify those two things. Um, there are other folks who would say that the story that the story of the flood is telling, right, that's when that happens is at the end of the last Ice Age. So at the end of the last Ice Age, according to archaeology and geology, there were these massive earth changes, meaning the Ice Age is called the Ice Age because glaciers expanded over, like for example, most of North America was covered by ice or water, water in some form, right? There is evidence during this period. Right? So that's why so the people who say, "Well, that is the flood," would say, "Well, that was liquid water, it was the flood." Right? Um, but other people would say, "Well, no, that was glacier, but then at the end of that Ice Age, those glaciers melted." And when those glaciers melted, they released the trapped water. So for example, there's archaeological evidence of, uh, a couple of cities at the bottom of the Black Sea. Hmm. So there there's pretty good evidence now that the that during the the Ice Age, there was no water in the Black Sea, that there were people living there, and at the end of the Ice Age, right, as the glaciers melted, it filled up with water and became the Black Sea. Right? So some people would say, "Well, no, the flood happens at the end of the last Ice Age when the glaciers melt," right, and it wipes out all of these, all right, human civilization as it had stood. Right, using the Black Sea as an example. There are plenty of other examples besides the Black Sea. Right?
+
+**Catherine:** May I, may I make a point? Um, I I work in, I've worked in northern Alberta, and a lot of the, uh, in in Canada, and a lot of the geological formation is, uh, water that was above forests. So if it, if it, if it froze, it it was forests there and then it was water.
+
+**[[Fr. Stephen]]:** Yeah. Yeah. So in my regard…
+
+**Catherine:** So for me, I I don't see it as flood, uh, post-Ice Age.
+
+**[[Fr. Stephen]]:** Right. Well, and so either way. Either way. However you, however you want to look at it. But so the idea is the Neolithic period is the period right after the Ice Age. So if you connect the Ice Age to the flood, it would be the period after the flood. And so we would be talking about the that when we talk about the Neolithic revolution, we would be talking about the period of time where the population grows to the level that we've been talking about, and so starts to build cities and towns and, right, well villages at this point, starts to build villages, right, and settle down in permanent places and begins, begins more intentional agriculture.
+
+**Catherine:** Okay, so it's, so it's, it's after the flood but before Babel?
+
+**[[Fr. Stephen]]:** Uh… I would, I would say yes. Yeah, because I think the Tower of Babel is actually related to the Bronze Age collapse. Yeah.
+
+**Catherine:** Okay. Thank you.
+
+**[[Fr. Andrew]]:** All right. Thanks for calling, Catherine. Okay-doke. So, yes, uh, world population very small.
+
+**[[Fr. Stephen]]:** Very small. Um… So, um, yeah, so there's this, there's this transition in religion that happens as there's this transition to settled life, right? And to kind of understand that, we have to start with a little bit of an idea of what does hunter-gatherer religion look like? Right? And we've talked about this, we've read a couple of quotes, you can go back to old episodes, very early episodes, um… and hear some of the quotes about early quote-unquote monotheism. We've already reiterated this episode why quote-unquote monotheism may not be the most helpful category to have in our head. But just the idea that early on in the in the hunter-gatherer period, uh, there is pretty good evidence, right, that we're dealing with primarily one sort of deity or spirit that people understand to be associated in some way with the sky, with the heavens, right, above them.
+
+**[[Fr. Andrew]]:** Yeah, I mean a lot of the early, you know, even even a lot of the early Indo-European stuff is the the the main god is as you said, in some way kind of a sky god or a heavenly god or something like that.
+
+**[[Fr. Stephen]]:** Right. Right. And there's sort of one. And then what happens once we start moving to settled life is that the earth suddenly becomes very important, because now we're going to live by planting and growing crops.
+
+**[[Fr. Andrew]]:** So the idea of, yeah, some kind of deity in the earth or related to the earth, you want that spirit's attention and help.
+
+**[[Fr. Stephen]]:** Right. The ground, the soil, the fertility of the soil, right, becomes eminently important. And you so you start also getting, and the Neolithic period is where we get these first cultic figures of an earth goddess. Right? And so there comes to be this pairing at this in this early phase, right, in coming out of the Neolithic period, of a sort of masculine sky god and a feminine earth goddess. Right? But it's that earth goddess that gets added. So it's here where we start moving to take that first step toward a multiplicity of gods, right? Is is that it takes place within the Neolithic revolution and the move to to settlements.
+
+And then once you have settled life, right, once you have settled life, this can then give rise to all kinds of spirits and cultic deities, meaning spirits and lesser sort of quote-unquote deities that you can invoke, get to do favors, bribe with different things, right? That that will cover different aspects of of settled life, once you start having villages and then eventually towns and eventually cities. Yeah. You start to get this multitude of of gods and spirits, even in an individual place.
+
+**[[Fr. Andrew]]:** Yeah, because if that particular place becomes important to you now because you live there, which in nomadic societies you don't, um, if you live there and you have the sense of, "Okay, this deity is associated with this place," then you start to form these kinds of relationships.
+
+**[[Fr. Stephen]]:** Right. And and we see that with the development of sacred sites, right? The many of the first of which are fountains, springs of water, because obviously you need water to live. Um… Hunter-gatherers do too. But, but when people go to settle, they start to settle at the sacred sites. Right? They don't settle in a place for some kind of materialistic reasons and then sort of spiritualize some elements of that place. Yeah.
+
+**[[Fr. Andrew]]:** And and I mean like one of the ways that we know that this is the case is that there are these settlements in places that make no sense in terms of like natural resources or whatever.
+
+**[[Fr. Stephen]]:** Right. Right. And as we're going to start talking about particular settlements, the most ancient settlements we found and that we know of, and what you find in those settlements is that the ritual elements, like megalithic stone structures that clearly have a religious purpose, right? Um… Those are there before the homes, the residence, the dwellings are, right? And before the agricultural projects start. Right? So these sites are sites that are found and encountered by nomadic peoples. And then when the time comes for the nomadic peoples to settle down, they settle down at these sites. So they find a spring of water, there's a spirit that they associate with that spring of water, right? They form a settlement there. The spirit they had associated with the spring of water now becomes one of the gods of that people, right? They start to worship it. Right? And we've talked about this in terms of what happens after Babel and the fact that there are angelic spirits, right, associated with these different things, right? But the problem is humans are now starting to worship them as gods, right, and of themselves.
+
+So going to the earliest settlements we have, right? So, uh, one of the earliest sites we have that's become semi-famous, um, though sometimes weird things are said about it, is, uh, Göbekli Tepe. Yeah, which we've mentioned on the show a few times before.
+
+**[[Fr. Stephen]]:** Yeah. Um, I think it was way back in the long-ago time though. But, um…
+
+**[[Fr. Andrew]]:** Like the year 2000. Um… Göbekli Tepe was, uh… was seems to have first been settled around 9130 BC. Again, if you think they're not that old, adjust accordingly, right? Um, but that's the traditional standard sort of dating. Um, it's near the the Syrian border with, uh, Turkey. Um… And, uh, the main feature there, the thing that gets everybody excited, are these, uh, massive megaliths, right? They're these huge megalithic stones with animal forms carved into them. Right? And they are arranged in a way somewhat similar to what's what's going on with Stonehenge in that most people agree now that they were used for astrological observation. Right? That the the stones were put in place for the purpose of, and the ritual carvings are connected to constellations and things that would be at certain points during certain times of the year. Um, getting into super detail, there are people trying to get into super detail on that. Um, in the sense of, uh, exactly where what constellations were like in 9130 BC and stuff. Um… that is actually really hard to do, especially going back that far, because the earth kind of wobbles in its orbit. So things shift slightly. Um, the stars are not in the same place they were 5,000 years ago, right? Let alone 10. Um… Relative to any given position on Earth. Um… So, uh, but it's a general agreement that that's there. But again, those megalithic structures were there before anything else that has been found there. Which suggests that these were built as this spiritual site, right? As this site of religious ritual and sacrifice, to which nomadic peoples would come at a certain time of year. And then at a certain point, a certain later point, after these megalithic structures were built, then we find other like domestic housing units, right, for lack of a better term, domiciles. Um, we find evidence of human settlement there a little later. Right? So then at a certain point, people start to settle there at the spiritual site permanently rather than just migrating there at certain times of year for, uh, ritual purposes, religious purposes. Right? And this is true of all of these earliest sites that we found that we're going to talk about now. Um, that the the ritual site is there first. Right? And exists as a place that people make what we would call a pilgrimage to. Uh, and then only later, right, do people settle around it, on a permanent basis. Right?
+
+So, um, there are there are two more very early sites. One of them is is Jericho, like the city of Jericho that's in [[Joshua]]. The the city of Jericho, there has been a human settlement there since circa 10,000 BC. Again, adjust accordingly. But that's a big circa because rather infamously, the site of Jericho was kind of ruined by bad archaeology. Hmm. Dang it, bad archaeology. There was a, there was a certain period of European archaeology, uh, where they got access to especially sites in the Holy Land that had some biblical significance, and there was a rush by, uh, dabblers with some money, especially among the British, uh, to to get down there and say, "Now we can prove that the Bible is true." And being non-gifted amateurs, they wrecked a few sites. And Jericho is infamously one of them. They just started digging trenches and stuff in ancient Jericho. And so that's made it really hard, just about anything you see about Jericho, right, is super provisional. And for the record, if you see anyone saying anything definitive about the archaeological site of Jericho on either side, right? If you see someone saying definitively, "There's no way that Jericho was destroyed at the time of [[Joshua]], whenever they think that was," uh, be leery because the site's a mess, you can't prove that. Uh, but also if they say, "Oh no, for sure, the city of Jericho was destroyed at the time of [[Joshua]], whatever they think that was," they're also playing fast and loose. Right? So the site's kind of a mess. So we can't learn as much from that as we might from some of these others that remained undiscovered. But the other one we're going to talk about a little more is, uh, Çatalhöyük, which is from circa, again, 7100 BC, again adjust accordingly. Um, so this one is a little further on, by a little I mean a couple thousand years, uh, than, uh, Göbekli Tepe, but is a more advanced site. Right? And it's a sort of fully developed site. Now when I say fully developed, again we're not talking about even a Sumerian city, but there are clear individual residences, family residences there, Yeah. um, where you can lay out the floor plan, like we understand where people live. The religious site is is, uh, more developed. So progress has been made in terms of human settlement by this point. But it also gives us a window into sort of a couple other aspects of religion in, uh, in the Neolithic, uh, revolution. Uh, one of those is that we have burial sites. So at at Çatalhöyük, the, uh, in the individual family residences, the burial sites are in the floor. Right? So there's a dirt floor and the departed family members were buried in the in the floor, right? In the in the family's, uh, domicile.
+
+And they were buried with some things. Right? Uh, they were buried with things like food and extra clothing.
+
+**[[Fr. Andrew]]:** Yeah, which suggests, "Hey, you're going to need this in the afterlife that we clearly have some concept of."
+
+**[[Fr. Stephen]]:** Right. So they had some concept of some kind of afterlife, because otherwise why would they, why wouldn't they keep those things? Because they would need them, not the dead person.
+
+**[[Fr. Andrew]]:** Yeah. Valuable stuff. Yeah.
+
+**[[Fr. Stephen]]:** And, uh, there were also, uh, animal remains, and not of pet animals, of sacrificial animals. Which implies that there were sacrifices being offered in conjunction with the burial. Right? Which again, further suggests the idea of an afterlife and the involvement of spirits because again, why would you offer a sacrifice for a dead person if they're dead and gone? Right? Um… And the other major element is that there are individual shrines inside these family homes. And these individual shrines take the form of, uh, bull heads and sets of bull horns. Not bull horn like you yell through while you're picketing outside Walgreens, like the horns of a bull, like you put on the front of your car if you live in Dallas.
+
+**[[Fr. Andrew]]:** Yeah, I'm I'm told they all have that in Dallas.
+
+**[[Fr. Stephen]]:** Yes. Yes. Because of the Longhorns, they're fans. What's their Aggies?
+
+**[[Fr. Andrew]]:** Didn't Boss Hogg have that in the Dukes of Hazzard?
+
+**[[Fr. Stephen]]:** I think so. I think J.R. Ewing did too.
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Yeah. They're actually illegal in most of Texas, but… Wow.
+
+**[[Fr. Andrew]]:** They're they're not so good if you're in a car accident. Um… But so there are these these bull representations in the shrines within the home, right? And we know they're shrines because there's evidence of burning incense and sacrificial offerings. Um… Which implies, right, there's family worship going on and that that is connected to a bull figure, right? And by the time we get writing, as soon as we get writing, right, which is sometime after this, but you immediately see bulls everywhere, right? Particularly in terms of your sky or your storm god. The sky god becomes a storm god when rain becomes important for growing crops. Right? And you can see Hesiod records this transition. He has the the memory of this transition because he's got that extra layer of Gaia and Ouranos, right? The heavens and the earth, right, as being sort of that first phase of divinity, and then you get Kronos and the Titans, then you get Zeus the storm god. Um, and that's he's he's kind of encapsulating some religious history in his, uh, version of the succession myth, the double succession there. Um… But we immediately find, you know, the Bull of Heaven in the Epic of Gilgamesh, Bull Baal, right? All of this, right, bull symbolism gets carried on. So we know it goes back to this period. And then there's also, so that is the masculine, then you find, for example, Göbekli Tepe, some of the animal forms are fish and sea creatures. You find the sort of sea serpent, so we've talked about [[Behemoth]] and [[Leviathan]], right, [[Behemoth]] and Lotan, right, the sort of, uh, toxic masculinity and toxic femininity of ancient paganism. But at this very early tier of pagan religion. Right? [[Leviathan]] or Lotan is is sort of this, uh, symbol of order and power and strength and virility, and, uh, Lotan or [[Leviathan]], the sea serpent, chaos, right, destruction, disorder. Right? And we see this reflected even in these these sort of earliest sites. And so through this process of people settling in places, we get the beginnings of paganism as we would talk about paganism today.
+
+**[[Fr. Andrew]]:** Yeah, people worshipping gods.
+
+**[[Fr. Stephen]]:** Yeah. The kind of paganism that was practiced everywhere from India to Egypt to Greece, right? Uh, that kind of paganism that got refined in the Axial Age that we were talking about, Yeah. but that step emerges out of the Neolithic revolution and people beginning to settle. Right? And if you compare, right, this is a question we get a lot because we talk about how pagan, that kind of paganism is kind of ubiquitous in the world. Yeah. And so some people say, "Well, hold on a minute." Yeah.
+
+**[[Fr. Andrew]]:** "What about like Native Americans with their sort of semi-monotheistic belief in a great spirit?"
+
+**[[Fr. Stephen]]:** Right, associated with the sky. Yeah.
+
+**[[Fr. Andrew]]:** Yeah. And I mean some people will say, "Well, does that mean that these people were were worshiping [[Yahweh]] and never fell into paganism?"
+
+**[[Fr. Stephen]]:** Not exactly. Yeah. Right? Uh, or certain, uh, Pacific Islanders, right? Um, other indigenous, uh, islanders similarly, right? Couple things. Uh, just looking at say North and Central America, right? We can probably throw in South America. Right? The, um, when you look at the cultures that had made the Neolithic revolution, right? Who had built cities, right? And had stoneworking technology, right? That's why it's called the Stone Age because people were using stone tools, uh, as opposed to the Bronze Age, right, or the Iron Age. Um… the, uh, when you look at them, you know, you look at the Incas, you look at the Mayans, you look at the, uh, Aztecs, they basically fell into the same kind of patterns of paganism as everybody else. Right? The groups that maintained more of the earlier view are the ones that remained closer to the hunter-gatherer way of life. Yeah. Right? So that particular shift didn't happen for them. But, but even though, right, we're not going to say that, right, the sky spirit that someone's talking about is identical to [[Yahweh]] the God of Israel. Right? That is closer, right? So that kind of religion is closer to the religion of say Abraham, Isaac, and Jacob, right, than paganism is. Right? They're a lot closer than the Aztecs, right? Like… So this movement that happens, right? From the religious movement, from the religion of hunter-gatherers to the religion of the settled, to paganism, represents a sort of religious falling away, right? It is a negative religious development from the perspective of the true God. Right? Um, into the worship of many creatures, essentially. Right? As opposed to most beneficently, what we can call those other holdovers is sort of a half-forgotten memory of the true God. Right?
+
+**[[Fr. Andrew]]:** Yeah.
+
+**[[Fr. Stephen]]:** Um, but there's still this memory of this most high God out there. And there are reports from from Christian missionaries who went to some of those groups of exactly that, right? They kind of approached it the way [[St. Paul]] did the unknown god. Right? Like, "You know that kind of most high God, that father God who you have this idea is out there somewhere? Yeah. Let me tell you about him."
+
+**[[Fr. Andrew]]:** And and and and also it should be, it should be noted that it's not easy to figure out exactly what some of these groups practiced and believed prior to their contact with European Christians. Because frankly, you know, there's often not literacy, you know, and and and…
+
+**[[Fr. Stephen]]:** And they were mostly dead from disease.
+
+**[[Fr. Andrew]]:** Yeah, mostly dead. And there's some indications that there's a transformation that occurred with with the contact with Christianity. And so…
+
+**[[Fr. Stephen]]:** Yeah.
+
+**[[Fr. Andrew]]:** There's not any kind of, in many cases, a true pre-Christian, a truly pre-Christian image of what they were doing.
+
+**[[Fr. Stephen]]:** Right. Right. Um, so, what was the point of this episode? I don't know, I had to think of something to talk about.
+
+**[[Fr. Andrew]]:** Yeah, what's the point, Uncle Stephen? Why, [[Father Stephen]], why?
+
+**[[Fr. Stephen]]:** Um…
+
+**[[Fr. Andrew]]:** I know it's almost three hours of my life once again.
+
+**[[Fr. Stephen]]:** Yes, that you'll never get back. No. Um… So the point is, the point is this, right? The point is this. We need to be a little more nuanced than we typically have been in our understanding of religion. Right? Our understanding of religion. Because humanity was around for a long time before even the [[Torah]] was written. Right? And we know from the [[Torah]] that God was active during that time. And God was active throughout the period when the [[Torah]], as we talked about with the caller, was supposed to be read but wasn't being read. And God was active throughout the [[Second Temple]] period. God was active and as, of course, he has been active through all of subsequent Christian history. Right? Um… But we tend to have this kind of weird idea that like before God talked to Moses, like he'd been forgotten about. Right? Or we've so cast our idea of religion in general around our particular variety of Christianity, whatever that might be, whether it's Orthodox Christianity or something else, uh, that we're like, "Well, I mean, how would a hunter-gatherer have gotten saved?" Right? Hunter-gatherer didn't have sacraments. You know? Like…
+
+**[[Fr. Andrew]]:** Just the question itself is kind of amazing.
+
+**[[Fr. Stephen]]:** Yeah. Like hunter-gatherer didn't have sacraments, right? Like generations of people, right, all over the world. That's right. Um… What we're talking about when we say Orthodox Christianity, you want me to define Orthodox Christianity? Orthodox Christianity is the right worship of the true God. And what that means in a certain sense is that anywhere in the history of the world and of humanity where the right worship of the true God has taken place, we can say that was Orthodox Christianity. When we on the Sunday of the Triumph of [[Orthodoxy]], I'd like to say we're not being triumphalistic, but it's called the Sunday of the Triumph of [[Orthodoxy]], so we got to own it. Uh… when we say, we read the creed together, the Nicene-Constantinopolitan Creed and we say, "This is the faith on which the the world was founded." Right? We're not making the claim that 19th-century German Lutherans made. Right? We're not saying, "Finally through the long scrabble of human history, we have arrived at Orthodox Christianity of the type practiced in my parish in Southern Louisiana in the 21st century which is the pinnacle of all human religion, and all those benighted fools in the past didn't know what they were talking about and didn't know who God was." Right? We're making almost the exact opposite claim. Right? We're claiming that what we're doing in the right worship of God, and what St. Nicephorus the Confessor of Constantinople was doing in the early 9th century, and what [[St. Paul]] was doing in Corinth when he lived there, what he was leading, and what [[Ezra]] was doing after the exile, and what David was doing, and what Moses and Aaron were doing, and what Abraham was doing, and what those people in the genealogies of Abraham and Seth were doing, and what all the people whose names we will never know in all those generations past in prehistory were doing when they rightly worshiped the true God is all the same thing. It's all the same thing. Right? There are things that we know about God now that they wouldn't have been able to articulate then because God hadn't revealed them yet. Right? So yes, nobody was saying the Nicene Creed at Çatalhöyük in 6850 BC. But if there was anyone there, and probably not at Çatalhöyük because it was a pagan site, but if there was anyone who passed through there who, like [[Melchizedek]] or Jethro, right, had maintained the the correct worship of the true God, right, then the God who that person came to know through sacrifice and prayer and it's the same God that we come to know through the liturgy, through the sacraments, through the scriptures. It's the same God. Right? That God is the same three persons then as now. And so it is fundamentally the same religion, right? Not the pagans, but those who truly worship the true God throughout all the ages. It's all the same religion. And there are these transitions as texts are written and texts are recognized and texts take a place, the reading of texts takes a place in worship. Right? But that doesn't mean it's a different God. And the fundamentals of worship, of sacrifice, and of prayer, and of the offering of incense haven't changed. It's the same God, being truly worshiped by humans who are the same kind of humans. Right? Just over time, as our way of, our human way of life has shifted, there have been shifts to it, as we've migrated, as we've multiplied, as we've gone different places and had different experiences. Right? It's taken on different shapes. But if it's the right worship of the true God, then it's the same. And as we've always posited on this show and I'm not embarrassed of, I believe that one religion is Orthodox Christianity. Because that's the God who it is. That's the God who it is, who is the same yesterday, today, and forever.
+
+So that's both my why this episode and my final thoughts as I mess with the episode structure.
+
+**[[Fr. Andrew]]:** Yeah, I I think, you know, just to extend a little bit what you just said, um… I I think especially here in 2024, where a lot of us are trying to muddle our way around in a societal level meaning crisis, one of the big temptations is to like super left-brain it all, you know? Um… "Give me the precise, exact, formulaic approach to X, Y, and Z, so I can get this right because I want to get it right because I'm tired of all the wrong." Um… What you do is you end up absolutizing stuff that in some cases is not supposed to be absolutized, or, um… was appropriate for a particular time and place and may not necessarily be appropriate for now. For instance, you know, God does not command us to offer up goats on altars now, right? Um, I don't think anyone seriously is doing that now, but I'm, well, I'm sure somebody is actually probably. Um, but but most people are not saying that's what we should do. But nonetheless, there can be this kind of, again, this this, a formulaic approach to religion.
+
+And we absolutize things that can be variable, and we often variabilize things or vary things that should actually be absolute. And the point, the point is to know and to worship the one true God, [[Father]], Son, and [[Holy Spirit]], and not to worship these other gods. That's the point. And even though the exact shape that that takes over time can alter, the point is to orient ourselves towards him. Right? And this absolutizing, um, impulse is frankly an impulse towards idolatry. And it's an idolatry of our concepts about God.
+
+Now, by saying that, I am by no means nullifying the dogmatic inheritance of the church or anything like that. But sometimes people take the dogmas that speak about who God is and they worship them instead of God himself. Right? That's what I mean. And one of the ways that we could see we're falling into that, or at least having a temptation towards that, is if we spend more time frankly and more energy on our concepts about God than we do on the actual practices of worshiping him and praying to him.
+
+Because a lot of people have been saved, a lot of people have been saved who were faithful to God but had very, maybe even incorrect or primitive concepts about him. A lot of people have been saved that way because they were faithful and did the things that they were supposed to be doing. But a lot of people frankly are going to have some answering to give in in the life of the age to come who spent a lot of time absolutizing particular pictures of God and not actually following his commandments. Right? And so, you know, one of our big themes for this for this podcast for the past four years now and hundreds of hours now, has been if you love God, you will keep his commandments, as it says many, many times in the scriptures. And I think that looking at this kind of massive arc of human history and seeing how there is this variance over time, there's these changes over time, underlines this. Right? Because the whole point is to approach the one true God and to worship him. That's the whole point. Um, to have that fundamental orientation and to follow through and to do the things that you're supposed to do. Not just to say it, not just to honor him with your lips, as it says in scripture, but actually to do it, to be faithful. If you love him, you'll keep his commandments. So this is just another angle from which to, uh, make that point. And another, and in this particular case, to to make the point as we have made many times, that there is this incredible consistency between Old and New Testaments, but even to say that there is this consistency within the arc of human history that forms the context of the Old and New Testaments.
+
+Again, this doesn't mean that you can say or do whatever religiously and it's all fine. That is not the point that's being made at all. But rather that those who are truly worshiping the true God are truly worshiping the true God, even if the particulars of the way that they do that and the particulars of the way that they theologize about that show some development over time.
+
+So, well next time, we're going to, as I said, be our 100th episode and our fourth anniversary. So I hope you'll join us. But that is our show for tonight. So thank you for listening, everyone. Uh, if you didn't speak with us live, we'd still like to hear from you. You can email us at lordofspirits@ancientfaith.com. You can also send us a message on our Facebook page. You can leave us a voicemail at speakpipe.com/lordofspirits. And if you have basic questions about Orthodox Christianity or you need help in finding a parish, head over to orthodox-intro.org.
+
+**[[Fr. Stephen]]:** And join us for our live broadcast on the second and fourth Thursdays of the month at 7:00 p.m. Eastern, 4:00 p.m. Pacific.
+
+**[[Fr. Andrew]]:** I like the way you walking if you walking my way. I'm that Red Bull. Now let's fly away. If you're on Facebook, you can follow our page, you can join our discussion group, and give us reviews and ratings, and, uh, share this show with a friend.
+
+**[[Fr. Stephen]]:** And finally, be sure to go to ancientfaith.com/support and help make sure we and lots of other AFR podcasters stay on the air. I see me with her, no Stevie Wonder. She don't ever wonder because she know she bad, and I got her grocery bag.
+
+**[[Fr. Andrew]]:** Thank you, good night, God bless you.
+
+[outro music]
+
+**Voice of Bill:** You've been listening to the *[[Lord of Spirits]]* with Orthodox Christian priests, [[Father Andrew Stephen Damick]] and [[Father Stephen De Young]], a listener-supported presentation of Ancient Faith Radio.
+
+"And I beheld and I heard the voice of many angels round about the throne and the beasts and the elders, and the number of them was 10,000 times 10,000 and thousands of thousands, saying with a loud voice, 'Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honor, and glory, and blessing.'" [[Revelation]] chapter 5, verses 11 through 12.

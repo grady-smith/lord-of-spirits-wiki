@@ -1,0 +1,555 @@
+--- 
+ title: "The History of [[Ancient Israel]]: Part 2" 
+ tags: [lordofspirits] 
+ ---
+# The History of [[Ancient Israel]]: Part 2
+
+## Transcript
+
+**Intro:** [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=00:00:00) He will be a staff for the righteous with which for them to stand and not to [[fall]], and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will [[fall]] down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits. 1 [[Enoch]], chapter 48, verses 4 through 5.
+
+The modern world doesn't acknowledge but is nevertheless haunted by spirits, [[angels]], [[demons]], and [[saints]]. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? [[Orthodox]] [[Christian]] [[priests]], Father Andrew Stephen Damick and Father Stephen De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the Lord of Spirits.
+
+**[[Fr. Andrew]]:** [01:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=01:05:00) [[Christ]] is risen. He truly is risen. Good evening, giant killers, dragon slayers, Hamadryad hackers. You are listening to the Lord of Spirits podcast. My co-host Father Stephen De Young, the over-educated Marsh Troll, is with me straight from the swamp in Lafayette, Louisiana. And I'm Father Andrew Stephen Damick in Emmaus, Pennsylvania, perched precariously atop the Arcane Tower podcasting, hovering dozens, dozens of stories above a disused gateway to the underworld, and we are live. If you're listening to us live, you can call us at 855-237-2346. You can talk to us. We're going to get to your calls beginning in the second half. And Mike Tin-Pan Dead-Pan Dagan will be taking your calls.
+
+I should say, by the way, just as a side comment, that we have sold out all of the rooms for the Lord of Spirits conference. Um, but there's still plenty of commuter tickets available, so you can head to store.ancientfaith.com/events to get yours. That's the first weekend of October at the Antiochian Village.
+
+**[[Fr. Stephen]]:** [02:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:03:00) Well then you can just go goblin mode and sleep in your car and come wandering into the village every day.
+
+**[[Fr. Andrew]]:** [02:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:08:00) You may not sleep in... Well, if you're going to sleep in your car, you may not be in the parking lot of the village. They will find you. They will expel you.
+
+**[[Fr. Stephen]]:** [02:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:14:00) That's... you're not, you're not a cop. Come on man.
+
+**[[Fr. Andrew]]:** [02:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:18:00) The local constabulary will be contacted. Just going full Karen on the parking lot at the village? Don't you have better things to do? That's right. That's right. So tonight we're going to continue our three-part series on the history of Israel. This is part two. We're going to pick up after the [[Exodus]]. Before we start though, Father, there's there's something that's been bothering me, just a big lacuna in my head. I I know that Professor...
+
+**[[Fr. Stephen]]:** [02:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:43:00) I don't believe that this has really been bothering you that much.
+
+**[[Fr. Andrew]]:** [02:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:45:00) It has. This is a question that came up in my head today. It did. But so Professor Bart Ehrman has been anointed as a friend of the show, but I but I have to ask whether whether there are others. I mean, are there qualifications for this?
+
+**[[Fr. Stephen]]:** [02:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=02:59:00) There are no other friends of the show.
+
+**[[Fr. Andrew]]:** [03:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:02:00) He is the one and only friend of the show.
+
+**[[Fr. Stephen]]:** [03:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:04:00) Solamente Bart Ehrman.
+
+**[[Fr. Andrew]]:** [03:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:08:00) Wow. Because being a friend of the show gives you the right to call in at any time for any amount of time and be put through.
+
+**[[Fr. Stephen]]:** [03:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:10:00) Yes.
+
+**[[Fr. Andrew]]:** [03:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:16:00) Yeah. I mean, we've gotten close. We we've been contacted by a relative of his.
+
+**[[Fr. Stephen]]:** [03:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:20:00) Yes. A fairly close relative. He is he is the only he is the only friend of the show.
+
+**[[Fr. Andrew]]:** [03:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:25:00) Wow. Yeah. And you notice we haven't taken shots at him the way we've taken shots at some other people.
+
+**[[Fr. Stephen]]:** [03:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:33:00) That's true.
+
+**[[Fr. Andrew]]:** [03:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:38:00) I mean, you've occasionally disagreed with him. Yes, but right.
+
+**[[Fr. Stephen]]:** [03:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:40:00) Yeah. So he's a friend of the show. So, uh, before we start, I need to get something off my chest.
+
+**[[Fr. Andrew]]:** [03:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:47:00) Oh. Oh, okay.
+
+**[[Fr. Stephen]]:** [03:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:50:00) And that's related to uh a comment that we've got we got on some of the stuff with the last episode.
+
+**[[Fr. Andrew]]:** [03:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=03:58:00) Oh, yes. Some... No, it's not the one you think. Oh, man. I I know I I kind of love I love dispensationalist tears, though. I do.
+
+**[[Fr. Stephen]]:** [04:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=04:03:00) But this is a comment that we've gotten on I I've gotten at least on other things in the past talking about the [[Torah]] and stuff. And that is this comment where someone says something on the order of [[God]] gave the [[Torah]] to show that we couldn't keep it.
+
+**[[Fr. Andrew]]:** [04:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=04:33:00) Oh, yes, this is totally a thing.
+
+**[[Fr. Stephen]]:** [04:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=04:35:00) And that we needed a savior. Okay, now look, I know somebody taught you this, right? This is just what you're taught, right? You haven't really thought about it. Same thing for them. The person who taught it to you probably, it was taught to them and they never thought about it and on and on and on, right? Uh, back to Martin Luther who thought about it and should have thought better. Uh, let's think about this for a second. What are you saying when you say that? Okay. You're saying [[God]] came up with a list of commandments that no human could keep. Okay, well, he certainly could do that, right? That wouldn't be hard. He's [[God]].
+
+**[[Fr. Andrew]]:** [05:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=05:18:00) Of course.
+
+**[[Fr. Stephen]]:** [05:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=05:25:00) Right. Yeah. But you're saying he did this, that that's what the [[Torah]] is, and he did that to show something to us. So first of all, what you're saying is that in [[Deuteronomy]] 30 verse 11 where [[God]] says, what I am commanding you today is not too difficult for you.
+
+**[[Fr. Andrew]]:** [05:49:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=05:49:00) Ooh.
+
+**[[Fr. Stephen]]:** [05:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=05:51:00) And continues to elaborate that they have a choice to keep the commandments or not, okay? Uh, not to put too fine a point on it, but you're calling [[God]] a liar. You're saying [[God]] gave them this commandments knowing that not that they would, not knowing that they wouldn't keep it, but knowing that they couldn't keep it, but then told them they could. Then told them they could. And then when they didn't, he punished them for it. And let's be clear on what that punishment was in the Old Testament. We are talking about thousands of human beings like you and me, okay, who were gutted, massacred, raped, taken into slavery, women and children, okay, suffered this horrible fate for not keeping commandments that [[God]] gave them knowing they couldn't do it. And why did [[God]] do this and then lie about it and then massacre all these people? What was all of this mayhem for? All of this mayhem was so that you, bourgeois 21st century American,
+
+**[[Fr. Andrew]]:** [07:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=07:27:00) See, I thought you were going to say like, you know, it's all for his glory.
+
+**[[Fr. Stephen]]:** [07:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=07:31:00) Yeah. Not even that. The Calvinists are ahead of you on this one. Yeah. It's so that you would know, oh, hey, I shouldn't bother trying to keep that [[Torah]] thing or keep commands.
+
+**[[Fr. Andrew]]:** [07:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=07:43:00) Look at what happened to them.
+
+**[[Fr. Stephen]]:** [07:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=07:45:00) I should just believe the four spiritual laws. Thank you, thousands of dead children.
+
+**[[Fr. Andrew]]:** [07:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=07:51:00) Whoo. I'm also trying to map that onto like parenting, right? Like what if I made rules for my kids that I knew that they could not keep and then I...
+
+**[[Fr. Stephen]]:** [07:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=07:58:00) And then lied to them and told them they could.
+
+**[[Fr. Andrew]]:** [08:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=08:01:00) Lied to them and told them they could and then punished them severely when they did not.
+
+**[[Fr. Stephen]]:** [08:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=08:05:00) Yes. Yes. So that the next generation, so that a future generation of Damicks could look back at this object lesson you enacted and say, hey, you know what? We should just depend on the love and mercy of our parents and not try to be good. Okay?
+
+**[[Fr. Andrew]]:** [08:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=08:18:00) Yeah.
+
+**[[Fr. Stephen]]:** [08:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=08:24:00) This is blasphemy, guys.
+
+**[[Fr. Andrew]]:** [08:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=08:27:00) Blasphemy, blasphemy.
+
+**[[Fr. Stephen]]:** [08:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=08:29:00) What what when you say that, I know you haven't thought it through. I know you're not intentionally blaspheming, right? But it is blasphemy. What what that says about [[God]] is blasphemy. So stop saying that, okay? It contradicts scripture. It says that [[God]] is a liar, right? And the level of like modernist arrogance required to think that all of these Bronze Age people's lives and souls were just expendable so that you could learn a moral from the story, right, is kind of obscene. So don't post that comment anymore. And if that if that is like a load-bearing piece of your paradigm, which I know for some of you it is, that no one can keep the [[Torah]], right? Like you're going to have to rearrange your paradigm because we're not done with that idea tonight.
+
+**[[Fr. Andrew]]:** [09:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=09:31:00) Yes. Right.
+
+**[[Fr. Stephen]]:** [09:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=09:33:00) Right. We're not done with that idea. Because the flip side of that is the people in the Bible who did keep the whole [[Torah]] and the Bible says they did, right? So that whole paradigm you're working from that would cause you to make that comment needs to just go out the window. It contradicts scripture, it's blasphemous. We don't need it, right? We don't need it, we don't want it, we shouldn't have it. So there we go. Now that I've called half of our audience blasphemers, on with the show.
+
+**[[Fr. Andrew]]:** [10:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=10:07:00) You're on notice. Okay, so how about that Joshua guy?
+
+**[[Fr. Stephen]]:** [10:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=10:12:00) They did not get a tip of the hat. They got a wag of the finger.
+
+**[[Fr. Andrew]]:** [10:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=10:16:00) You say, you like that segue? So about that Joshua guy.
+
+**[[Fr. Stephen]]:** [10:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=10:21:00) Yeah, hey, how about uh now for something completely different. Um although not completely different. Yeah, so last time on Lord of Spirits, and now if we were professional, we'd have some clips to play, right? Like edited together to a montage to uh recap and get us cut up to where we are. But basically, um we're in Israel's history at the point of uh Israel entering into the land of [[Canaan]], which means Joshua, right?
+
+**[[Fr. Andrew]]:** [10:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=10:57:00) Yeah.
+
+**[[Fr. Stephen]]:** [10:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=10:58:00) Uh or if you're reading in the Greek, [[Jesus]], just and you know, if you're one of those types, you know. I I don't know which is more annoying to me, the people who insist on calling [[Jesus]] Yeshua or the people who insist on calling Joshua in the Old Testament [[Jesus]].
+
+**[[Fr. Andrew]]:** [11:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=11:14:00) Oh. I my favorite though are the people that like insist on something like Yahshua or something like that.
+
+**[[Fr. Stephen]]:** [11:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=11:22:00) Oh, that's even worse. Yeah.
+
+**[[Fr. Andrew]]:** [11:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=11:24:00) Right. I know. I'm like, a lot of people were there, buddy.
+
+**[[Fr. Stephen]]:** [11:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=11:27:00) That's heading into like Black Hebrew Israelite uh how to pronounce [[Yahweh]] territory. Like that's yeah. Um so, but yeah, so we're we're talking about Joshua, the son of Nun, right? Not [[Jesus]], the son of Navi. Yeah, get out get out of here with that. You're not Greek.
+
+**[[Fr. Andrew]]:** [11:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=11:52:00) Cultural appropriation. And if you are Greek, you should be saying Iesus. Yeah, Iesou. Yeah.
+
+**[[Fr. Stephen]]:** [11:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=11:56:00) So uh and obviously we're not we're not we've got a through line if you listened to the last episode. And if not, press pause on this live episode and go back and listen to last two weeks ago's episode. No. Um so, uh the thing we need to take into account when we're talking about the conquest, Joshua's conquest, for a number of reasons that we're going to get into, is Joshua's conquest is not about the Israelites depopulating completely a piece of land.
+
+**[[Fr. Andrew]]:** [12:41:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=12:41:00) Right. Not everybody is either killed or removed in fact.
+
+**[[Fr. Stephen]]:** [12:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=12:45:00) Right. This is how it'll get framed to you by people who haven't actually read the Bible mostly. But that is not what happens here in the Bronze Age. Maybe happening now, but it's not happen, it didn't happen then.
+
+**[[Fr. Andrew]]:** [13:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=13:03:00) Right. Okay. It didn't happen then.
+
+**[[Fr. Stephen]]:** [13:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=13:05:00) So that's not what the story is about, okay? Uh the the the atheists who throw this out as an argument are fascinating to me, right? Because uh only like really conservative scholars, which is a small minority of biblical scholars, right? Really conservative, mostly Protestant biblical scholars hold that everything in the book of Joshua is literally true. Now I'm not saying I don't, I'm just saying that's a minority among scholars, right? Most scholars, biblical scholars are more liberal than that, we'll say.
+
+**[[Fr. Andrew]]:** [13:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=13:50:00) Yeah, okay. Most will say it's some kind of... Yes. Metaphor or...
+
+**[[Fr. Stephen]]:** [13:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=13:53:00) Right. Yeah. Right. Or at the very least that there's like hyperbole and stuff. Like, yeah, yeah, yeah. You know, when it says these people were completely destroyed, that's just sort of like saying, you know, our football team completely destroyed the other team, right? It's not literal. Right. Um, so, right, so, so yet when an atheist wants to make this argument, they argue as if like everything in the book of Joshua is historical fact. Now why they believe that as an atheist, I don't know. Right? Like, okay. But this is a common problem with atheist arguments is like they read the Bible like they're a fundamentalist and then like, like... Yeah. That's not how people read the Bible. But anyway, so that's how it gets presented to you. It's just this genocide. [[God]] commands them to go and genocide everyone living in this area because he's giving them the land. Okay. Now we already saw last time a little bit when we were talking about the other Abrahamite groups. Um, the Edomites, the Moabites, the Ammonites and all. Midianites. The Ammonites being the descendants of Ammon, not like the little fossil critters. Um, that uh there were a list of peoples who they had displaced. Right? Specific people groups had been driven out before them. Not everyone who lived there. Right. And this is the case for Israel as well in terms of the land of [[Canaan]]. It's not every person who lives in [[Canaan]], every man, woman, child, gator is going to get massacred. It was not just like sort of a a genocide, you know, kill and drive out every person to take this land.
+
+**[[Fr. Stephen]]:** [15:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=15:47:00) But there are particular identified groups. And this is true not only like in the book of Joshua, but this is true from the time the promises are given to [[Abraham]]. Right? So like in [[Genesis]] 15, after [[God]] makes the covenant with [[Abraham]] with the split animals, right? We talked about on the show before.
+
+**[[Fr. Andrew]]:** [16:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=16:06:00) Pretty memorable moment. Like how would you ever put that in a movie? Yeah, the movie of the life of [[Abraham]], the camera just pans away. Uh, yes. So in [[Genesis]] 15 verses 18 through 21, it says, "On that day, the Lord made a covenant with Abram saying, to your offspring I give this land from the river of [[Egypt]] to the great river, the river Euphrates, the land of the Kenites, the Kenizzites, the Kadmonites, the Hittites, the Perizzites, the Rephaim, the Amorites, the Canaanites, the Girgashites, and the Jebusites."
+
+**[[Fr. Stephen]]:** [16:37:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=16:37:00) Right. So already in there, it's not just, hey, this geographic piece of land, but it's there are these groups, right, giant clans, right, who are living in that who you are going to drive out and displace and take their land as a judgment. That's there. And remember, as we mentioned already, [[Deuteronomy]] chapter 4, when Israel is drawing close as growing close to these nations in the Transjordan who are also Abrahamite nations, they're told, you're not to don't take any land from Edom because [[God]] gave Edom that piece of land, which is a piece of this land that was given to [[Abraham]] that is been given to his descendant, Edom. But also listed there are the names of the giant clans that the Edomites drove out. So you can't separate these two things in scripture. These are not two separate things. Taking possession of this land, driving out the giant clans. They're they're one reality. Right? You can't separate the two. Okay. Uh, not not two separate things. Okay. Now, obviously, we have a whole episode on [[giants]].
+
+**[[Fr. Andrew]]:** [18:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=18:11:00) Indeed.
+
+**[[Fr. Stephen]]:** [18:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=18:13:00) We're not going to rehearse that whole episode now. Press pause on this live broadcast, go back and listen to that episode as well.
+
+**[[Fr. Andrew]]:** [18:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=18:22:00) Welcome back from your three-hour trip.
+
+**[[Fr. Stephen]]:** [18:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=18:25:00) So, but a couple of things that are important reminders for this. Number one, what made you a member of a clan, what made you a particular ite, right, uh, of whatever kind, right, was was part ritual participation in the rituals of that people. Okay? So remember, as we talked about last time, what made you an Israelite was if you were male, being circumcised. If you were female, being the wife or daughter of a circumcised male.
+
+**[[Fr. Andrew]]:** [19:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=19:02:00) Yeah, you're not just born into it. There has to be a ritual process.
+
+**[[Fr. Stephen]]:** [19:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=19:06:00) And then eating the [[Passover]] every year. That's what makes you an Israelite. Well, likewise, there were rituals among all these other people groups at that, the Egyptians had a ritual life that made constituted them as Egyptians, right, et cetera, et cetera. That's how this was viewed. So the giant clans who are being singled out have a particular type of ritual life, okay? Which includes, um, human sacrifice, cannibalism, right, sort of gross sexual immorality in a pagan worship context, right? All of these all of these things together. These aren't just, oh, some of them do these bad things, right? Participating in these things as a group is what makes them a Girgashite or a Rephaim, right? That's what makes them that. Okay. That means two things. Number one, no one who's participated in those things is innocent, right? But number two, anyone who stops participating in those ritual acts and goes and joins another people is no longer one of those people. So a Girgashite who stops participating in the human sacrifice and the sexual immorality, et cetera, going on among the Girgashites and goes and moves to [[Egypt]] and begins to participate in the ritual life of [[Egypt]] is now an Egyptian.
+
+**[[Fr. Andrew]]:** [20:57:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=20:57:00) Yeah.
+
+**[[Fr. Stephen]]:** [20:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=20:58:00) Remember, we don't know DNA exists, there's not a context, a concept of heredity yet, there's not a concept of ethnicity yet, right? You are a member of a group, but you're a member of that group because you're participating with that group. And this is this reality, right, that someone can leave the Girgashites and no longer be a Girgashite, that someone can leave a giant clan and become something else, okay, is right there in the text of the [[Torah]] and Joshua.
+
+**[[Fr. Andrew]]:** [21:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:35:00) You have, I mean there's a big example. Um, Caleb.
+
+**[[Fr. Stephen]]:** [21:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:38:00) Yes.
+
+**[[Fr. Andrew]]:** [21:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:40:00) Who's not probably, you know, almost certainly not a descendant of [[Abraham]] in the in the biological sense.
+
+**[[Fr. Stephen]]:** [21:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:46:00) No, he is not.
+
+**[[Fr. Andrew]]:** [21:47:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:47:00) Cuz he's cuz he's identified as a Kenizzite, which is one of these other groups.
+
+**[[Fr. Stephen]]:** [21:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:52:00) One of these giant clans.
+
+**[[Fr. Andrew]]:** [21:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:54:00) Oh, man. So he's an ex-giant.
+
+**[[Fr. Stephen]]:** [21:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=21:55:00) Not just a pagan group, right? When he's first introduced, he's a Kenizzite, one of those groups who was in that list from [[Genesis]] 15 we just read. He's one of those people. But by the end of his story in the book of Joshua, he's an elder of the tribe of Judah. He is no longer a Kenizzite. Right. So what is being commanded here, what [[God]] is commanding is there must be no more Kenizzites, no more Girgashites, no more Rephaim, right, no more Amorites. That doesn't mean every single man, woman, and child has to die.
+
+**[[Fr. Andrew]]:** [22:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=22:44:00) Yeah.
+
+**[[Fr. Stephen]]:** [22:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=22:45:00) That means they have to no longer practice those rituals.
+
+**[[Fr. Andrew]]:** [22:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=22:48:00) I mean, like like Rahab in Jericho, right? She's no longer, I don't know what you would call those people, Jerichoites. She's no longer one of them.
+
+**[[Fr. Stephen]]:** [22:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=22:56:00) Well, Rahab is named after one of the chaos dragons. Right.
+
+**[[Fr. Andrew]]:** [23:01:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=23:01:00) Right. Yeah. That serves Yah. They're like Lotan, aka [[Leviathan]] and Rahav. That's where Rahab's name comes from.
+
+**[[Fr. Stephen]]:** [23:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=23:09:00) Yeah. Yeah.
+
+**[[Fr. Andrew]]:** [23:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=23:13:00) Yeah. She becomes part of Israel and indeed an ancestor of of our Lord.
+
+**[[Fr. Stephen]]:** [23:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=23:18:00) Yes. So, again, this is not about the humans, it's not about genetics, it's not about any of that, those concepts didn't exist. This is about, and if you read closely, [[God]] keeps talking about you must put an end to the abominations of these groups. Right. So if all of the Girgashites are either dead or have stopped being Girgashites, and there are no more Girgashites, the Girgashites have been wiped out from the perspective of scripture. Now that doesn't mean a bunch of them aren't going to get killed, cuz a bunch of them, you know, you can imagine people who frequently practice human sacrifice of their neighbors and enemies probably aren't going to just be like, yeah, you know, you're right, we should knock this stuff off. Let's all go become Israelites.
+
+**[[Fr. Andrew]]:** [24:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=24:08:00) Right.
+
+**[[Fr. Stephen]]:** [24:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=24:10:00) Right? Like some of them ain't going to go quietly, right? So, but as I pointed out to people several times, if you knew for a fact, you know, people get very concerne- Oh, this is horrible. How could you kill those people? Right? If you knew for a fact that your neighbor was sacrificing people, sacrificing humans to a demon and participating in cannibalism, your next door neighbor, would you just like pray for him?
+
+**[[Fr. Andrew]]:** [24:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=24:48:00) It's just their culture, man.
+
+**[[Fr. Stephen]]:** [24:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=24:50:00) Or would you like sit there and pray for him and be like, oh, show him the error of his ways, Lord? Or would you call the police?
+
+**[[Fr. Andrew]]:** [24:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=24:56:00) Yeah, right, exactly.
+
+**[[Fr. Stephen]]:** [24:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=24:59:00) And I'm thinking you would call a bunch of men with guns and women. And those men and women with guns would go into your neighbor's house and they would stop your neighbor from killing any more people, from sacrificing any more people. And if the only way to do that or if he resisted them and attacked them, they would shoot him. And I submit to you that if that's what happened and that had to happen to stop him from killing people and eating them, you would not feel that bad about it. If you were a very kind soul, you would pray for his soul after his death, and that would be a good thing to do. But you would agree that the murder and stuff needed to be stopped. Right? That's what we're talking about. Okay. We're not talking about just random men, women, and children minding their own business and all of a sudden these Israelites come flying out of the woodwork and slaughter them all. Okay? That's not what we're talking about. We're talking about putting an end to nightmarish horrors.
+
+**[[Fr. Andrew]]:** [26:04:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=26:04:00) Yeah.
+
+**[[Fr. Stephen]]:** [26:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=26:05:00) And also, if you're if you're concerned about women and children in that part of the world in the Bronze Age, how about now? Okay, but we'll continue. Um, I know you don't want to comment on that, but um seems the the Bronze Age inhabitants of of the land seem to get a lot more sympathy from a lot of contemporary people.
+
+**[[Fr. Andrew]]:** [26:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=26:32:00) I think it's I mean, probably a lot of it is. The current inhabitants. Yeah, because I I think I think people I I I think a lot of it is that our culture, our world really has been so Christianized that it's hard to imagine that there are whole cultures that are built on doing that kind of horrible stuff. But...
+
+**[[Fr. Stephen]]:** [26:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=26:50:00) Yeah. All the evidence that exists points to that being real.
+
+**[[Fr. Andrew]]:** [26:56:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=26:56:00) Yeah, right. And and even like like the [[Romans]], for instance, who are a brutal, predatory, apex predator of the Mediterranean, right? They look at groups that they are aware of, child sacrifice. In their time. Child sacrificing groups and say, those are freaks.
+
+**[[Fr. Stephen]]:** [27:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=27:17:00) If the [[Romans]] think you're a freak, you're pretty bad.
+
+**[[Fr. Andrew]]:** [27:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=27:20:00) Yes. And and and that's that's the these are the groups that are being driven out of [[Canaan]], you know, and being being, uh, you know, that this way of life has to end.
+
+**[[Fr. Stephen]]:** [27:32:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=27:32:00) Yes. So, uh, right. And so the this is the story that's being told. Now, if you want to say to me, "Hey, all that giant stuff is nonsense." Uh, "That story in Joshua isn't true." I'm going to say, "Well, okay, fine. You can believe that, but then it's kind of hard to criticize the Bible about a story that you don't think is true." Seems weird. Um, because that's the core of what's going on, right? But also, right, why is this important? Right? Because you and I have never met a Girgashite or an Amalekite or any of an Anakim, right? We we haven't met any of these people groups, right? They're long gone. So why is it so important that this is preserved in the text over and over and over again? And as you read through the [[Torah]] and Joshua, it is over and over and over again that you get this list of people groups, of the giant clans.
+
+**[[Fr. Andrew]]:** [28:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=28:39:00) Yeah.
+
+**[[Fr. Stephen]]:** [28:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=28:40:00) Right? Why is it so important that that's there and that the names of these groups, long extinct, are preserved there? And it's it's making a point, right? And in the end of the [[Torah]] and the blessings and curses, they're put a finer point on this point, but from the very beginning, the land, which as we said last time, is a sign. Israel coming and taking possession of the land was a sign to them of the truth of the larger promise, right? Of becoming like the stars of heaven. Right? Of eternal life, of [[theosis]]. That's the larger promise. Taking the land is this sign, right? But the land always had this conditionality attached to it.
+
+**[[Fr. Andrew]]:** [29:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=29:26:00) Yeah, it's not an automatic or yeah, unconditional thing.
+
+**[[Fr. Stephen]]:** [29:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=29:31:00) Right. That land had been given by [[God]] to those groups. Yeah. Yeah. Not that [[God]] wasn't involved.
+
+**[[Fr. Andrew]]:** [29:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=29:38:00) Right. Everything that a creature has, they have because [[God]] gave it to them.
+
+**[[Fr. Stephen]]:** [29:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=29:43:00) Right.
+
+**[[Fr. Andrew]]:** [29:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=29:44:00) Yep.
+
+**[[Fr. Stephen]]:** [29:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=29:45:00) But now, because of their wickedness and their abominations, they're being driven out. Right? And that implies what you know, [[Leviticus]] 26 and and [[Deuteronomy]] 28 through 30 are going to state plainly, that if and when Israel becomes like them, they too will suffer the same fate. Right? Same with Edom, same with Moab, same with Ammon, same with [[Egypt]] for that matter, same with every nation in the history of the world. Okay. There is a conditionality to the land. And so the fact that this belonged to another group that other group lost it, right, is a reflection of that conditionality. That dynamic may remind you of some things in the New Testament. Like [[Christ]]'s parable of the vineyard.
+
+**[[Fr. Andrew]]:** [30:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=30:51:00) Yeah, if it if where at the end, the vineyard is taken away from the wicked men and given to others who will bring forth fruit from it.
+
+**[[Fr. Stephen]]:** [30:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=30:58:00) Yeah. So this is this is a paradigm that's in scripture, right? That there is a conditionality to the promises of [[God]].
+
+**[[Fr. Andrew]]:** [31:15:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=31:15:00) Yeah, these are not inalienable rights.
+
+**[[Fr. Stephen]]:** [31:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=31:18:00) Yes. Or rights at all.
+
+**[[Fr. Andrew]]:** [31:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=31:21:00) Yeah, they're gifts. Right.
+
+**[[Fr. Stephen]]:** [31:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=31:23:00) So and and it's also important because this involves some of the most boring parts of the Old Testament and therefore the least read. This involves a big chunk of the book of Numbers and the latter part of Joshua after all the exciting battles are over. Uh, that this isn't just, okay, Israelites, here's land, right?
+
+**[[Fr. Andrew]]:** [31:52:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=31:52:00) No, it's it's this bit is for y'all. This bit is for y'all. you know, it's...
+
+**[[Fr. Stephen]]:** [31:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=31:58:00) And this is and this is straight from [[God]].
+
+**[[Fr. Andrew]]:** [32:02:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:02:00) [[God]] says, this tribe gets this part, this tribe gets this part.
+
+**[[Fr. Stephen]]:** [32:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:05:00) And even beyond tribes, it gets way more granular than that.
+
+**[[Fr. Andrew]]:** [32:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:08:00) Yeah. Yeah, it's for some family.
+
+**[[Fr. Stephen]]:** [32:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:10:00) It's this clan within the tribe and this family within the clan.
+
+**[[Fr. Andrew]]:** [32:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:13:00) Yeah. And it's very notable, of course, that like the [[Levites]] do not get land because it says that their their inheritance is [[God]] himself.
+
+**[[Fr. Stephen]]:** [32:21:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:21:00) Right. Right. But so it's very particular, and then the whole system of the [[Torah]] is set up around the idea that that land belongs to that family. Remember, every 50th year, that land, all that land is supposed to revert back to the original family ownership.
+
+**[[Fr. Andrew]]:** [32:50:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:50:00) Yeah, big, that's the Jubilee year, right? That's the this big economic reset.
+
+**[[Fr. Stephen]]:** [32:54:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=32:54:00) Every 50th year, it's supposed to all go back. Uh, and we're going to come back to this later, Israel never celebrated the Sabbath year, let alone the Jubilee, right? So again, this order in the [[Torah]] that was set out for what Israel was supposed to be, never actually came to fruition, never actually existed. Um, but that's what's in the [[Torah]]. That's what [[God]] commanded. Right, that these very particular. And it's not just, when I say it never existed, I don't mean, well, yeah, when it started out, [[God]] gave them the land and they all moved into it, but then very quickly it went awry. No, no, no, no, no, no, no. Right. It didn't even start right. Okay? So, uh, very early on, as soon as they defeat Og, the last of the Rephaim and Sihon, the king of the Amorites, right? And it's not, it's not Christmas till Og's dead. Um, but as soon as they defeat them, Reuben and Gad, the tribe say, hey, you know what? We kind of like this land in the Trans-Jordan. Good luck, y'all.
+
+**[[Fr. Andrew]]:** [34:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=34:22:00) So this is the this is the land that's east of the Jordan River, everybody.
+
+**[[Fr. Stephen]]:** [34:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=34:26:00) Yes.
+
+**[[Fr. Andrew]]:** [34:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=34:27:00) Like not Israel proper.
+
+**[[Fr. Stephen]]:** [34:29:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=34:29:00) Yes, that that Og and Sihon had taken from the Moabites.
+
+**[[Fr. Andrew]]:** [34:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=34:36:00) Yeah, I mean this is this is the area that now is the country of Jordan.
+
+**[[Fr. Stephen]]:** [34:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=34:40:00) Yeah. Um, and so, uh, you remember when trans and cis were just talking about the the Jordan River? A happy, simpler time before pronouns. Um, so, um, but, uh, Reuben and Gad, there's sort of a settlement that gets negotiated where they're kind of allowed to do that, but only after they come and help with, uh, help the other tribes, uh, take take their portions. Uh, but even then there's some dicey stuff, like they build an [[altar]] over there and the Israelites go over and say, hey, what's with the [[altar]] over there? And they're like, no, it's uh, it's a replica so that when our kids ask us what the [[altar]] looks like, uh, we can point at it and say, it looks like that. That's literally their excuse. Yeah. So there's a lot of dodgy stuff going on there. But, uh, then you get the tribe of Dan, which uh goes beyond dodgy. Okay. Um, so we talked a little bit about the origins of Dan last time. Uh, that these are are actually were primarily one of the sea peoples, if we want to talk about it from the perspective of modern ethnicity. But, uh, the Danites. Now, what happens is [[God]] says to each of the tribes, he lays out these land grants. That's before they actually take the land. And the tribes are supposed to go and take the land that [[God]] is directing them to.
+
+**[[Fr. Andrew]]:** [36:30:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=36:30:00) Yeah, it's not like [[God]] said, look at this lovely pad site I have approved for you to just build on.
+
+**[[Fr. Stephen]]:** [36:36:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=36:36:00) Yeah, you know, there's there's people there and and the tribe has to go and do battle.
+
+**[[Fr. Andrew]]:** [36:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=36:40:00) And [[God]] says, I'm going to lead you into battle when there's battle, right? But you go and take possession of it. And they're supposed to be faithful to that. And that's how they're actually going to receive their inheritance, receive their portion, okay?
+
+**[[Fr. Stephen]]:** [36:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=36:51:00) So, [[God]], as with the other tribes, directs Dan toward a particular piece of land. And then things happen.
+
+**[[Fr. Andrew]]:** [37:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=37:03:00) Yeah. They don't like that land. Yeah. So what you get in Joshua 19, starting with verse 40. This has a lot of good fun Middle Eastern names. The seventh lot came out for the tribe of the people of Dan, according to their clans. And the territory of its inheritance included Zorah, Eshtaol, Ir-shemesh, Shaalabbin, Aijalon, Ithlah, Elon, Timnah, Ekron, don't get triggered because I said Elon, by the way. Uh, Eltekeh, Gibbethon, Baalath, Jehud, Bene-berak, Gath-rimmon, and Me-jarkon and Rakkon with the territory over against Joppa. Um, when the territory of the people of Dan was lost to them, the people of Dan went up and fought against Leshem, and after capturing it and striking it with the sword, they took possession of it and settled in it, calling Leshem Dan after the name of Dan their ancestor. This is the inheritance of the tribe of the people of Dan according to their clans, these cities with their villages.
+
+**[[Fr. Stephen]]:** [38:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:09:00) So yes, not only did they not take the places with all those fun names, they went over to this other city instead.
+
+**[[Fr. Andrew]]:** [38:16:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:16:00) And and took this city.
+
+**[[Fr. Stephen]]:** [38:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:18:00) And we're going to get more detail on that in a second, but uh where's Joppa?
+
+**[[Fr. Andrew]]:** [38:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:27:00) Yeah, that's on the coast. That's, well, that that's where my wife's ancestors are are from. Now it's called Yafa. And where's the city of Dan?
+
+**[[Fr. Stephen]]:** [38:35:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:35:00) I'm not sure about that. In the extreme north, nowhere near the coast.
+
+**[[Fr. Andrew]]:** [38:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:39:00) Okay, there you go.
+
+**[[Fr. Stephen]]:** [38:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:42:00) So it's not I mean like they went to a different spot because...
+
+**[[Fr. Andrew]]:** [38:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:46:00) With all the Baal people up there, up north.
+
+**[[Fr. Stephen]]:** [38:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:48:00) Yes, but it was arguably, yes, but they were arguably given a better spot.
+
+**[[Fr. Andrew]]:** [38:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:53:00) Yeah, right. Seacoast is good.
+
+**[[Fr. Stephen]]:** [38:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=38:58:00) Right, rather than take the land that [[God]] was going to give them, they did something else. And so now in Judges 18, uh, there is a much more detailed version of this same story.
+
+**[[Fr. Andrew]]:** [39:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=39:12:00) Okay, so strap in, everybody. This is more than like five verses. In fact, this is Judges 18. "In those days, there was no king in Israel." That's always a clue right there when it starts that way. "And in those days, the tribe of the people of Dan was seeking for itself an inheritance to dwell in, for until then, no inheritance among the tribes of Israel had fallen to them. So, the people of Dan sent five able men from the whole number of their tribe, from Zorah and from Eshtaol, to spy out the land and to explore it. And they said to them, 'Go and explore the land.' And they came to the hill country of Ephraim, to the house of [[Micah]], and lodged there. When they were by the house of [[Micah]], they recognized the voice of the young [[Levite]]. And they turned aside and said to him, 'Who brought you here? What are you doing in this place? What is your business here?' And he said to them, 'This is how [[Micah]] dealt with me. He has hired me and I have become his [[priest]].' And they said to him, 'Inquire of [[God]], please, that we may know whether the journey on which we are setting out will succeed.' And the [[priest]] said to them, 'Go in peace, the journey on which you go is under the eye of the Lord.'"
+
+**[[Fr. Stephen]]:** [40:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=40:13:00) Yeah, pause a second. Yeah. So, we're already a point where not that far into Israel's history, we've got wandering [[priests]] for hire.
+
+**[[Fr. Andrew]]:** [40:24:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=40:24:00) Right, right, exactly. This is just some guy from the tribe of Ephraim just hired this guy, this [[Levite]] to be his [[priest]].
+
+**[[Fr. Stephen]]:** [40:31:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=40:31:00) Yeah, you're a [[Levite]], come do the magic stuff for us.
+
+**[[Fr. Andrew]]:** [40:34:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=40:34:00) Yes, right? And you notice they said, inquire of [[God]]. It doesn't say he went and inquired.
+
+**[[Fr. Stephen]]:** [40:40:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=40:40:00) No, he just said, ah, it's good. You're you're good. Yes, he just gave him the wammy.
+
+**[[Fr. Andrew]]:** [40:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=40:43:00) Right. All right. "Then the five men departed and came to Laish and saw the people who were there, how they lived in security after the manner of the Sidonians, quiet and unsuspecting, lacking nothing that is in the earth, and possessing wealth, and how they were far from the Sidonians and had no dealings with anyone. And when they came to their brothers at Zorah and Eshtaol, their brothers said to them, 'What do you report?' They said, 'Arise, and let us go up against them, for we have seen the land and behold, it is very good. And will you do nothing? Do not be slow to go to enter and possess the land. As soon as you go, you will come to an unsuspecting people. The land is spacious, for [[God]] has given it into your hands, a place where there is no lack of anything that is in the earth.'"
+
+**[[Fr. Stephen]]:** [41:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=41:26:00) Right. So they go and they find this city and its environs, right, the farmland around it, and they say, ooh, these are peaceful people. Uh, and they're some kind of Phoenicians. That's the connection to the Sidonians. But they're far away from Sidon, so the Sidonians won't be able to get there and help them.
+
+**[[Fr. Andrew]]:** [41:44:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=41:44:00) It's like Vikings visiting Lindisfarne.
+
+**[[Fr. Stephen]]:** [41:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=41:46:00) Yes, like, and they're literally just like, oh, I smell a prey animal, right, like.
+
+**[[Fr. Andrew]]:** [41:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=41:53:00) Exactly. Yes. Come, let us pick on someone not our own size. Okay, um, yes, "So, 600 men of the tribe of Dan, armed with their weapons of war, set out from Zorah and Eshtaol, and went up and encamped at Kiriath-jearim in Judah. On this account, that place is called Mahaneh-dan to this day. Behold, it is west of Kiriath-jearim. And they passed on from there to the hill country of Ephraim, and came to the house of [[Micah]]. Then the five men who had gone to scout out the country of Laish said to their brothers, 'Do you know that in these houses there are an ephod, household gods, a carved image, and a metal image? Now, therefore, consider what you will do.' And they turned aside there and came to the house of the young [[Levite]], at the home of [[Micah]], and asked him about his welfare."
+
+**[[Fr. Stephen]]:** [42:39:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=42:39:00) So, like, so let's pause again. So, how they how they paying you there, buddy? Yeah. Yeah. And pause again. Just to make clear, right, he's he doesn't have an [[altar]] out there and he's offering sacrifices to [[Yahweh]] and just doing it in the wrong place.
+
+**[[Fr. Andrew]]:** [42:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=42:53:00) No.
+
+**[[Fr. Stephen]]:** [42:55:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=42:55:00) Okay? He has his own ephod like the [[high priest]]. Yes. Right? Household gods plural, and an idol, a carved idol and an idol made of metal. Yeah. Right? And so the Danites say, hey, this is all valuable stuff, by the way. This guy let us stay with him while we're on our way to the city. Let's rob this guy. Ah, Dan.
+
+**[[Fr. Andrew]]:** [43:26:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=43:26:00) Yes, yes. All right. "Now, the 600 men of the Danites, armed with their weapons of war, stood by the entrance of the gate. And the five men who had gone to scout out the land went up and entered and took the carved image, the ephod, the household gods, and the metal image, while the [[priest]] stood by the entrance of the gate with 600 men armed with weapons of war. And when these went into [[Micah]]'s house and took the carved image, the ephod, the household gods, and the metal image, the [[priest]] said to them, 'What are you doing?' And they said to him, 'Keep quiet, put your hand on your mouth, and come with us, and be to us a father and a [[priest]]. Is it better for you to be [[priest]] to the house of one man or to be [[priest]] to a tribe and a clan in Israel?' And the [[priest]]'s heart was glad. He took the ephod and the household gods and the carved image and went along with the people. So they turned and departed, putting the little ones and the livestock and the goods in front of them."
+
+**[[Fr. Stephen]]:** [44:18:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=44:18:00) This was the first [[priest]] to move from a tiny church to a bigger church.
+
+**[[Fr. Andrew]]:** [44:22:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=44:22:00) There you go. And his heart was glad because he saw more money. Yeah, indeed. "When they had gone a distance from the home of [[Micah]], the men who were in the houses near [[Micah]]'s house were called out, and they overtook the people of Dan. And they shouted to the people of Dan, who turned around and said to [[Micah]], 'What is the matter with you, that you come with such a company?' And he said, 'You take my gods that I have made and the [[priest]] and go away, and what have I left? How then do you ask me what is the matter with you?' And the people of Dan said to him, 'Do not let your voice be heard among us, lest angry fellows [[fall]] upon you, and you lose your life with the lives of your household.' Then the people of Dan went their way. And when [[Micah]] saw that they were too strong for him, he turned back and went to his home."
+
+**[[Fr. Stephen]]:** [45:03:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=45:03:00) So they threatened to kill him. Right. Like we don't want to hear. Shut up. Just straight up rob this guy who gave them shelter.
+
+**[[Fr. Andrew]]:** [45:12:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=45:12:00) "Angry fellows will [[fall]] upon you." I love that translation. Yes, yes. But the people of Dan took what [[Micah]] had made and the [[priest]] who belonged to him, and they came to Laish to a people quiet and unsuspecting and struck them with the edge of the sword and burned the city with fire. And there was no deliverer because it was far from Sidon, and they had no dealings with anyone. It was in the valley that belongs to Beth-rehob. Then they rebuilt the city and lived in it, and they named the city Dan after the name of Dan their ancestor who was born to Israel. But the name of the city was Laish at the first. And the people of Dan set up the carved image for themselves, and Jonathan the son of Gershom, son of [[Moses]], and his sons were [[priests]] to the tribe of the Danites until the day of the captivity of the land. So they set up [[Micah]]'s carved image that he made as long as the house of [[God]] was at Shiloh.
+
+**[[Fr. Stephen]]:** [46:05:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=46:05:00) So this [[Levite]] was not from just any clan among the [[Levites]]. He was a descendant of [[Moses]].
+
+**[[Fr. Andrew]]:** [46:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=46:11:00) Yeah, right. Just a few generations.
+
+**[[Fr. Stephen]]:** [46:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=46:14:00) Yes. Um, yeah. So things went south very fast. Right? In terms of religion. Right? This is this is bad. And and make no mistake about what we were just told there in Judges. I know people have, a lot of people haven't read this chapter of Judges because you get to the end of the Samson story and you stop because it gets weird and violent and not as interesting and fun. Um, I know. But we did a whole episode where we talked about him that enraged a lot of people. All of you can continue to cope and seethe. Everything we said in that episode is true. Um, but, uh, the thrust for our purposes tonight, the thrust of where we get in the book of Judges is that to have any kind of good order, let alone the kind of holy order that is described by the [[Torah]] in a society requires a king.
+
+**[[Fr. Andrew]]:** [46:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=46:46:00) Right.
+
+**[[Fr. Stephen]]:** [46:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=46:53:00) Yeah, yeah, it's true. But we did a whole episode on on um the crowning of, you know, the the crowning, the anointing of kings. Yeah, it's all in there. Um but all that is to say, a lot of us got this Sunday school reading of 1 Samuel that is essentially kings bad. Israel was rebelling by wanting a king at all of any kind, right? Uh, problem with that, [[Deuteronomy]] 17 in the [[Torah]] said they were going to have a king.
+
+**[[Fr. Andrew]]:** [46:59:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=46:59:00) Yeah, I'm just singing a little Queen. Oh. Um, so we're uh I don't know what what fat bottom girls has to do with this, father, but you need to lock in, okay? Stay on topic. Um, so, um, so the the people, so there's this descending quality of the judges, you know, and the nadir of which is uh Samson. People love it when I talk about Samson. Uh, but we did a whole episode where we talked about him that enraged a lot of people. All of you can continue to cope and seethe. Everything we said in that episode is true. Um, but, uh, the thrust for our purposes tonight, the thrust of where we get in the book of Judges is that to have any kind of good order, let alone the kind of holy order that is described by the [[Torah]] in a society, requires a king.
+
+**[[Fr. Stephen]]:** [47:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=47:11:00) That is the whole story. I know. I know. It's just out of the story goes. All right. Well, you've you've wasted another perfectly good hour of your life listening to the Lord of Spirits podcast, but nonetheless, we're going to take another break and we'll be right back. Father Andrew Stephen Damick and Father Stephen De Young will be back in a moment to take your calls on the next part of the Lord of Spirits. Give them a call at 855-237-2346. That's 855-A-F-RADIO. Perhaps you are a haberdasher who's run out of felt. Perhaps you have a club foot and bad breath. Oh wait, sorry. Wow. Haberdasher, that's not a word you get to use every day.
+
+**[[Fr. Andrew]]:** [47:20:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=47:20:00) We're back now with the Lord of Spirits with Father Andrew Stephen Damick and Father Stephen De Young. If you have a question, call now at 855-237-2346. That's 855-A-F-RADIO. Hey, welcome back, everybody. Um, the call board is lighting up. We have some excited people, I hope.
+
+**[[Fr. Stephen]]:** [47:38:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=47:38:00) Really? Yeah, yeah. I wonder what I said.
+
+**[[Fr. Andrew]]:** [47:43:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=47:43:00) No, no, it's good. I think it'll be good. Yeah, yeah. And actually, one of our callers is even named Dan. That's very exciting.
+
+**[[Fr. Stephen]]:** [47:51:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=47:51:00) Oh, sorry, man.
+
+**[[Fr. Andrew]]:** [47:53:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=47:53:00) No, no, we're not going to take you first, Dan, sorry. You're not first. You're not first. But, uh, we do have someone is the other. We do have Brennan from Jacksonville, Florida, who has a question about dispensationalist reading Joshua. So Brennan, welcome to the Lord of Spirits podcast.
+
+**Caller 1:** [48:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=48:11:00) Thanks, Father Andrew. Can you hear me?
+
+**[[Fr. Andrew]]:** [48:13:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=48:13:00) Yes, we hear you. What is on your mind?
+
+**Caller 1:** [48:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=48:17:00) Well, first, I just want to say I met you when you came to our parish in Jacksonville, and I came up to you and I said, Father Andrew, I love your work, but you were way too soft on Dr. Ortland. And you told me, I think you have me confused.
+
+**[[Fr. Andrew]]:** [48:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=48:33:00) Yes, probably with, you know, the the Marsh Troll that I'm working with here tonight. Um...
+
+**[[Fr. Stephen]]:** [48:42:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=48:42:00) Yes, and for the record, it's because uh, Ortland was still, uh, had, had the shine was not off of his nice guy act yet. And so, part of why I think that interaction was a success is I got his veneer to crack a little.
+
+**[[Fr. Andrew]]:** [48:58:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=48:58:00) I thought the internet just exists in the eternal now. Everything is happening right now in the internet. Um, but that's not why you called, Brennan. Surely you wanted to talk about something other than Dr. Gavin Ortland.
+
+**Caller 1:** [49:10:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=49:10:00) Van Hagar reference. Of course, I just wanted to, wanted to apologize, especially to Father Stephen.
+
+**[[Fr. Andrew]]:** [49:17:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=49:17:00) It doesn't, I say he doesn't have feelings. He doesn't have feelings, so you don't have to apologize to him.
+
+**Caller 1:** [49:27:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=49:27:00) So, my wife and I have been loving your podcast, um, and uh, we have a running joke at our catechism, catechism class that we have to mention your podcast at least once. Um, and I just wanted to ask about the ending of Joshua because I read it, um, you said in your last podcast that, uh, the ending of Joshua says that all the land had been given to Israel and I found it and I just thought, man, what would, what would my dispensationalist friends who even, even served in Israel for decades, uh, they've definitely read that, but how would they, how would they respond to that? Is there, is there some promises and other [[prophets]] that allude to that? Like, what is their hope still in if it has already been given to them?
+
+**[[Fr. Andrew]]:** [50:09:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=50:09:00) I mean, I... Yeah, I mean, obviously we think it's a profound misreading of the scripture. Um, but I mean, some of the way that it's interpreted, a lot of it, Frank, and we don't need to go back into this deeply because we talked about it in the last episode, but a lot of it is bound up in modern geopolitics, like the sense of, well, you know, all the promises haven't been kept, and so therefore, um, you know, we need to let the modern, we need to support the idea of the modern nation state of Israel taking these particular pieces of land. You know, that is one of the ways that it often is. And so, I mean, dispensationalism has had a big impact, frankly, on the foreign policy of the United States. Um, but I, I, I personally don't, I mean, maybe you know more about this better than I do, Father, but how they, how they, how they, how exactly they read that stuff to make it all seem like a coherent whole to them.
+
+**[[Fr. Stephen]]:** [51:08:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=51:08:00) So, when I point that out to people, I mean, I just have to be honest, I have not gotten any kind of real answer. I've gotten a lot of cope. Yeah. Um, I mean, and I've pointed this out to people who are teaching this stuff. We're going from like church to church doing seminars, right? With like, you know, uh, PowerPoint presentations about dispensationalism and the end times and stuff. And I point this out to them in Joshua and like, they've never seen it before. Um, and I get a lot of stuff that, well, that that must be referring to a different set of promises. And I'm like, what set of promises? And then I point them to the not one word of all the promises, right? And it's like, I, and I don't get anything. But I think like Father Andrew said, you know, it's an obvious problem and they brush it aside and they don't read it and they don't, you know, and I mean, hey, if you're a dispensationalist out there and you can, you have a really good explanation of that verse that you think you can convince us, call in. Um...
+
+**[[Fr. Andrew]]:** [52:06:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=52:06:00) Yes.
+
+**[[Fr. Stephen]]:** [52:07:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=52:07:00) But, because I haven't heard one. I'm just being honest when I, when I point this out to people. But I think Father Andrew is pointing at something that's important because, um, the, uh, there's a certain of hermeneutic circle, right? Where, uh, they say, okay, well, dispensationalism before 1948 predicted that there would be a new nation of Israel, and now there is, therefore it must be true. And the reason I say it's a hermeneutic circle is that that validation has then led to political support for Israel, which has led to, you know, US political and monetary support for Israel has led to further success for the nation of Israel, which then is interpreted as further proof that dispensationalism is true, which leads to more support for Israel, right? And it just forms this circle, right? This sort of self-validating circle. And so, I think the focus is on that, not on these things that might disprove it. Um, it's sort of the same thing I find with my Calvinist friends when I take them to certain passages outside of [[Romans]] 9 through 11, [[Ephesians]] 1, you know, right? [[Romans]] 3, [[Romans]] 5, 6, right? Take them outside of some of those passages that they're used to reading and show them something that seems to very obviously contradict Calvinism, you get the, oh, well, this is a difficult passage to interpret.
+
+**[[Fr. Andrew]]:** [53:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=53:45:00) Wow.
+
+**[[Fr. Stephen]]:** [53:46:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=53:46:00) And so we need to use these other clear passages and these other places to interpret that difficult passage. And by interpret that difficult passage, they mean ignore that because these other ones seem really clear to me. So I think there's a little bit of that going on with dispensationalism too. They have their proof texts and they say that those are, quote unquote, clear, but I don't know how you get clearer than what we just read in Joshua.
+
+**[[Fr. Andrew]]:** [54:14:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=54:14:00) Right. Well, yeah, and I mean, and this goes, I mean, I have to say this because I think he's gone. There was a guy in the chat on YouTube who literally, he said, I can't just sit here and listen to people reading the [[Torah]] in English. And we're like, and then the chat very, very politely kind of gave him the "bye, Felicia." They didn't say that, but pretty close. So, thanks, chat. Yeah, I mean, I could I could do I could do chunks of this in Hebrew. I don't know that'll be value added for most listeners, but um, I know, I don't know. Yeah. But um, anyway, so actually it looks like we're getting somebody else in. I don't know who they are. We're actually a couple of calls. A couple, oh, this is exciting. Here we go. It's happening. I know, I know. So what I'm going to say is Mike, you know, we're going to just let you just the first person that connects, just drop them right in. So there we go. Uh, welcome to Lord of Spirits podcast. We have no idea who you are or what your deal is, but we're just letting, we're just opening the door right in. So welcome. We're in dangerous territory people here. The guard rails are off.
+
+**Caller 2:** [55:23:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=55:23:00) Is it me?
+
+**[[Fr. Andrew]]:** [55:25:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=55:25:00) It's you. A winner is you. All right. Uh, I'm Tyler Minnix from Atlanta, Georgia.
+
+**[[Fr. Andrew]]:** [55:33:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=55:33:00) All right, Tyler from Atlanta. My I'm the grandson of a very heavily dispensationalist pastor, and my parents are still heavily involved in Georgia. How about that? In the IFB church, of course, right? And, um, I was just, how would I, I don't really know how to approach a conversation with them on these topics without it sort of immediately devolving into uh, well, I won't go there, but is there recommendations or tips or a way that I could approach the subject with them that would maybe result in them being a bit more open instead of immediately, you know, shutting that down?
+
+**Caller 2:** [55:45:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=55:45:00) Yes.
+
+**[[Fr. Andrew]]:** [56:11:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=56:11:00) I mean, you know, I don't know, I don't know your your kinsfolk, but um, I mean, my first thought is to say, well, maybe it's not a good idea to have that conversation with them, you know, talk about other stuff. Um, but I mean, so much depends of course on the relationship that you actually have, right? So is it in a place where it could have this? But but the thought that comes to my mind is that a lot of people who are formed by dispensationalism often have a very strong, um, curiosity about, interest in things related to Judaism. And I think that um, one, one potential place that might be fruitful is to show, for instance, how a lot of what's going on in the [[synagogue]] and [[temple]] find their [[Christian]] fulfillment in [[Orthodox]] Christianity. Um, I mean, to me, like some of the dispensationalist people when they start to become interested in tradition and history and so forth, they join these these Hebrew roots movements that I'm sure you've probably heard of, um, which are basically evangelicals imagining things about Judaism and trying to kind of add it into their practice. I mean, that's really what it what it comes down to, honestly. Because it doesn't come from any living tradition. It's this reconstructed sort of thing. Um, and I I sometimes I look at those people and I'm like, you know, you guys, we're right here. We don't have to, you don't have to come up with something. We got it. It's it's here. It's right here. You know? So, but but I mean, this is your family, so you know them, you know them best. Um, and um, openness to difficult conversations really depends so much on, you know, the relationship itself. Like, what is the relationship really look like? I don't know. Father, do you have any any suggestions for conversations with dispensationalist?
+
+**[[Fr. Stephen]]:** [58:48:00](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=58:48:00) I mean, I'm not the guy to go to for tact, but um, I mean, the only thing I would say is that, you know, rather than trying to broach it directly, you can ask honest questions, right? Like, point out those verses in Joshua and just say, you know, that sounds to me like it's saying this. What, how would you understand that? Right? How does that fit with, you know? And then just leave it there. Just let them think about it and answer however they answer. You know what I mean? Um, and just sort of seed some of those things. You know what I mean? In the sense of like, asking them honest questions, listening to their answer, right? Not pressing it and being like, well, that doesn't make sense, you know, trying to win, right? Or or convince them of something, but just throw out some of these things from another point of view, right? That might sort of unsettle some of the things first, right? Because if you try to overturn the whole thing, anybody who you try to overturn their whole worldview is going to react violently. I mean, not literally, hopefully, but I mean, like, they're going to have a strong counter-reaction, right? Um, whereas if you just sort of, you know, pull out a couple of Jenga blocks, right? But the thing's still standing, um, that over time can end up helping persuade people or get people to to see things a lot better than just running in and yelling, "Everything you've ever thought is a lie," you know. Um,
+
+**[[Fr. Andrew]]:** [1:00:28:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:00:28:00) Although that is the latter is my usual approach. I say that usually works for me, but no. Yeah. No. Yeah, I think if you're a [[Christian]] and you love the scripture, you're putting artificial speed bumps and blocks and, you know, whatever, obstructions on your understanding of the scriptures if you accept dispensationalist thinking, whether you belong to a dispensationalist denomination or tradition or not, you know, if you say something like, well, that was for the Jews and then this is for Christians, then you're then you have accepted on some level dispensationalist thinking. You know, if you if you look at the Bible that way. Yes, of course, and we've talked about this in great detail. There are things from the old covenant that get transformed in the new covenant. Absolutely. But when [[Jesus]] says that not one, you know, jot or tittle, as it is in in the good old King [[James]] version of the law is going to pass away, he wasn't, he wasn't joking, you know, he wasn't, that he really meant that. So that means that all of it is kept. The whole [[Torah]] is kept in Christianity. It's not a separate covenant, right? The new covenant is the transformed old covenant. It is the renewed covenant. And that in that renewal, there are things that change, for sure. But it is one, it's all one, as as, you know, as you like to point out, Father Stephen, [[St. Paul]] did not convert to another religion. He's a Pharisee who remained a Pharisee, and he he just needed to realize, hold on, hold on, these events have happened that you've always hoped for as a Pharisee. Oh, so then that means this is happening now, right? So understanding the scriptures is such an important part of what it means to be a [[Christian]], so, so important. You know, it, it's honestly, like one of the, one of the things I love the most when we did our first Lord of Spirits conference is there's hundreds of people that showed up to this conference and they want to know the scriptures. They want to understand the scriptures, that's why they were there. And if you're listening to this podcast, you probably, that's, that's what you want. You want to understand the scriptures. That's what we're working on here, right? And so understanding the scriptures, part of that means knowing what these big arcs are and how it all connects. And so that's part of what's going on in this, this series of episodes about the history of Israel is seeing what some of the big overarching narrative arcs are, but also seeing how it's all one. So don't let dispensationalism cut it into pieces for you. It's, it's all one.
+
+**Caller 2:** [1:00:37:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:00:37:00) I guess I do get a bit overzealous in my uh I just want them to experience the same thing I've experienced but Yeah, yeah. I'll I'll try that method.
+
+**[[Fr. Andrew]]:** [1:00:45:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:00:45:00) Yeah, and and always, always pray before and after.
+
+**Caller 2:** [1:00:51:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:00:51:00) Yes.
+
+**[[Fr. Andrew]]:** [1:00:52:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:00:52:00) conversations like this. Yeah. Always, always. All right. Well, thanks for calling, Tyler.
+
+**Caller 2:** [1:00:59:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:00:59:00) Thank you, Fathers.
+
+**[[Fr. Andrew]]:** [1:01:02:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:01:02:00) All right. Well, that is it for the call board. So let's uh let's move on into the third half. So we just we left it with the temporary Josiah program. Um, so how's it going?
+
+**[[Fr. Stephen]]:** [1:01:18:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:01:18:00) The unfortunately too little too late.
+
+**[[Fr. Andrew]]:** [1:01:20:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:01:20:00) Yeah. Yes.
+
+**[[Fr. Stephen]]:** [1:01:22:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:01:22:00) I mean, he did right. He did what was right in the sight of the Lord. But Yes. they weren't they weren't ready for it.
+
+**[[Fr. Andrew]]:** [1:01:28:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:01:28:00) But he didn't have a bunch of followers who also did that, unfortunately. The people were not as faithful as he.
+
+**[[Fr. Stephen]]:** [1:01:34:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:01:34:00) So, um, yeah. So now, as we get ready to talk about uh, the end of the kingdoms of Israel and Judah, we need to, and I've done this on the show before, but this bears doing because, again, we got to blow up some Sunday school. Um, we need to talk about what kind of time frames we're actually talking about here. Okay. So, pre-1948, there was a nation or kingdom or political entity in the world named Israel, named Israel, for our friend who left the chat. When you say pre-1948, you don't mean 1947.
+
+**[[Fr. Andrew]]:** [1:02:19:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:02:19:00) I'm sorry. Whatever. BC. It's BC. Yes. Yeah. So, but I'm not including that, right? My point being, I'm not including that. Um, in the whole history of the earth, there was a political entity called Israel for about 200 years.
+
+**[[Fr. Stephen]]:** [1:02:30:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:02:30:00) Yeah.
+
+**[[Fr. Andrew]]:** [1:02:47:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:02:47:00) Yeah, like younger than, you know, less time than America.
+
+**[[Fr. Stephen]]:** [1:02:52:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:02:52:00) Yes. So that's Saul and [[David]] through the end of the northern kingdom. So there was a political entity called Israel in the world for about 200 years of human history. Tiny amount of time. So that that includes even the divided kingdom, which as we know, starts really, you know, just a couple generations in.
+
+**[[Fr. Andrew]]:** [1:03:13:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:03:13:00) Right. That's Saul and [[David]] through the [[fall]] of the northern kingdom of Israel.
+
+**[[Fr. Stephen]]:** [1:03:17:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:03:17:00) So there is something called Israel, right, as a kind of political, a single political entity. Because during the time of the judges, there isn't a political entity Israel. There's the tribes.
+
+**[[Fr. Andrew]]:** [1:03:28:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:03:28:00) Yeah. Yeah. They're all doing their own thing.
+
+**[[Fr. Stephen]]:** [1:03:31:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:03:31:00) Right? There's no connecting or overarching anything. Um, now if you want to go Judah, right? The tribe of Judah from [[David]] to the exile of Judah is about 350 years, which is better than 200 years, but still kind of a drop in the bucket compared to human history.
+
+**[[Fr. Andrew]]:** [1:03:55:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:03:55:00) Yeah. So that's the Judah kingdom basically.
+
+**[[Fr. Stephen]]:** [1:03:57:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:03:57:00) Right. Up until [[Babylon]] drags them all off, well, most of them. Right. So this is not like a nation that was there for a long period of human history. Frankly, the Canaanites were there longer. Yeah. Yep. Technically the [[Romans]] were there longer. Yeah. That's um but right, that's that's the kind of time frame we're talking about. This isn't a huge span of swath of history. It's a blank, right? Um so yeah, the Assyrians. I mean the Assyrians, people don't know you you guys don't know the Assyrians. I mean, they're they're in that period of history, they are the worst. They are the worst. They're super nasty, horrifying, freaky nightmare people. Like if you really want the whole story, go and listen to, so the [[fall]] of civilizations podcast, which is magnificent. Uh they did a whole episode on the Assyrians. And you think Lord of Spirits episodes are long. Listen to Paul of Civilizations. Most of those episodes are like four hours these days. Yeah. Um yeah, but you'll get the whole nine yards. And it includes the places where Assyria interacts with Israel, actually, is in that podcast.
+
+**[[Fr. Stephen]]:** [1:04:45:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:04:45:00) Yeah. Yeah. So, so yeah, the Assyrians, for example, have these sort of blood curdling conquest accounts. Yeah. Right, of their own conquests as they established this great world empire. This is not other people talking about them.
+
+**[[Fr. Andrew]]:** [1:05:01:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:05:01:00) They're bragging. Bragging on them, their their doing things like hanging people's skins from the walls of their city.
+
+**[[Fr. Stephen]]:** [1:05:10:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:05:10:00) Yes. Yes, they liked to, this is frequent in their conquest accounts, they would after they took a city and beheaded everyone, they would stack up the heads, all the kids' heads in one place, all the women's heads in another place, all the men's heads in another place, and see which one was the tallest.
+
+**[[Fr. Andrew]]:** [1:05:15:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:05:15:00) You got to imagine probably there was like people taking bets on that or whatever.
+
+**[[Fr. Stephen]]:** [1:05:18:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:05:18:00) The tallest pile, right? And this is the kind of stuff they did. So they would come to a city, they'd lay siege to it, they'd say surrender. If you didn't surrender, they'd wipe you out like that and commit atrocities on purpose because then when they rolled up on the next city and says, hey, surrender, that city would surrender after hearing about what they did in the last place, right? Right. Um, and you see this when you see the siege of like Jerusalem, they lay siege to Jerusalem too. uh, in scripture, you could see all the trash talk from the Assyrian general, right? He literally comes out and says, you know, yeah, I know you people are trusting in your gods to save you, but uh, all the cities I just conquered were trusting in their gods too.
+
+**[[Fr. Andrew]]:** [1:06:01:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:06:01:00) Right. What makes you different?
+
+**[[Fr. Stephen]]:** [1:06:04:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:06:04:00) Right? Yeah, there's like this mad smack talk going on, right? With the like they were brutal. And so if you did surrender to them, so among the Israelites, there were some who surrendered and some who didn't, right? And so a lot of the people in the northern kingdom just got exterminated by the Assyrians. But the cities and regions of farmland and stuff that surrendered, they would they the Assyrians were smart enough to realize that, hey, if you take over a city or take over some land, the indigenous people there will be willing to fight and die to try to get their freedom and get control of their land back, right?
+
+**[[Fr. Andrew]]:** [1:06:50:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:06:50:00) Right.
+
+**[[Fr. Stephen]]:** [1:06:51:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:06:51:00) So they would take the people from the land they conquered and move them to somewhere on the other end of their empire. And then take people from the other end of their empire and move them to the newly acquired territory. So that all of the common people living under the Assyrian yoke were working, living on and working land that they had no real connection to.
+
+**[[Fr. Andrew]]:** [1:07:08:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:07:08:00) No ancestral connection to.
+
+**[[Fr. Stephen]]:** [1:07:10:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:07:10:00) And that helped them prevent insurrections. So they didn't have to go around stomping out insurrections all the time. They could just focus on expanding, right? Um, so yeah, very bad people. This is why and their capital was the city of Nineveh. This is why when uh [[God]] tells [[Jonah]], hey, I want you to go to Nineveh and tell them I'm going to destroy their city. [[Jonah]]'s like, nope, and heads in the opposite direction.
+
+**[[Fr. Andrew]]:** [1:07:38:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:07:38:00) Right. He's like, no, I want you to destroy them. Those people are the worst.
+
+**[[Fr. Stephen]]:** [1:07:42:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:07:42:00) Yes. So like, picture, you know, [[God]] comes to you in 1943 and says, I want you to fly to Berlin and I want you to tell them that they are very bad and I'm going to destroy them, right? Uh doesn't sound like a good plan, right? Right, right. Now [[Jonah]] should have had courage and confidence in [[God]] and everything, right? We're not saying that, but you can understand the human response of uh, right? Like, this is an extraordinarily bad idea. Um, and you can also understand why [[Jonah]] gets kind of upset when the city isn't destroyed. Right? Because he knows all the Assyrians have done and he kind of thinks they deserve it.
+
+**[[Fr. Andrew]]:** [1:08:26:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:08:26:00) Yeah, right. Look, [[God]], I know you're merciful, but but do you really have to be merciful to them? Like these guys, are you serious?
+
+**[[Fr. Stephen]]:** [1:08:33:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:08:33:00) Yeah. They're the worst.
+
+**[[Fr. Andrew]]:** [1:08:36:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:08:36:00) And they're and and and I mean I should just, I think it's just worth saying. And then in the gospels, their repentance at the preaching of [[Jonah]] is held up against the unfaithfulness of Israel.
+
+**[[Fr. Stephen]]:** [1:08:48:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:08:48:00) Yeah. The cities that [[Christ]] preached and worked miracles in that did not repent.
+
+**[[Fr. Andrew]]:** [1:08:53:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:08:53:00) Yeah. So, um, so as of 722 BC, there is no more northern kingdom of Israel. As I've mentioned before on the show, I think, a former professor of mine, Lawson Younger, uh, actually found the lost tribes of Israel. And that he spent years and years pouring over Assyrian tablets for uh essentially Israelite names, like Hebrew names. And located the villages in Assyria to which the Israelites who surrendered were deported.
+
+**[[Fr. Stephen]]:** [1:09:03:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:09:03:00) Yeah. Meanwhile, the people who they brought in to uh the area around Samaria, the capital of the northern kingdom, intermarried with the survivors, right, who were of Israelite descent, and those people became the Samaritans, who we then meet in the New Testament.
+
+**[[Fr. Andrew]]:** [1:09:47:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:09:47:00) Which is why they have this weird synchretistic religion.
+
+**[[Fr. Stephen]]:** [1:09:53:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:09:53:00) Yeah, well, yeah, and we'll we'll get we'll be getting into the Samaritans a lot more in our next episode. Indeed, indeed. Uh, so then with them gone, all that's left is Judah, the kingdom of Judah. We already mentioned it's small, they're going to last until 587, 586 BC, right? So a little bit longer, almost 150 years longer. Um, before they're deported, uh, taken into exile in [[Babylon]]. But to give you an idea of how tiny the kingdom of Judah was,
+
+**[[Fr. Andrew]]:** [1:10:35:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:35:00) Yeah, we looked this up.
+
+**[[Fr. Stephen]]:** [1:10:36:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:36:00) Yes. Uh, the kingdom of Judah was roughly 3,400 square miles.
+
+**[[Fr. Andrew]]:** [1:10:42:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:42:00) Which is just about one Puerto Rico.
+
+**[[Fr. Stephen]]:** [1:10:47:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:47:00) Yes, that it is the size, it was the size of Puerto Rico.
+
+**[[Fr. Andrew]]:** [1:10:51:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:51:00) Or or slightly less than three Rhode Islands. Yes.
+
+**[[Fr. Stephen]]:** [1:10:54:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:54:00) So not huge.
+
+**[[Fr. Andrew]]:** [1:10:57:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:10:57:00) Not big, smaller than the modern nation state by far.
+
+**[[Fr. Stephen]]:** [1:11:02:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:11:02:00) Yes, smaller than most states in the US. Uh, Yeah, oh, yeah, yeah. About the size of Puerto Rico, which by the way is part of the United States. We're educating while we entertain.
+
+**[[Fr. Andrew]]:** [1:11:15:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:11:15:00) I've heard that. And much like Guam was taken in, we received it part of the Spanish-American war. But will not.
+
+**[[Fr. Stephen]]:** [1:11:23:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:11:23:00) So, uh, and as we already read, right, in the last half, it's preserved by [[God]] for the sake of [[David]] and [[David]]'s line and the son of [[David]] who is coming, right? The Messiah, the anointed one, the king, right, that the Messiah the son of [[David]], right, uh, is going to be the one through whom not just Israel, but at least the other Abrahamites receive the promises to [[Abraham]]. And by the fact that this is directed not just to Israel, but to at least the other Abrahamites means that there is a sort of extra-Israelicum here, right, that the promises that are going to come through the Messiah, the Israelite Messiah, the Jewish Messiah, that's who the promises are going to come through, but that those promises and that inheritance are going to expand beyond just Israel proper or Judah proper that the sons of [[David]] are going to rule over. Now then, [[David]] dies, [[Solomon]] becomes king, everything goes south. In more ways than one.
+
+**[[Fr. Stephen]]:** [1:11:38:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:11:38:00) Yes. Um, and so, um, and so, you know, we have to point out and remind, we've talked about this before on the show, but, you know, we've given this very bleak picture in terms of the disobedience of both the northern and southern kingdoms and all the wickedness, but remember, all through this, right, there is a faithful remnant. There are people, King Josiah was one of them, but there's also just common people, [[Elijah]] gets reminded about them by [[God]], in both the northern and southern kingdoms, common people who are doing their best, albeit without the help of any kind of societal structures, but who are doing their best for themselves and their families to keep [[Torah]], right, and to be faithful to [[God]]. There's this faithful remnant all the way through. So it's never everybody, but it's also, right, we tend to, we're modern people, right, we think of everyone means every individual all taken together.
+
+**[[Fr. Andrew]]:** [1:15:38:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:15:38:00) Right.
+
+**[[Fr. Stephen]]:** [1:15:39:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:15:39:00) And that's not how people thought until very recently, right? The it was the exact opposite. So collectively, Israel and Judah were completely disobedient. But that doesn't mean every individual was.
+
+**[[Fr. Andrew]]:** [1:15:58:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:15:58:00) Right, right.
+
+**[[Fr. Stephen]]:** [1:16:00:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:16:00:00) Right? There were persons who were faithful within that. But the collective was not. Now that's important for understanding what what we're going to read next. So [[St. Paul]] is going to talk about, ah, everyone who was under the [[Torah]] being under its curse, being under the curse of the [[Torah]], right? Specifically meaning the curses in [[Leviticus]] 26, [[Deuteronomy]] 29 and 30, death, exile, right? Because the northern kingdom, dead, southern kingdom, exile. Right. And he talks about that and that's important for understanding the language he uses, for example, in [[Galatians]] chapter 3. About the curse of the law or the curse of the [[Torah]].
+
+**[[Fr. Andrew]]:** [1:16:51:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:16:51:00) So, okay, so this is from [[Jeremiah]] chapter 25, starting with verse 8. "Therefore, thus says the Lord of hosts, 'Because you have not obeyed my words, behold, I will send for all the tribes of the north,' declares the Lord, 'and for [[Nebuchadnezzar]], the king of [[Babylon]], my servant, and I will bring them against this land and its inhabitants, and against all these surrounding nations. I will devote them to destruction and make them a horror, a hissing, and an everlasting desolation. Moreover, I will banish from them the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, the grinding of the millstones, and the light of the lamp. This whole land shall become a ruin and a waste, and these nations shall serve the king of [[Babylon]] 70 years. Then after 70 years are completed, I will punish the king of [[Babylon]] and that nation, the land of the Chaldeans, for their iniquity,' declares the Lord, making the land an everlasting waste.'"
+
+**[[Fr. Stephen]]:** [1:18:00:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:18:00:00) Notice something there, right? [[God]] is going to use [[Babylon]], the neo-Babylonian empire, specifically in this case, to judge the people of Judah, right? But that fact doesn't justify all the things that [[Babylon]] is going to do.
+
+**[[Fr. Andrew]]:** [1:18:28:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:18:28:00) No, [[Babylon]]'s going to get it too.
+
+**[[Fr. Stephen]]:** [1:18:31:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:18:31:00) Yes, [[Babylon]] is also going to be judged for its wickedness, right? But [[God]] is going to use them as a tool. But now, there's this period of 70 years, right? [[Jeremiah]]'s prophesying that the exile will last for 70 years. And in terms of why 70 years, 2 Chronicles of all places sheds a little light on that.
+
+**[[Fr. Andrew]]:** [1:18:59:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:18:59:00) This is a this is a a good, "Sorry, Calvinists" moment. Yes. Yes. Because ultimately, as far as dispensationalism is from Calvinism, it was invented by a Presbyterian people. Oh, no. It comes out of Calvinist Covenant theology. It's a warped version of it, but that's where it came from. Yeah, yeah, yeah. That's the the critter what spawned it, right? Um, and so this is what I've talked about before when we did the episodes on how to read the Bible about reading the Bible forwards, not backwards. Yeah. Right? Don't come to some understanding you think works of something in the New Testament and then try to read it back into the Old Testament. Understand the Old Testament and then you will understand the terms and the ideas and the patterns that the New Testament writers are using to talk about [[Christ]], right? So this pattern in Joshua of [[God]] giving and the people not receiving is crucial to understanding what [[St. Paul]] is actually saying in like [[Romans]].
+
+**[[Fr. Stephen]]:** [1:19:30:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:19:30:00) Yeah, because it's I mean, and I imagine some people might look at this and say, well, I'm using the New Testament to understand the Old Testament, which okay. It requires you to understand the New Testament first. Right. It's like, well, why on what basis are you understanding the New Testament? Yeah. Yeah. 16th century. Yeah. Paradigms. Right. Right. You're actually using [[John]] Calvin to understand the Bible. You're using the Calvinist tradition or the Puritan tradition or some other tradition to understand the Bible. That's what you're doing. You're not using the New Testament to understand the Old Testament. You're using that tradition to understand the whole Bible, right? Um, so [[St. Paul]]'s, one of his central arguments in the book of [[Romans]] is, right, he has non-[[Christian]] Jewish people arguing to him, as many Jewish people will still today, by the way, if [[Jesus]] is the Messiah, why haven't the Jews accepted him? Right? If [[God]] sent his Messiah, if [[God]] gave his Messiah, and giving and receiving are the same thing, why haven't the Jews received their Messiah? Yeah. Right? And central to [[St. Paul]]'s argument is, no, there's a distinction between [[God]] giving and people receiving.
+
+**[[Fr. Andrew]]:** [1:21:48:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:21:48:00) Yeah, I'm willing to accept that. Okay. Um yeah. So, but so why is this such a big deal? Right? The Sabbath year, right? Like if you're going to make a list of the commandments that the Israelites broke, yeah, Sabbath year's on the list somewhere, but I mean, infanticide, way higher, right? Like... Right. Idolatry, sexual immorality, right? Like there's a lot of stuff over, oh, yeah, you didn't practice the Sabbath year, right? Um I mean, it's on the list, right? But why, so why is this one being presented here as sort of paradigmatic? The reason this is paradigmatic is that, as we've been saying for the last two episodes, the [[Torah]] describes a social order. It describes an ordered way of life, an ordered collective way of life for the people of Israel. And as we've also said in both of these last two episodes repeatedly and shown as we've gone through the history, that order that is prescribed by the [[Torah]] was never realized in the actual history and life of the people of Israel. Okay. And so what this is saying to us with [[Jeremiah]] and 2nd Chronicles are saying to us is that they never kept it. They never practiced it. They never followed it. And so [[God]] is going to act to establish that order. That in the exile, [[God]] is beginning to act to establish that order. And once again, remember the idea of a sign with a prophecy. [[God]] says beforehand that it's going to last for 70 years. So then when it does last for 70 years, you can say, ah, [[God]] established his order, the order described in the [[Torah]], in this one point, then he will certainly act in the future to establish the fullness of that order, the fullness of that way of life. And as we've already seen, that action, according to the same 2nd Chronicles, is going to happen through the Messiah. Right? So the expectation, as we enter into the exile and beginning the return from the exile after that 70 years, the expectation is that [[God]] is going to intervene, and he's going to intervene to, and here's just some thing we could say more, but number one, to free them from the curse of the [[Torah]], meaning reverse the exile, right? And as part of that, restore Israel. But when he restores Israel, he's going to restore both parts. He's not just going to bring Judah back from exile, but he's also going to somehow restore the northern kingdom. He's going to restore all 12 tribes in reversing the curse of the [[Torah]]. He is going to intervene, he's going to act to establish justice, the justice, the order prescribed by the [[Torah]], meaning he is going to justify his people. He's going to set things right the way they should be. Not just tell them here's how to do it, but he is going to do it. Establish, he's going to establish his kingdom forever, not just provisionally, not just a sign of his kingdom in the earthly kingdom of [[David]], but his actual kingdom forever. And he is going to enthrone the Messiah as king over that kingdom. This is the expectation. And so what we're going to be talking about next episode is going to be how that expectation gets shaped and even transformed over the course of the [[second temple]] period due to political realities and other things that happen historically. And then how this plays out into the New Testament, the New Testament texts being all of them [[second temple]] Jewish literature.
+
+**[[Fr. Andrew]]:** [1:23:40:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:23:40:00) This whole conversation about the kingdom of Judah and the kingdom of Israel, I'm just thinking this, I mean, the whole, if you're like me and you went to just public school, you did not get any of this. It's just there was this thing called Israel, and it kind of existed in the same time as, well, maybe you get told that it exists at the same time as [[Egypt]] or [[Babylon]], but that's about it. Maybe you might have a teacher that makes some kind of very, very oblique reference to [[Jesus]], even. But, um, but to actually know the story, it's really, I mean, you know, it gives a lot of color and texture to the things that we know. But more importantly, as you say, it's about seeing, you know, how, how these events lead up to the coming of [[Christ]]. And that's what we're going to be doing next episode. And this is why it matters. Yes.
+
+**[[Fr. Stephen]]:** [1:24:41:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:24:41:00) Yes. I mean, not that there's not that we haven't given you plenty of things that matter for other reasons tonight, but. Right, exactly. Exactly.
+
+**[[Fr. Andrew]]:** [1:24:52:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:24:52:00) Yeah. And if nothing else, at least now you can correct some people. I mean, if you're in the chat, it's going to be, I'm sure it's already popped off about this, but, you know, now you can give them your best one-two punch. So there you go. Well, that is our show for tonight. Thank you very much, everyone for listening. If you didn't happen to get through to us live, we'd still like to hear from you. You can email us at lordofspirits@ancientfaith.com. You can message us at our Facebook page. You can also leave us a voicemail at speakpipe.com/lordofspirits. And if you have basic questions about [[Orthodox]] Christianity or you need help to find a parish, head over to orthodoxintro.org. Join us for our live broadcasts on the 2nd and 4th Thursdays of the month at 7 p.m. Eastern, 4 p.m. Pacific. A dradle in my soul, every fight out of control, do it all to get them off their feet. And if you are on Facebook, you can follow our page. You can join our very active discussion group. Leave ratings and reviews in the appropriate places. All of just five stars, obviously. And also, share this show with a friend. And I'm told that this amused somebody last time I said it. Also share it with your enemies.
+
+**[[Fr. Stephen]]:** [1:26:00:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:26:00:00) And finally, be sure to go to ancientfaith.com/stroke/support and help make sure we and lots of other AFR podcasters stay on the air. Crowd is here about to blow, waiting for me to start the show, cut the curtain, lights go on, I'm home.
+
+**[[Fr. Andrew]]:** [1:26:15:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:26:15:00) Thank you. Good night. [[God]] bless you. [[Christ]] is risen.
+
+**Outro:** [1:26:27:00](https://media.ancientfaith.com/audio/podcasts/lordofspirits/the_history_of_ancient_israel_part_2.mp3#t=1:26:27:00) You've been listening to The Lord of Spirits with [[Orthodox]] [[Christian]] [[priests]] Father Andrew Stephen Damick and Father Stephen De Young, a listener-supported presentation of Ancient Faith Radio. And I beheld and I heard the voice of many [[angels]] round about the throne, and the beasts, and the elders, and the number of them was ten thousand times ten thousand, and thousands of thousands, saying with a loud voice, "Worthy is the lamb that was slain to receive power, and riches, and wisdom, and strength, and honor, and glory, and blessing." [[Revelation]] chapter 5, verses 11 through 12.

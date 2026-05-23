@@ -1,0 +1,326 @@
+--- 
+ title: "101: Christ vs. Modernity" 
+ tags: [lordofspirits] 
+ ---
+
+He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]].
+- [[Targums - Enochic Literature|1 Enoch 48:4-5]]
+
+The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew Stephen Damick]] and [[Father Stephen De Young]], host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by God and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].
+
+**[[Fr. Andrew Stephen Damick]]:** [01:06](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=01:06) Good evening, giant-killers, dragon-slayers, bashers of banshees. You are listening to the [[Lord of Spirits]] podcast. And my co-host, the very reverend Dr. Heptamaster, Sextamaster… Did we solve that last time? I can't remember now. It is… It is… Which sounds bad. There you go. Heptacat. Yeah, yeah. [[Father Stephen De Young]] is with me from Lafayette, Louisiana.
+
+And I'm [[Father Andrew Stephen Damick]] in Emmaus, Pennsylvania, atop the Eldritch Tower of Podcasting, perched above both a gateway to the [[Underworld]] and, as I've lately learned, a neoteric tattoo parlor. And we're live.
+
+And if you are listening to us live, you can call us at 855-237-2346 and talk to us. We're going to get to your calls in the second half of the show. And guest producer Bobby "[[Lord of Spirits]] was the name of my acoustic 80s side project band" Maddox will be taking your calls.
+
+**[[Fr. Stephen De Young]]:** [02:04](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=02:04) Speaking of which, did you get kind of deja vu there for a second during the intro?
+
+**[[Fr. Andrew]]:** [02:09](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=02:09) Yes, I did. I did. I don't know what's going on.
+
+**[[Fr. Stephen]]:** [02:12](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=02:12) I don't know. I don't know about these these Orthodox media nepo babies.
+
+**[[Bobby Maddox]]:** [02:18](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=02:18) I'm a little rusty. Come on.
+
+**[[Fr. Andrew]]:** [02:21](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=02:21) Oh, wow. See, we didn't even, we didn't even try to call in, Bobby, and here he is on the show already. That was fast. Wow.
+
+Anyway, yes, so, a word from our sponsor. This episode is sponsored, and this is a different ad, you guys, it's slightly different. Is sponsored by the Orthodox Studies Institute at St. Constantine College, which exists to advance the study and application of Orthodox Christianity in faithfulness to Holy Tradition. OSI's next live course is... Tolkien, Gods, Monsters, and Myth, taught by none other than your humble servant.
+
+**[[Fr. Stephen]]:** [03:00](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=03:00) What? You teach a class about Tolkien?
+
+**[[Fr. Andrew]]:** [03:02](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=03:02) I know. This class starts on November 12th and runs for five weeks on Tuesday nights. To check out the syllabus and to sign up, go to orthodoxstudies.org/los. I hope I see all of you there.
+
+So last time, on the 100th episode of [[Lord of Spirits]], we bored you for 3 hours and 53 minutes, a new record. And so in that vein, we are going to continue on, picking up where [[Father Stephen]] so graciously saved us from having our first four-hour episode, which surely would have become a five-hour episode, to be rivaled only by an eventual 24-hour live telethon which he has also threatened to make come to pass.
+
+**[[Fr. Stephen]]:** [03:43](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=03:43) That's not a threat, that's a promise.
+
+**[[Fr. Andrew]]:** [03:45](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=03:45) Oh. So this is our 101st episode. So where were we?
+
+**[[Fr. Stephen]]:** [03:51](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=03:51) I don't remember, man. A lot of stuff has happened since then. It's been two weeks.
+
+**[[Fr. Andrew]]:** [03:54](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=03:54) Yeah, I know there's been hurricanes and that's great it starts with an earthquake, etc, etc.
+
+**[[Fr. Stephen]]:** [04:00](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:00) Hurricanes, airplanes, yeah.
+
+Uh, Lenny Bruce is not afraid, so. He's dead, so that helps, I imagine. Um, yeah, so we were on sort of on the verge of talking about modernism.
+
+**[[Fr. Andrew]]:** [04:17](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:17) Yes.
+
+**[[Fr. Stephen]]:** [04:18](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:18) And realized it was going to be another three hours if we kept going.
+
+**[[Fr. Andrew]]:** [04:21](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:21) Yes.
+
+**[[Fr. Stephen]]:** [04:22](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:22) And so, modernism in its various and sundry forms, including post, is going to be our subject this evening. Yeah. But we're going to break with tradition and actually start talking about it in the first half.
+
+**[[Fr. Andrew]]:** [04:37](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:37) What?
+
+**[[Fr. Stephen]]:** [04:38](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=04:38) I know. We have a 100-episode tradition of not doing that ever, but... We're scofflaws. Even the laws that we make ourselves. Got to keep it fresh.
+
+Yeah. I got to keep myself entertained at least, even if I'm not entertaining anyone else. Um, so, yeah, a course of a quick review, uh, to kind of catch us up in terms of what we talked about last time because I imagine most of our current listeners, whether live or later, uh, will not be listening to this immediately after concluding that four-hour marathon. And even then, they may have gotten diverted in their thinking by the calls at the end and, you know, a certain man of 1,000 heresies calling in to ask me questions about Twin Peaks. Uh, so, to get everybody back, uh, back on the same page, uh, a very short version of what we were talking about last time was talking about, uh, how do you compare Christianity and other things? To be more specific. Yeah. Right. Uh, it was a question of we had talked about in the episode before that even, the idea of a sort of continuity of the worship of the true God. The true worship of the true God starting with the beginnings of humanity.
+
+**[[Fr. Andrew]]:** [06:13](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=06:13) Yeah, that literally it's the same religion. It is the same religion at the beginning as Orthodox Christianity now.
+
+**[[Fr. Stephen]]:** [06:19](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=06:19) Yeah. Uh, so, you know, a nuanced and, you know, fair claim. Um, but so within that, that of course, there are a bunch of obvious questions about that, right? Because obviously what hunter-gatherers in the [[Neolithic era]] did that we would now retroactively label as religious practice is not identical to, say, the Sunday [[Divine Liturgy]] in an Orthodox church.
+
+**[[Fr. Andrew]]:** [06:54](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=06:54) Right.
+
+**[[Fr. Stephen]]:** [06:55](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=06:55) Right? So what does it mean then that if we're going to claim that those things are fundamentally the same in being the true worship of the true God?
+
+**[[Fr. Andrew]]:** [07:04](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=07:04) Yeah, that's basically what we talked about the last episode.
+
+**[[Fr. Stephen]]:** [07:07](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=07:07) And so it was a question of how do we recognize continuities and discontinuities and how much discontinuity do you need with sort of the flow of Christianity, the Christian tradition before you're now outside of it? Right? How do we separate sort of an adaptation to changing way of life? Right? So for example, you know, human civilization has urbanized over the past several centuries. We don't primarily live in farming villages anymore.
+
+**[[Fr. Andrew]]:** [07:47](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=07:47) Say speak for yourself, [[Father]], I don't know.
+
+**[[Fr. Stephen]]:** [07:48](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=07:48) Yeah, most of our listeners tonight don't live in farming villages. You live in a swamp. They live in a city of some size, right, or some kind, right? And they that has a different economic structure than those agricultural farming villages did. And all kinds of things have changed. And so the church, right, Orthodox Christianity has adapted to those things, right? We have parking lots. They didn't have parking lots at the village church, right? We have, right? So there there are adaptations and you could point at those and say, well, that's a difference. Therefore, that's a change. You didn't used to have parking lots, now you have parking lots. See, your religion is not unchanging. Your religion has changed, right? Um, and we would look at that and say, well, okay, that's kind of silly.
+
+**[[Fr. Andrew]]:** [08:35](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=08:35) Right.
+
+**[[Fr. Stephen]]:** [08:36](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=08:36) Right? That's that's not a substantial change. That's just an adaptation to, right, life in a new context, right? But there are other things that we could do, hypothetically, right? If all of a sudden I tore down the iconostasis and put a rock band in the sanctuary around the altar, right? You would look at that and say, "Okay, that's not Orthodox Christianity anymore. That's something else." It may be some other type of Christianity, but it's something, it's not Orthodox Christianity anymore. Right? And there are things I could do where you would point at it and say, "Okay, that's not even Christianity anymore." Right? Like if I started putting up statues of Zeus and Athena and stuff, like in the church with the icons, right? You would say, "Okay, that's not even Christianity anymore. Now, now you're in some kind of paganism."
+
+**[[Fr. Andrew]]:** [09:32](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=09:32) Right, you're worshiping a different God.
+
+**[[Fr. Stephen]]:** [09:34](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=09:34) Yeah. So we were talking about those differences, right? To kind of give an idea of of what is a change and an adaptation? What is a break with tradition? Right? What is what is transformative?
+
+And so we talked about where we were talking about other groups that have so, for example, Christian elements or things about them that might look Christian, right? From the outside. And the examples we used last time were [[Gnosticism]] and [[Neoplatonism]]. Right? Um, those things, so there are sort of Christian elements, right? So Gnostics will talk about a redeemer, they'll talk about a [[Christ]], uh, even salvation maybe. Yeah, they'll talk about salvation, they'll talk about a creator God that's not the one they like, but they'll talk about one, right? So there there are these terms, right? These things. And and people use and it's not incorrect uh, to refer to Christian [[Gnosticism]] over against other forms of [[Gnosticism]], meaning forms of [[Gnosticism]] that have these Christian trappings versus some other ones. So there are forms of [[Gnosticism]], for example, where the redeemer figure isn't [[Christ]], it's Hercules.
+
+**[[Fr. Andrew]]:** [10:59](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=10:59) Yeah.
+
+**[[Fr. Stephen]]:** [10:59](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=10:59) Okay. Well, if your redeemer figure is Hercules, there's not even a pretense to Christianity there. Right. Like you're firmly within the Greek pagan world, right? Um, and and so we pointed out, we were using three sort of things as our benchmarks. And we talked about how in the early church, Christian churches are encountering these other groups in other cities and other towns and other places. And they're trying to determine, "Okay, this other group that's meeting in this other town, are they a group of Christians like us or are they doing something else?" And it wasn't just like, "Well, they identify as Christians, so okay, they're Christians." Right? There was actually, do we have certain things in common? And the three we were using uh, particularly those groups were that their view of, well, whether they had and what scriptures they had.
+
+**[[Fr. Andrew]]:** [12:01](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=12:01) Yeah.
+
+**[[Fr. Stephen]]:** [12:02](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=12:02) Right? Um, what authority structures they had within their their group. And what their view was of the creation and the material world. And then also what their way of life was.
+
+**[[Fr. Andrew]]:** [12:19](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=12:19) Yeah.
+
+**[[Fr. Stephen]]:** [12:20](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=12:20) So ethical and moral considerations, right? And in the case of [[Gnosticism]] and [[Neoplatonism]], as much as they had trappings of Christianity, and in both cases deliberately.
+
+**[[Fr. Andrew]]:** [12:22](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=12:22) Yeah, they were sort of constructed. Someone's like, "I have a good idea," and let's, you know, put these things together. It wasn't something that was revealed or grew up within a community or anything like that. It was...
+
+**[[Fr. Stephen]]:** [12:33](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=12:33) Yeah. Yeah. To either incorporate what they thought were interesting Christian ideas or to appeal to the people that Christianity was appealing to in the case of [[Neoplatonism]] and try to win them back. Um, it was a deliberate and therefore kind of artificial thing. And we compared that to, right, not like [[Gnosticism]] and [[Neoplatonism]] to a false Christianity. And the example we used of a false Christianity was [[Arianism]].
+
+**[[Fr. Andrew]]:** [13:00](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=13:00) Yeah.
+
+**[[Fr. Stephen]]:** [14:01](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=14:01) Right? Where the Arians, obviously, [[Council of Nicaea]] very clear, they're not Christians because they believe in a different [[Christ]], right? Um, but but if you look at those elements I named, they were using the same scriptures, they had the same authority structures, right? There were Arian bishops. Uh, they had the same, roughly, view of the material world as Christians did, and they practiced roughly the same way of life morally and ethically, right? They had the [[Eucharist]], they had a liturgy, right? Um, and so that was, rather than being something other than Christian, that was a false Christianity.
+
+**[[Fr. Andrew]]:** [14:48](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=14:48) Yeah, and their, you know, their canonically treated differently than non-Christians.
+
+**[[Fr. Stephen]]:** [14:53](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=14:53) Right. And so that's why like [[St. Basil the Great]], for example, would receive them into the church without baptism, whereas a Gnostic or a Neoplatonist, he absolutely would baptize, right in every case. Yep. Right? Because those are something different. This is just somebody who's part of a false Christian body. Okay? Yeah.
+
+So, where we were headed after that was we were going to, and this was way too much to do in one episode, we determined, as we stretched into our third hour, that um, so how, let let's use this kind of framework and understanding to take a look at the relationship between Christianity and modernism.
+
+**[[Fr. Andrew]]:** [15:42](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=15:42) Yeah, and this is not easy because like modernism is not a religion. It's not a group. It's not a church. It's not a...
+
+**[[Fr. Stephen]]:** [15:50](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=15:50) Oh...
+
+**[[Fr. Andrew]]:** [15:51](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=15:51) Yeah, but I mean, there's not like an, there's not like an organization. Right? That you can point to and say, okay, this group, these group, this group is the Church of [[Modernism]] and they do, you know, like it's not like that. It's really...
+
+**[[Fr. Stephen]]:** [16:03](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:03) There were at some points.
+
+**[[Fr. Andrew]]:** [16:04](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:04) Oh, yes, of course. Yeah, yeah, yeah. Yeah. Yeah. They did put up statues of reason after the French Revolution. You could argue the Freemasons are...
+
+**[[Fr. Andrew]]:** [16:13](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:13) Oh, no, Freemasons. Yeah. But yeah, but there's not, it's it's not, you know, in some ways the challenge is different because than than than challenges in the past where there's clear groups to kind of argue with and compare yourself against and so forth. These are cultural movements that that steer whole societies, often without those societies really being aware of it, especially as it gets a generation or two on. Right?
+
+**[[Fr. Stephen]]:** [16:43](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:43) They're ideologies.
+
+**[[Fr. Andrew]]:** [16:44](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:44) Yeah, yeah.
+
+**[[Fr. Stephen]]:** [16:45](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:45) And as we've talked about before and we'll talk about again tonight, when you're talking about an ideology, what we're really talking about is a spirit.
+
+**[[Fr. Andrew]]:** [16:52](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:52) Yeah.
+
+**[[Fr. Stephen]]:** [16:54](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=16:54) There is a spirit that is motivating this. Right? And if it's a spirit that's not the [[Holy Spirit]], then it's not the [[Holy Spirit]]. Right? And so that makes it kind of a foreign thing. But before we can really get into modernism and its relationship to Christianity, we have to talk about what modernism even is.
+
+**[[Fr. Andrew]]:** [17:18](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=17:18) Yeah, because that word gets used a lot... I mean, most people when they say the word "modern," they just mean, you know, the now times.
+
+**[[Fr. Stephen]]:** [17:27](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=17:27) Yeah. But but there's also, even modernism itself as an ism, right, uh, gets thrown around a lot as a slur. Right? Like the way "liberal" gets thrown around as a slur now. Like "liberal" used to... and we're going to use it tonight, but it it used to actually mean something. Like if someone was a liberal, they believed in certain things. Yeah. But now it's just like, you know, you're a liberal. We're going to talk later about how the fact that words like "Marxist" and "fascist" now get thrown around all the time, like Marxist is anyone to my left, fascist is anyone to my right, you know. Um, and they just become slurs. Like they're not meaningful words anymore.
+
+**[[Fr. Andrew]]:** [18:10](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=18:10) Like "awesome."
+
+**[[Fr. Stephen]]:** [18:12](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=18:12) It's just it's like a cuss word, right? Like you just, yeah, or calling someone a jerk, you know. Like it doesn't it doesn't actually tell you anything about the person. Right? If I say that they're a jerk, you just say, "Oh, why don't you like them?" He's bad. Right? Like it doesn't convey any information. Um, and so modernism is the same thing. Right? And so, like you hear modernism just used to refer to anything recent. Right? Yeah. Uh, anything newfangled is just a modernism, get that out of here, right? Um, did they have that in 19th century Russia? No, it's modernism, right? Um, and of course, did they have modernism in 19th century Russia? No. And it was better for it. Um, and again with the slur thing, right, modernism is not just things you don't like. Right. Um, and uh, it's it's not things that aren't quote unquote patristic, meaning there aren't these two categories, patristic and modernist into which all things fall. And there's a certain irony about the way those are juxtaposed, uh, because the whole idea of patristic and patristics and the neo-patristic movement and all of that is is a modern movement.
+
+**[[Fr. Andrew]]:** [19:41](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=19:41) Yeah, it doesn't mean that everything it says or does or is is bad, but it it is a reality of the modern world.
+
+**[[Fr. Stephen]]:** [19:51](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=19:51) Right, it's ressourcement, it's ad fontes, it's back to the original sources. There's nothing wrong with reading the original sources. You should read the original sources.
+
+**[[Fr. Andrew]]:** [19:58](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=19:58) Right, right.
+
+**[[Fr. Stephen]]:** [20:01](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=20:01) Right? But it's just the point is that move is a modern move.
+
+**[[Fr. Andrew]]:** [20:06](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=20:06) Yeah, yeah, just historically and philosophically.
+
+**[[Fr. Stephen]]:** [20:10](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=20:10) Yeah, and therefore trying to oppose modernism and quote unquote patristic, whatever, patristic thinking, patristic this, patristic that, is a very modern way of looking at things, right? Yeah. Um, and modernism is not things that something that you know, someone uses certain trigger words in their description. Um, I couldn't get the name the name if I wanted to, so this person will remain anonymous if they're still out there listening, but uh in the very early days of this show, lo those many four years ago, uh I used the word dialectic in an episode.
+
+**[[Fr. Andrew]]:** [20:52](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=20:52) Oh.
+
+**[[Fr. Stephen]]:** [20:54](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=20:54) And this is back when I was still on the Facebooks, um, before blessedly I uh escaped. And uh someone who had listened to that episode was was very upset. Mm. And posted something on the order of, "What do you mean by dialectic?" And sort of a rant about Hegel ensued. Yeah. And uh my response, of course, to mollify him was to just say, "Communism." Uh... right. But you know, we can all, no matter where you stand on anything, right, there's words that'll trigger you, right? Like you know, someone saying "Picard is better than Kirk," you'll get an earful from me. I will be triggered. Um, you'll hear me mock a man who played a Frenchman with a British accent for half his life. Anyway,
+
+**[[Fr. Andrew]]:** [21:48](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=21:48) You know, he was younger, he was younger... I think I pointed this out recently. He was younger when he started that show than than you and I both are now. By just two years.
+
+**[[Fr. Stephen]]:** [22:01](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=22:01) Yeah, he looked a lot older though. He was bald and kind of withered. Anyway. Um, not sort of robust like William Shatner. Anyway, see, I got triggered right there even talking about. Um, yeah, and but so, you know, things that you use certain buzzwords. Right? Just because someone says "dialectic," uh, just because someone says, you know, uses a term drawn from the social sciences or something, that doesn't mean whatever they're saying is automatically modernism, right? Yeah. Um, so what is it? Well, nobody comes out and says, "Hey, I'm a modernist."
+
+**[[Fr. Andrew]]:** [22:44](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=22:44) Yeah, not anymore, I don't think.
+
+**[[Fr. Stephen]]:** [22:46](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=22:46) And here's our modernist manifesto, right? Like with our planks. But there are certain things that we could talk about that are elements that are views that emerged starting in the early modern period that sort of constitute what modernism is. And the first and one of the clearest ones is an emphasis on the individual.
+
+**[[Fr. Andrew]]:** [23:09](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=23:09) Yeah, that's probably the most foundational of all of this stuff.
+
+**[[Fr. Stephen]]:** [23:12](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=23:12) Yeah. Yeah, because everything else is dependent on this. And what we mean by individual is exactly what that term means. Individual, atomos, right? Cannot be divided. Right? So it is the sort of the basic unit of humans is one, right? And so, but in describing that cannot be divided, that means it's what we arrive at when we divide that person from everything. So the individual, the difference between the idea of an individual and a human person, for example, is that the idea of a person as an individual is that you are looking at them separated from all of their relationships, all their social relationships, family relationships, community relationships, uh, religious connections, right? You abstract all of that. And when you abstract all that, you arrive at the individual.
+
+**[[Fr. Andrew]]:** [24:14](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=24:14) Yeah, and that then gives rise to this question of who am I? Which seems, yeah, which seems like, like we're so inculcated with this idea that we think that that is the universal question that every human has ever asked himself. But it's kind of not.
+
+**[[Fr. Stephen]]:** [24:32](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=24:32) No. No. And when you combine that, as happened in Western Europe, for example, with a bad case of [[Plato]] brain, then you think that yourself is this sort of set thing, right? Your soul within you. And so you get people wanting to go out and find themselves. "I'm going to go find myself."
+
+**[[Fr. Andrew]]:** [24:56](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=24:56) Yeah, you're this irreducible thing.
+
+**[[Fr. Stephen]]:** [24:58](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=24:58) I need to figure out who I am. Yeah, right. Um, rather than seeing who I am as, "Well, I am the husband of my wife. I am the pastor of my parish, right? I am the son of my mother. I am the brother of my sisters, right? On and on and on." All those of, all those of relationships that are predicated upon someone else. Right. All of these connections are what make me me. Right? No, it's we got to figure it out abstracted from everything else.
+
+**[[Fr. Andrew]]:** [25:30](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=25:30) Yeah. And and you know, with that, of course, also comes the idea that human persons are basically impermeable. Right. You know. Yeah. This is why, this is why the nous concept is so hard for modern people to grasp, that it's, you know, that that thoughts come in from the outside and are received by the nous. It's because we don't think of thoughts being that way. You know?
+
+**[[Fr. Stephen]]:** [25:53](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=25:53) Yeah. Yeah. And so then, taking the next step from this, you arrive at a kind of egalitarianism. Mm. Right? Uh, meaning if we're talking about individuals abstracted from all of these relationships, then they're all kind of, not just equal, but the same. Right? You say, "Well, okay, this person is rich and this person is poor." But no, no, no, no, no. We're abstracting them from those relationships. Right? Two infants, right? Separated from their families, put in a room, right? Uh, or two dead bodies, right? Like we've we've abstracted them from everything. And so now they're basically the same.
+
+**[[Fr. Andrew]]:** [26:44](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=26:44) Yeah, this is why in, what is it, is it the [[Declaration of Independence]] or I can never remember if it's the [[Declaration of Independence]] or the Constitution of the United States that says, you know, "We hold these truths to be self-evident that all men are created equal."
+
+**[[Fr. Stephen]]:** [26:58](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=26:58) That's [[Declaration of Independence]].
+
+**[[Fr. Andrew]]:** [27:00](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=27:00) Yeah, [[Declaration of Independence]]. Which I mean, that is got to be one of the biggest gaslightings in history.
+
+**[[Fr. Stephen]]:** [27:10](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=27:10) Well, they did say just all men.
+
+**[[Fr. Andrew]]:** [27:12](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=27:12) Well, I mean, you know, males. That didn't mean, males. They meant humans. Yeah, that's back when men, that's back when men did not just mean men. Yeah. Um, yeah, because I mean it's obvious, it's obvious, like if anyone's ever seen the two of us together, uh, like we're both tall individuals, but if you and I were to have a wrestling match, it is clear that we are not created equal. You know, there's no question that you would win because I do not know any kind of special martial arts where I could, you know, defeat someone who is, I don't know, six times my size or whatever, you know, whatever a human like me compared to a hill... drop the elbow... a hill like you is, you know. That's right. Yeah, we're not created equal. We're just not, you know.
+
+**[[Fr. Stephen]]:** [28:02](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=28:02) Right, but so from their perspective, right, all inequalities and even all differences are acquired, right?
+
+**[[Fr. Andrew]]:** [28:13](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=28:13) Yeah, in the modern point of view, right?
+
+**[[Fr. Stephen]]:** [28:15](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=28:15) Think [[Rousseau]], right? Um, think [[John Locke]]'s, right, tabula rasa, right? Um, so any differences are just historicized, right? Well, this person happens to be rich and that person happens to be poor because by happenstance they were born into the families they were, right? But there is no difference between them at all as people. Right? Everything, everything that separates people is just the vicissitudes of history. Yeah. And is all kind of accidental.
+
+**[[Fr. Andrew]]:** [28:55](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=28:55) Yeah, I mean, they're reacting against the idea that some people are, um, you know, the sort of pagan idea, right? That that, uh, that the elite are just better appointed by the gods. Or better people. Yeah, just better people. Right, better human. Yeah, if you're stronger, you're better, you know, whatever. They're reacting against that idea.
+
+**[[Fr. Stephen]]:** [29:17](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=29:17) But they're going in the other direction.
+
+**[[Fr. Andrew]]:** [29:19](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=29:19) Yeah, right. Yeah.
+
+**[[Fr. Stephen]]:** [29:21](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=29:21) And saying, "Oh, well, this person is physically stronger than that person." "Well, they were able to work out and exercise and they didn't have to do this or they work this kind of job as opposed to that kind of job," right? So it's all just historicized, which which means that if you can re-engineer that, you can transform completely transform people. Yeah, yeah. You know, I mean you get the the the, you know, subsequent idea then of equal treatment under the law, which is not the same thing as egalitarianism, but you don't come you don't really get equal treatment under the law without egalitarianism. Yeah, really. And it's not it's not to be confused with God being no respecter of persons. This is this is something else. Yeah. Right, right. This is something else. Right, because for example, right, sure, that's that works with God being no respecter of persons, but how does that work with [[St. Paul]] telling us we have different gifts and different callings? Yeah. Right? This says that's not true. Right? That's just accidental. Right? Um, and not not related to the person right at all.
+
+This then leads to step one is democracy, right? But ultimately comes to full flower in Jacksonian democracy. Right? Which is for those of you who don't know a lot of American history, Andrew Jackson expanded the franchise to all males. Um, the franchise being, uh, voting. That's... Uh, as I continue to use antiquated terms.
+
+**[[Fr. Andrew]]:** [31:04](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=31:04) Although literally it means making them French. But... So... and allowed the allowed them all to vote, which was seen by the previous founding fathers as a horrific idea because of course all those poors are the mob out there, right? Yeah. Um, but that democratization, of course, goes further ultimately, because it becomes the claim that because everybody is really the same other than these vicissitudes of history, that everyone's opinion is of equal value.
+
+**[[Fr. Andrew]]:** [31:41](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=31:41) Yeah.
+
+**[[Fr. Stephen]]:** [31:42](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=31:42) Right? One man, one vote.
+
+**[[Fr. Andrew]]:** [31:44](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=31:44) Yeah, and it I mean and that's, you know, that that's why we everyone says things like, "Well, everyone is entitled to his opinion." Um, and and why there's you get this idea on the internet like if you if you delete someone's comments, that that's kind of some sort of moral wrong because, of course, everyone's comments are of equal value.
+
+**[[Fr. Stephen]]:** [32:07](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=32:07) Right. Right? And so, yeah, if we're going to build a road, we should take a vote on how to build it. Hopefully after listening to an engineer, but not necessarily.
+
+**[[Fr. Andrew]]:** [32:20](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=32:20) Yeah.
+
+**[[Fr. Stephen]]:** [32:21](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=32:21) Because that engineer also only gets one vote even though he knows way more about the subject, right? Um, you also get the idea of the pursuit of enjoyment. That's not what the pursuit of happiness meant in the [[Declaration of Independence]]. Uh, that was a sub in for property. That was the right to pursue wealth.
+
+**[[Fr. Andrew]]:** [32:46](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=32:46) Yeah, to be honest.
+
+**[[Fr. Stephen]]:** [32:47](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=32:47) But the idea of the pursuit of enjoyment, the idea of leisure, um, and this really kicks in uh with uh industrialization. Mm, yeah where you have the idea of a work day. Right. And then your free time that you can do with it what you want. Right? But it's already starting in the modern period. And so you start to see, you know, theater for example, originally comes out of religious ritual. Yeah, and maintains these ritual elements and these kinds of things like, say, in Athens. But by the time you get to Shakespeare in the 17th century, right, you're now in the realm of popular entertainment. There are groundlings.
+
+**[[Fr. Andrew]]:** [33:37](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=33:37) Yeah, it's it's for fun and yeah and there's money to be made.
+
+**[[Fr. Stephen]]:** [33:41](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=33:41) Yes. Um, and so this goes from being this kind of communal religious event or communal quasi-religious bonding exercise to being entertainment.
+
+**[[Fr. Andrew]]:** [33:55](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=33:55) I have to say by the way, as someone who, you know, you think about the Roman Empire on a daily basis, but I think about William Shakespeare on a daily basis. And um, it's funny to me though, like as you said, when he was doing his thing in the late 16th or early 17th century, that was that was popular entertainment. You know, that was the stuff that people went outside the city, you know, that was low, that was low entertainment.
+
+**[[Fr. Stephen]]:** [34:23](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:23) Yeah.
+
+**[[Fr. Andrew]]:** [34:24](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:24) But it's so funny that people think of Shakespeare now as being, you know, super hoity-toity high stuff.
+
+**[[Fr. Stephen]]:** [34:31](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:31) I think that's mostly Americans.
+
+**[[Fr. Andrew]]:** [34:33](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:33) Yeah, maybe, I don't know. Maybe.
+
+**[[Fr. Stephen]]:** [34:35](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:35) Sir Ian McKellen said that the Royal Shakespeare Company is basically welfare for out-of-work British actors.
+
+**[[Fr. Andrew]]:** [34:40](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:40) Wow! Is that another shot at Patrick Stewart?
+
+**[[Fr. Stephen]]:** [34:44](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:44) Yes. Yes. I knew it. I didn't think that Patrick Stewart would be our our whipping boy for this episode, but here we are.
+
+**[[Fr. Stephen]]:** [34:57](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=34:57) Here we are. Here we are. Um, so so another another element that you find within modernism are theories of development, right? Meaning, as we just said, there's this deep view of egalitarianism and this historicization of differences and hierarchies. And so that that means a theory of development is, okay, well, how did we arrive at these current hierarchies?
+
+**[[Fr. Andrew]]:** [35:33](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=35:33) Right, right.
+
+**[[Fr. Stephen]]:** [35:34](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=35:34) What is the historical process by which things came to be the way they are? With the idea that if we can understand that, and again, modernism, especially once you get into the 19th century in Germany, is treating history as Wissenschaft, as a science, right? We can determine these laws and we can then steer it to go a way that we think would be better.
+
+**[[Fr. Andrew]]:** [35:58](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=35:58) Yeah, and and there's nothing wrong with society that can't be cured by progress. The inexorable march towards things getting better. Um, we're we're so much better off. We are so much better and better off because those two things always go together than people in in in the past. You know?
+
+**[[Fr. Stephen]]:** [36:23](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=36:23) Right. Right. And and exhibit A of this is [[Karl Marx]]. Mm. [[Karl Marx]] is peak modernism. Right? He's he and his friend [[Abraham Lincoln]], but we'll go into that another time. Uh... throne rocks tonight. Is is peak modernism, uh, because what does he do? Well, he goes historically and he says, okay, here's the move from primitive communism, right? And imperialism, feudalism, right? And now to the beginnings of capitalism, right? Here's how these different social classes have been formed and transformed, how they war against each other, they struggle against each other, right? Over the course of history. And so now we've arrived at capitalism and we're here, right? And one of the things people don't understand about Marx is that he thought capitalism was the second best idea anybody ever had. Yeah, that's right. That's right. He thought capitalism was great, but not the end all be all, right? Now we need to move up to this even higher stage. And for him, the way to do that, now that we've diagnosed, now that we've followed through how all this has happened in the past, now we're going to grab the reins of this and we're going to steer it to where we want it.
+
+**[[Fr. Andrew]]:** [37:40](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=37:40) Yeah, and and and if you're not headed in that direction, then you are not on, and this is a very common phrase that we hear now, you're not on the right side of history. Right? That's this idea that there's this move for and you know, very commonly we will say things like, "I can't believe that here in 2024, blah, blah, blah." Somebody is saying that. Yeah. Yeah, you know, it's like it's it's current year. How could this be happening?
+
+**[[Fr. Stephen]]:** [38:08](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=38:08) Yes, yeah, yeah. Although, although I will say, I recently went back and watched one of the best television programs of the 90s, and I was amazed at what you could say on network TV in the 90s. Mm, oh it's true. Like stuff you couldn't even say on Twitter today without getting canceled. Yeah. Actors were saying on like network television.
+
+**[[Fr. Andrew]]:** [38:28](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=38:28) I mean, even just 15 years ago, like, yeah, I would just say, you know, go go watch The Office, which ended what, in 2012? Yeah. Uh, I mean, yeah, that that whole show practically is is cancelable these days.
+
+**[[Fr. Stephen]]:** [38:45](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=38:45) Yeah, so things can change pretty fast. But yeah, but so that also then this idea of development also gives you the kind of chronological arrogance and snobbery that we've talked about that our 19th century German friends are so representative of. Um, and certain 20th and 21st century Americans, that of, we now stand at the pinnacle. We're the greatest country in the history of the world. Everything has been leading to us here now. We are the pinnacle, right, of of all of human achievement and culture and society throughout history.
+
+**[[Fr. Andrew]]:** [39:23](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=39:23) That's why all biblical prophecy points at America. Yeah. No biblical prophecy points at Guam. Or 19th century German Lutheranism. Yeah. And we get super mad at other countries when they won't recognize that America is the greatest country in history. Right. Um, so if that's sort of a broad sketch, those are elements at least of modernism, right? So let that suffice at least for this evening because we don't want to go four hours again as sort of a rough sketch of the outlines of modernism. Where and how do we see that working its way into Christianity?
+
+**[[Fr. Andrew]]:** [40:27](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:27) Yeah, and it's probably worth at least mentioning that even though we, you know, we kind of leveled a few criticisms along the way, we're not saying that none of what modernism talks about or says or thinks about, that none of it is true in any way. You know?
+
+**[[Fr. Stephen]]:** [40:45](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:45) Yeah, we're just kind of...
+
+**[[Fr. Andrew]]:** [40:46](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:46) Not none of it.
+
+**[[Fr. Stephen]]:** [40:47](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:47) Yeah, this is...
+
+**[[Fr. Andrew]]:** [40:48](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:48) This is its, its deal.Basically.
+
+**[[Fr. Stephen]]:** [40:50](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:50) Yeah. The idea that 19th century Germany was the pinnacle of human civilization is bunkum, but, you know.
+
+**[[Fr. Andrew]]:** [40:58](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=40:58) Okay, that is definitely not true. You did get Grimm's fairy tales and that was nice.
+
+**[[Fr. Stephen]]:** [41:03](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=41:03) Yeah. Yeah. So, um, how do we see modernism in Christianity and is modernist Christianity in danger of becoming not just a false Christianity, but something else, something other than Christianity? Right, in the way that we were talking about before. Because modernism as such is a foreign element to Christianity. [[Modernism]] did not emerge out of Christianity. Modernity and modernism arose out of a, frankly, to be totally blunt, out of a rejection of Christianity.
+
+**[[Fr. Andrew]]:** [41:47](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=41:47) Mm, yeah.
+
+**[[Fr. Stephen]]:** [41:49](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=41:49) Out of an attempt to find a basis for civilization apart from the Christian religion in Western Europe.
+
+**[[Fr. Andrew]]:** [41:57](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=41:57) Yeah, I mean, in a lot of ways it's a kind of ideological Tower of Babel.
+
+**[[Fr. Stephen]]:** [42:02](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=42:02) Yeah. And and everywhere where modernism has taken hold, right, it causes a revolution and that revolution is always anti-Christian. Yep. See France. Right. See Russia. Um, so it it is a foreign element. It is adverse. And so when Christianity gets reshaped by a foreign element, that's where we start moving into the territory of, "Okay, this is something else." This isn't just a false form of Christianity. This is something other than Christianity. Right? Um, and we talked about, right, you look at these areas, right? How does modernism affect the ethical way of life? It becomes a different way of life than what had been practiced by Christianity. Yep. Right? Uh, scriptures become a very different thing. Right? Um, worship becomes a very different thing. The view of the world is very different, right? They actually have a more positivist view of the material created world than Christianity has held. So it's sort of the opposite problem of [[Gnosticism]]. [[Gnosticism]], of course, said the whole world out there is all evil. Right? Bad and you should stay away from it. Whereas they say it's all good and untainted by any sin.
+
+**[[Fr. Andrew]]:** [46:51](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=46:51) Yeah, there's the denial of fallenness.
+
+**[[Fr. Stephen]]:** [46:53](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=46:53) Yeah, right? The noble savage, right? [[Rousseau]] again, right? Um, so, you know, so again, all of these criteria we're using, it's a different religion. Right? Um, and, uh, as we mentioned, right, there's a, there's a difference between the tradition and traditionalism. Tradition is something which forms and is formed in a community living together and sharing a common life. Traditionalism is an individual's ideology or preferences or views.
+
+**[[Fr. Andrew]]:** [47:32](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=47:32) Yeah, I really like in his little book, um, which was a, I think a lecture originally by uh, Yaroslav Pelikan, um, called The Vindication of Tradition. He has a very famous saying that tradition is the living faith of the dead, whereas traditionalism is the dead faith of the living. I always love a good, um, chiasmus.
+
+**[[Fr. Stephen]]:** [47:56](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=47:56) Yeah.
+
+**[[Fr. Andrew]]:** [47:56](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=47:56) Um, but but I mean, it's a good shorthand, right? Because because tradition is something you become part of, whereas traditionalism is a thing you construct.
+
+**[[Fr. Stephen]]:** [48:05](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=48:05) Right. It really is.
+
+**[[Fr. Andrew]]:** [48:08](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=48:08) Yeah, I I'm triggered by chiasms, by the way. Oh. I was a kid, I used to get hit and then kicked and then kicked and then hit.
+
+**[[Fr. Andrew]]:** [48:16](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=48:16) Oh, yeah. I can see that.
+
+**[[Fr. Stephen]]:** [48:19](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=48:19) Um, but I think that's mostly right, but that it's just, it's so much a personal view.
+
+So, okay, so this is sort of this episode, we sort of did an episode that turned into a two-part series that then turned into a three-part series. Um, and I think both where we started and where we ended up are very germane to the whole raison d'etre of this show, because this this show isn't just a Bible show, right? Uh, the raison d'etre of this show from the beginning has been that, uh, we're trying to reacquire some of the the the wisdom that was lost in the movement into modernism, where we gained this incredible knowledge of science and technology, which is all real knowledge, but we lost the spiritual wisdom that maybe we had before and trying to recover that. So discussing what modernism is is very germane, as is talking about the spiritual experience of Neolithic hunter-gatherers, which is where we started out uh two episodes ago. Um, but mainly, uh the last couple episodes what we've been talking about is this contrast between Christianity, between the church as it exists in the world, and that Christianity being a transformative influence on the world in which it exists versus that Christianity being twisted and deformed by the world in which it exists and turned into something different by these foreign elements that come and intrude. And what we've been saying about church communities, uh, applies just as much to me as a person. So we've talked about and we talked about tonight that my identity as a person is not as an individual. Uh, and it's not some ever-shifting protean self either. But it is the sort of stacked up and meshed web of relationships that I exist in. I'm a priest, I'm the pastor of a parish, I'm a husband, I'm a spiritual father, I'm a brother, I'm a son, I'm an uncle, I'm a great uncle. I'm old. I'm a friend to certain people. I'm an acquaintance of certain other people. I'm a writer of books, which is a certain kind of relationship with readers. I make this podcast, it's a certain type of relationship with listeners. All of these things make up my identity. Obviously, I'm an Orthodox Christian within that. But I can choose and I have to choose. And more than choosing, it's not just a question of making choices. Often it feels more like a struggle or a fight one way or the other. to allow my Orthodox Christian identity to be sort of subsumed, to be shifted, to be conditioned, to be warped or diminished by the world I live in with all of its modern and post-modern currents. Or I can choose to live in a way and to struggle in a way in which my Orthodox Christianity, and by that I essentially mean the presence of the [[Holy Spirit]] within me, allow that to transform me and then through transforming me, through that web of relationships that connects us to those around us, connects us to our world, begin to transform the world around me. There is no kind of middle ground there. There is no kind of midpoint, there's no homeostasis where you can just relax and now, you know, everything's okay and you can go about your business. Back to my hobbies. I've got that whole Christianity thing covered. One of those two things will be happening. We'll be being shaped by one or the other. We'll be being shaped by the [[Holy Spirit]] as a person or we'll be being shaped by the various spirits that are active in our world, the zeitgeists that are out there pushing at us and wanting to lead us in other directions. The promise that the [[Holy Spirit]] has is that the transformation that the [[Holy Spirit]] offers to the Christian, to the Christian who struggles, struggles with repentance, struggles to do good, struggles to bring forth the fruit of the spirit. You've got to tend a garden, you got to tend an orchard for it to bring forth fruit, is, as I said, not only that we would be transformed by it, but that through the web of relationships that connects us to our world, that our world and those other people would be transformed. It's kind of a chain reaction. This is what St. [[Seraphim]] of Sarov was talking about in the famous quote, "Acquire the [[Holy Spirit]] and thousands will be saved all around you." Right? That is our task. And so I hope, and that's why I put it here at the very end, right? that people's takeaway, everything we had to say about the church and society and history and religion in these episodes as it developed and changed, where there were breaks, continuities, discontinuities over time, throughout human history. All of that is good stuff from my perspective. I think all of it's important. That's why we did the episodes. But if we don't take that and apply it to our own day-to-day way of life, our own day-to-day struggle to be, as [[St. Paul]] says, in the world but not of the world, to be shaping the world, not being shaped by it, right? If we don't apply that, then, you know, this is so much abstract formulation, right? It's knowledge that puffs up. We can think, "I'm smart, I understand all of these currents in our culture." But it won't actually profit us anything. Right? So we need to be struggling harder in our own life against foreign ideas, foreign ideologies, and intruders, than we do against those intruders in our church. God will take care of those intruders in our church. Bishops will take care of those intruders in our church. Right? If we take care of those intrusions in our own life, through that web of relationships, that will help take care of those intruders in our church. Because if we're talking about intruders that aren't human, if we're talking about spirits, those get cast out. If we're talking about people coming into our churches who are moved by those spirits, then when those spirits get cast out, we transform our, quote unquote, enemies into friends. That's part of that transformation, too. That's why we don't throw out our liberals. That's why we don't throw out our reactionaries. That's why we don't throw out our post-modernists. Right? Because I'm one of those. Somewhere in there is me, right? Or at least was. Hopefully more was than is. Right? And that transformation is transforming us all together.
+
+**[[Fr. Andrew]]:** [21:08](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=21:08) Amen.
+
+**[[Fr. Stephen]]:** [21:09](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=21:09) Amen.
+
+**[[Fr. Andrew]]:** [21:11](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=21:11) Well, in two weeks will be our annual Halloween episode. But that's all our show is for tonight. So thank you for listening. If you didn't get through to us live, we'd still like to hear from you. You can email us at lordofspirits@ancientfaith.com. You can message us at our Facebook page or leave us a voicemail at speakpipe.com/lordofspirits. If you have basic questions about Orthodox Christianity or you need help finding a parish, head over to orthodoxintro.org.
+
+**[[Fr. Stephen]]:** [21:57](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=21:57) Join us for our live broadcast on the second and fourth Thursdays of the month at 7 p.m. Eastern, 4 p.m. Pacific. Dream of better lives, the kind which never hate, trapped in a state of imaginary grace.
+
+**[[Fr. Andrew]]:** [22:08](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=22:08) If you're on Facebook, you can follow our page, join our discussion group, leave reviews and ratings in all the appropriate places. Most importantly, share this show with a friend who is going to benefit from it.
+
+**[[Fr. Stephen]]:** [22:19](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=22:19) And finally, be sure to go to ancientfaith.com/support and help make sure we and lots of other AFR podcasters stay on the air. I made a pilgrimage to save the human race, never comprehending the race had long gone by.
+
+**[[Fr. Andrew]]:** [22:30](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=22:30) Thank you, good night, and may God bless you.
+
+You've been listening to the [[Lord of Spirits]] with Orthodox Christian priests, [[Father Andrew Stephen Damick]] and [[Father Stephen De Young]], a listener-supported presentation of Ancient Faith Radio. And I beheld, and I heard the voice of many angels round about the throne, and the beasts, and the elders. And the number of them was ten thousand times ten thousand, and thousands of thousands, saying with a loud voice, "Worthy is the Lamb that was slain to receive power, and riches, and wisdom, and strength, and honor, and glory, and blessing."
+- [[Revelation 5:11-12]]
