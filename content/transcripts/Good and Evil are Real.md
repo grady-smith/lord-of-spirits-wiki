@@ -1,7 +1,7 @@
---- 
- title: "Good and Evil are Real" 
- tags: [lordofspirits] 
- ---
+---
+title: "Good and Evil are Real" 
+tags: [lordofspirits] 
+---
 # Good and Evil are Real
 
 ## Intro

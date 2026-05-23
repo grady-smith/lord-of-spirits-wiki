@@ -1,7 +1,7 @@
---- 
- title: "The Mind of [[Nebuchadnezzar]]" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Mind of [[Nebuchadnezzar]]" 
+tags: [lordofspirits] 
+---
 # The Mind of [[Nebuchadnezzar]]
 
 ## Introduction and First Half

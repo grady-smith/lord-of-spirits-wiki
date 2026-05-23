@@ -1,7 +1,7 @@
---- 
- title: "The Order of Creation" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Order of Creation" 
+tags: [lordofspirits] 
+---
 # The Order of Creation
 
 ## Introduction and Announcements

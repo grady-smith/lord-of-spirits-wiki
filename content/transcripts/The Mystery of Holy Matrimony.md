@@ -1,8 +1,7 @@
---- 
- title: The Mystery of [[Holy Matrimony]] 
- tags: [lordofspirits] 
- ---
-
+---
+title: The Mystery of [[Holy Matrimony]] 
+tags: [lordofspirits] 
+---
 # The Mystery of [[Holy Matrimony]]
 
 ## Introduction & Announcements

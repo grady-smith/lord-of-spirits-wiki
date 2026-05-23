@@ -1,8 +1,7 @@
---- 
- title: "[[Theosis]] as the Goal of Creation" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "[[Theosis]] as the Goal of Creation" 
+tags: [lordofspirits] 
+---
 # [[Theosis]] as the Goal of Creation
 
 ## Introduction

@@ -2,7 +2,6 @@
 title: "The Angel of the Lord"
 tags: [lordofspirits]
 ---
-
 ## Introduction
 
 [[Fr. Andrew]] and [[Fr. Stephen]] begin a four-part series on the Christology of the Old Testament. [This first episode focuses on the figure of the Angel of the Lord](https://media.ancientfaith.com/lordofspirits/los_2021-11-11.mp3#t=01:32:00), a being mentioned dozens of times in Scripture whose identity is often unclear to modern Christians. The hosts will explore who this figure is, whether he is an angel, a symbol, or the Son of [[God]] Himself, and what his role reveals about [[Christ]] before the [[Incarnation]].

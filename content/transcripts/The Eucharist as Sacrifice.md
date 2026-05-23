@@ -1,7 +1,7 @@
---- 
- title: "The [[Eucharist]] as Sacrifice" 
- tags: [lordofspirits] 
- ---
+---
+title: "The [[Eucharist]] as Sacrifice" 
+tags: [lordofspirits] 
+---
 # The [[Eucharist]] as Sacrifice
 
 ## Introduction

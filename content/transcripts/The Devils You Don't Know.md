@@ -2,7 +2,6 @@
 title: "The Devils You Don't Know"
 tags: [lordofspirits]
 ---
-
 ## Transcript
 
 **Introductory Voiceover:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2024-06-27.mp3#t=00:00:00)

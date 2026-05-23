@@ -1,7 +1,7 @@
---- 
- title: "When Did God Become Man?" 
- tags: [lordofspirits] 
- ---
+---
+title: "When Did God Become Man?" 
+tags: [lordofspirits] 
+---
 # When Did God Become Man?
 
 ## Introduction

@@ -1,8 +1,7 @@
---- 
- title: "The Lord of Spirits Goes to Hell" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Lord of Spirits Goes to Hell" 
+tags: [lordofspirits] 
+---
 # The Lord of Spirits Goes to Hell
 
 ## Introduction and Recap

@@ -9,7 +9,6 @@ Here are the processed files for the requested episode.
 title: "[[Christ]] is Born, Glorify Him!"
 tags: [lordofspirits]
 ---
-
 **[[Fr. Andrew]]:** [Listen from 01:06](https://media.ancientfaith.com/lordofspirits/los_2023-06-08.mp3#t=01:06)
 Greetings, dragon-slayers, giant-killers. You are listening to the 130th episode of the [[Lord of Spirits]] podcast. Why you're still here is a mystery to me.
 

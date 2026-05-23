@@ -1,8 +1,7 @@
---- 
- title: "Cain and the Coming of Sin into the World" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Cain and the Coming of Sin into the World" 
+tags: [lordofspirits] 
+---
 # Cain and the Coming of Sin into the World
 
 ## Transcript

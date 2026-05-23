@@ -1,7 +1,7 @@
---- 
- title: "Lord of Spirits Conference Live Q&A" 
- tags: [lordofspirits] 
- ---
+---
+title: "Lord of Spirits Conference Live Q&A" 
+tags: [lordofspirits] 
+---
 # [[Lord of Spirits]] Conference Live Q&A
 
 ## Transcript

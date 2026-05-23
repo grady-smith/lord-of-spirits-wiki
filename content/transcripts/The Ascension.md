@@ -2,7 +2,6 @@
 title: "The Ascension"
 tags: [lordofspirits]
 ---
-
 # The [[Ascension]]
 
 ## Introduction

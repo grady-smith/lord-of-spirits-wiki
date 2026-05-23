@@ -1,8 +1,7 @@
---- 
- title: "Eternal Condemnation" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Eternal Condemnation" 
+tags: [lordofspirits] 
+---
 # [[Eternal Condemnation]]
 
 ## Intro

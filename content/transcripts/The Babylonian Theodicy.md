@@ -1,7 +1,7 @@
---- 
- title: "The Babylonian Theodicy" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Babylonian Theodicy" 
+tags: [lordofspirits] 
+---
 # The Babylonian Theodicy
 
 ## Transcript

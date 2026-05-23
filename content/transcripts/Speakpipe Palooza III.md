@@ -1,8 +1,7 @@
---- 
- title: "Speakpipe Palooza III" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Speakpipe Palooza III" 
+tags: [lordofspirits] 
+---
 # INTRODUCTION
 
 **[[Fr. Andrew Stephen Damick]]**: [Greetings, dragonslayers and giant-killers. You are listening to the 134th episode of the Lord of Spirits podcast.](https://media.ancientfaith.com/audio/podcasts/lordofspirits/lord_of_spirits_2024-03-21.mp3#t=01:07) I'm [[Fr. Andrew Stephen Damick]], and with me is the Bog Beast himself, [[Fr. Stephen De Young]].

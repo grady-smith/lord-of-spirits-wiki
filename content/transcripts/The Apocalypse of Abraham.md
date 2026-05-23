@@ -1,8 +1,7 @@
---- 
+---
 title: "The Apocalypse of Abraham" 
 tags: [lordofspirits] 
 ---
-
 ## Transcript & Summary
 
 **[[Fr. Andrew Stephen Damick]]**: [Good evening, Giants killers! Dragon slayers! Bat people!](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=01:06) You're listening to the Lord of Spirits podcast. My co-host, [[Father Stephen]] De Young, editor-in-chief of the Etymologicon, is with me straight from the swamp in Lafayette, Louisiana, and I'm [[Father Andrew]] Stephen Damick in Emmaus, Pennsylvania.

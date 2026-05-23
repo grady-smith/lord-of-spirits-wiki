@@ -1,7 +1,7 @@
---- 
- title: "All Questions All the Time" 
- tags: [lordofspirits] 
- ---
+---
+title: "All Questions All the Time" 
+tags: [lordofspirits] 
+---
 # All Questions All the Time
 
 ## Transcript

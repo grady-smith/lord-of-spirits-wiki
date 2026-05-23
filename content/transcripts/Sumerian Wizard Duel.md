@@ -1,8 +1,7 @@
---- 
- title: "Sumerian Wizard Duel" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Sumerian Wizard Duel" 
+tags: [lordofspirits] 
+---
 # Sumerian Wizard Duel
 
 This is a Lord of Spirits special presentation where [[Fr. Stephen]] reads from the ancient Sumerian text, *Enmerkar and En-suhgir-ana*, which details a wizard duel. He explains that this text, dating from the 18th century BC, provides a paradigm for understanding the contest between [[Moses]] and the Egyptian magicians in the book of [[Exodus]].

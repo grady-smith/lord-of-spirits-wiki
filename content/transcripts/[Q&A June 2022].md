@@ -1,7 +1,7 @@
---- 
- title: "[Q&A June 2022]" 
- tags: [lordofspirits] 
- ---
+---
+title: "[Q&A June 2022]" 
+tags: [lordofspirits] 
+---
 # [Q&A June 2022]
 
 ## Transcript

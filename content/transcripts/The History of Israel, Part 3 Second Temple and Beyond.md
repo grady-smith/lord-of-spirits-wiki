@@ -1,8 +1,7 @@
---- 
- title: "The History of Israel, Part 3: [[Second Temple]] and Beyond" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The History of Israel, Part 3: [[Second Temple]] and Beyond" 
+tags: [lordofspirits] 
+---
 ## Episode Summary
 
 This is the third and concluding part of the series on the history of Israel. [[Fr. Andrew]] Stephen Damick and [[Fr. Stephen]] De Young pick up the story with the people of Judah in the Babylonian Exile, tracing their history through the Persian, Greek, and [[Hasmonean]] periods, right up to the Roman occupation at the time of [[Christ]]. They discuss the differing messianic expectations that arose, particularly the political, military model of the Hasmoneans versus the faithful, [[Torah]]-observant model of the [[Pharisees]]. The episode culminates in an explanation of how [[St. Paul]], in his epistles, understands the coming of [[Christ]] as the true restoration of "all Israel"—a single olive tree composed of the faithful remnant of Judah and the "fullness of the Gentiles," representing the regathered northern tribes.

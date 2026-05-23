@@ -1,8 +1,7 @@
---- 
- title: "Astrology and the Star of Bethlehem" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Astrology and the Star of Bethlehem" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **Intro:** [He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits.](https://media.ancientfaith.com/lordofspirits/los_2021-03-26.mp3#t=00:00:00) [[1 Enoch]] chapter 48, verses 4 through 5.

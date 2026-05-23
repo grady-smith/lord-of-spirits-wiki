@@ -1,8 +1,7 @@
---- 
- title: "Election" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Election" 
+tags: [lordofspirits] 
+---
 ## Introduction and Announcements
 
 [He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits. - 1 Enoch 48:4-5](https://media.ancientfaith.com/lordofspirits/los_2025-04-24.mp3#t=00:00)

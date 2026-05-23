@@ -1,8 +1,7 @@
---- 
- title: "Martyrdom" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Martyrdom" 
+tags: [lordofspirits] 
+---
 # [[Martyrdom]]
 
 ## Introduction

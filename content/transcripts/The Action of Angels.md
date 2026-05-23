@@ -2,7 +2,6 @@
 title: "The Action of Angels"
 tags: [lordofspirits]
 ---
-
 ## The Action of [[Angels]]
 
 [[Fr. Andrew]] and [[Fr. Stephen]] discuss the roles and activities of angels in the world, contrasting them with the actions of demons from the previous episode. They explore the angelic hierarchy, the concept of guardian angels, and how spiritual warfare is primarily a battle of thoughts within the human mind.

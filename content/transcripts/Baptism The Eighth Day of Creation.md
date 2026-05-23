@@ -1,8 +1,7 @@
---- 
- title: "Baptism: The Eighth Day of Creation" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Baptism: The Eighth Day of Creation" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **[[Fr. Andrew]] Stephen Damek:** [00:00:00] He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of spirits. [[1 Enoch]], chapter 48, verses 4 through 5.

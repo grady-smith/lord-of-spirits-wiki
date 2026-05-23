@@ -2,7 +2,6 @@
 title: "Lord of Spirits Podcast Introduction"
 tags: [lordofspirits]
 ---
-
 **Announcer:** [He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled.](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=00:03) All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. [[1 Enoch]], chapter 48, verses 4 through 5.
 
 The modern world doesn’t acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. [Orthodox Christian priests, Father Andrew Stephen Damick and Father Stephen De Young, host this live call-in show focused on enchantment in creation, the union of the seen and unseen as made by God and experienced by mankind throughout history.](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=00:40) Welcome to the [[Lord of Spirits]].

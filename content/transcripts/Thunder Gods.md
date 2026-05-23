@@ -1,7 +1,7 @@
---- 
- title: "Thunder Gods" 
- tags: [lordofspirits] 
- ---
+---
+title: "Thunder Gods" 
+tags: [lordofspirits] 
+---
 # Thunder Gods
 
 ## Transcript

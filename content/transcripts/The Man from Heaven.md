@@ -1,8 +1,7 @@
---- 
- title: "The Man from Heaven" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Man from Heaven" 
+tags: [lordofspirits] 
+---
 # The Man from Heaven
 
 ## Introduction

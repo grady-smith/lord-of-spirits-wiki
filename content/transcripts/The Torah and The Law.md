@@ -1,8 +1,7 @@
---- 
- title: "The [[Torah]] and The Law" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The [[Torah]] and The Law" 
+tags: [lordofspirits] 
+---
 ## Transcribed by an AI
 
 ### Introduction

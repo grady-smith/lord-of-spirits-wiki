@@ -2,7 +2,6 @@
 title: "The [[Queen Mother]]"
 tags: [lordofspirits]
 ---
-
 # The [[Queen Mother]]
 
 ## Introduction

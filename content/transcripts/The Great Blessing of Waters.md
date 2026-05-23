@@ -1,8 +1,7 @@
---- 
- title: "The Great Blessing of Waters" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Great Blessing of Waters" 
+tags: [lordofspirits] 
+---
 # The Great Blessing of Waters
 
 ## Intro

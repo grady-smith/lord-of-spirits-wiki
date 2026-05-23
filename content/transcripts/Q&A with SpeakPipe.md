@@ -1,8 +1,7 @@
---- 
- title: "Q&A with SpeakPipe" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Q&A with SpeakPipe" 
+tags: [lordofspirits] 
+---
 # Q&A with SpeakPipe
 
 ## Introduction & Housekeeping

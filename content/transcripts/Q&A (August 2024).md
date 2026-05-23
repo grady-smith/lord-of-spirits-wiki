@@ -1,8 +1,7 @@
---- 
- title: "Q&A (August 2024)" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Q&A (August 2024)" 
+tags: [lordofspirits] 
+---
 # Q&A (August 2024)
 
 ## Introduction

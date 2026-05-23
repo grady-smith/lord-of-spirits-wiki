@@ -1,8 +1,7 @@
---- 
- title: "Monster Month 2020" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Monster Month 2020" 
+tags: [lordofspirits] 
+---
 ## Introduction
 
 **Introductory music**

@@ -1,8 +1,7 @@
---- 
- title: "How We Know What We Know" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "How We Know What We Know" 
+tags: [lordofspirits] 
+---
 # How We Know What We Know
 
 ## Introduction & Opening Monologue

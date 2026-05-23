@@ -1,7 +1,7 @@
---- 
- title: "The History of [[Ancient Israel]]: Part 2" 
- tags: [lordofspirits] 
- ---
+---
+title: "The History of [[Ancient Israel]]: Part 2" 
+tags: [lordofspirits] 
+---
 # The History of [[Ancient Israel]]: Part 2
 
 ## Transcript

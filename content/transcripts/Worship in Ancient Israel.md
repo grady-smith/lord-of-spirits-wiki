@@ -1,8 +1,7 @@
---- 
- title: "Worship in Ancient [[Israel]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Worship in Ancient [[Israel]]" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **Intro:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2022-01-27.mp3#t=00:00:00)

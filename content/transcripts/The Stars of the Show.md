@@ -3,7 +3,6 @@
 title: "The Stars of the Show"
 tags: [lordofspirits]
 ---
-
 ## Transcript
 
 **Intro:** [Listen from 00:01](https://media.ancientfaith.com/lordofspirits/los_2021-11-25.mp3#t=00:01)

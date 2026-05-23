@@ -1,8 +1,7 @@
---- 
- title: "The Millennium" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Millennium" 
+tags: [lordofspirits] 
+---
 ## The Millennium
 
 Good evening, giant-killers, dragon-slayers, serpent- and scorpion-stompers. You are listening to the Lord of Spirits podcast. [My co-host, the Very Reverend Almost-Double-Doctor [[Fr. Stephen]] De Young, is with me from Lafayette, Louisiana.](https://media.ancientfaith.com/lordofspirits/los_2024-06-27.mp3#t=01:15) I'm [[Fr. Andrew]] Stephen Damick in Ammaus, Pennsylvania, with considerably fewer academic degrees.

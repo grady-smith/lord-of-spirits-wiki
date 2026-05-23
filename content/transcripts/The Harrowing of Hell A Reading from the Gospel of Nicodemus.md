@@ -1,7 +1,7 @@
---- 
- title: "The [[Harrowing of Hell]]: A Reading from the [[Gospel of Nicodemus]]" 
- tags: [lordofspirits] 
- ---
+---
+title: "The [[Harrowing of Hell]]: A Reading from the [[Gospel of Nicodemus]]" 
+tags: [lordofspirits] 
+---
 This is a special episode of The Lord of Spirits, in which [[Fr. Andrew]] reads the [[Harrowing of Hell]] section from the [[Gospel of Nicodemus]], also known as the Acts of Pilot. [In his introduction, [[Fr. Andrew]] explains that this text is considered New Testament [[apocrypha]]](https://media.ancientfaith.com/lordofspirits/los_2022-04-20.mp3#t=00:00:27) and falls into the ancient Church's category of "books read at home"—not canonical scripture, but edifying and influential within [[Orthodox]] tradition.
 
 ### Full Reading Transcript

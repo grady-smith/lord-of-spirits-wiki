@@ -2,7 +2,6 @@
 title: "The Lord of Spirits - 100th Episode: The Unchanging Faith"
 tags: [lordofspirits]
 ---
-
 ## The Lord of Spirits - 100th Episode: The Unchanging Faith
 
 **[[Fr. Andrew]] Stephen Damick:** [Listen from 01:06](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=01:06)

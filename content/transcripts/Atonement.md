@@ -1,8 +1,7 @@
---- 
- title: "Atonement" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Atonement" 
+tags: [lordofspirits] 
+---
 ## Intro
 
 **Introductory Narration:** [He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled.](https://media.ancientfaith.com/lordofspirits/los_2025-03-27.mp3#t=00:00:54) All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. First [[Enoch]], chapter 48, verses 4 through 5.

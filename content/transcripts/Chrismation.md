@@ -1,8 +1,7 @@
---- 
- title: "Chrismation" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Chrismation" 
+tags: [lordofspirits] 
+---
 He will be a staff for the righteous with which for them to stand and not to fall. And he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]].
 - [[Targums - Enochic Literature#Chrismation|First Enoch, chapter 48, verses 4 through 5]]
 

@@ -1,7 +1,7 @@
---- 
- title: "Monsters Compendium: Madness" 
- tags: [lordofspirits] 
- ---
+---
+title: "Monsters Compendium: Madness" 
+tags: [lordofspirits] 
+---
 # Monsters Compendium: Madness
 
 ## Transcript

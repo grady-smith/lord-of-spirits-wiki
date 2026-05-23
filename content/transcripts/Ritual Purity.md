@@ -2,7 +2,6 @@
 title: "Ritual Purity"
 tags: [lordofspirits]
 ---
-
 # [[Ritual Purity]]
 
 ## Introduction

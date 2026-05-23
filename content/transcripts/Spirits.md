@@ -1,7 +1,7 @@
---- 
- title: "Spirits" 
- tags: [lordofspirits] 
- ---
+---
+title: "Spirits" 
+tags: [lordofspirits] 
+---
 # Spirits
 
 ## Transcript

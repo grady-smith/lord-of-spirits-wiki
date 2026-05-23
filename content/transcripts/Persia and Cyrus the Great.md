@@ -1,7 +1,7 @@
---- 
- title: "Persia and Cyrus the Great" 
- tags: [lordofspirits] 
- ---
+---
+title: "Persia and Cyrus the Great" 
+tags: [lordofspirits] 
+---
 ## 125th Episode of the Lord of Spirits Podcast
 
 **[[Fr. Andrew]]:** He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits. [[1 Enoch]], chapter 48, verses 4 through 5. The modern world doesn't acknowledge but is nevertheless haunted by spirits, angels, demons, and saints. In our time, many yearn to break free of the prison of a flat, secular materialism, to see and to know reality as it truly is. What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by [[God]] and experienced by mankind throughout history. Welcome to the Lord of Spirits. Hey, greetings, giant-killers and dragon-slayers. You are listening to the 125th episode of the Lord of Spirits podcast.

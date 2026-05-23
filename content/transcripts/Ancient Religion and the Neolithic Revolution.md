@@ -1,7 +1,7 @@
---- 
- title: "Ancient Religion and the Neolithic Revolution" 
- tags: [lordofspirits] 
- ---
+---
+title: "Ancient Religion and the Neolithic Revolution" 
+tags: [lordofspirits] 
+---
 # ANCIENT RELIGION AND THE NEOLITHIC REVOLUTION
 
 ## Introduction

@@ -1,7 +1,7 @@
---- 
- title: "Ancient Human Burials" 
- tags: [lordofspirits] 
- ---
+---
+title: "Ancient Human Burials" 
+tags: [lordofspirits] 
+---
 # Ancient Human Burials
 
 ## Introduction

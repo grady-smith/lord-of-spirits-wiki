@@ -1,8 +1,7 @@
---- 
- title: A Speakpipe Palooza
- tags: [lordofspirits] 
- ---
-
+---
+title: A Speakpipe Palooza
+tags: [lordofspirits] 
+---
 ## A Speakpipe Palooza
 
 **[[Fr. Andrew Stephen Damick]]:** [Greetings, giant-killers, dragon-slayers. You are listening to the Lord of Spirits podcast.](https://media.ancientfaith.com/audio/podcasts/a_speakpipe_palooza.mp3#t=01:05) My co-host, [[Fr. Stephen De Young]], is with me from Lafayette, Louisiana, and I am [[Fr. Andrew Stephen Damick]] in Emmaus, Pennsylvania. And we're not live. We're not live. So there's no way you're listening to this live.

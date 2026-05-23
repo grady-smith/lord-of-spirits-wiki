@@ -1,8 +1,7 @@
---- 
- title: "The [[Resurrection]] Appearances of [[Christ]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The [[Resurrection]] Appearances of [[Christ]]" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **Voice of Steve:** [00:00:00](https://media.ancientfaith.com/lordofspirits/los_2022-05-12.mp3#t=00:00:00) He will be a staff for the righteous with which for them to stand and not to fall. And he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. 1 [[Enoch]] chapter 48, verses 4 through 5.

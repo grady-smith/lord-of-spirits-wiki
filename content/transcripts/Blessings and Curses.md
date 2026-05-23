@@ -1,8 +1,7 @@
---- 
- title: "Blessings and Curses" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Blessings and Curses" 
+tags: [lordofspirits] 
+---
 # Blessings and Curses
 
 ## Introduction

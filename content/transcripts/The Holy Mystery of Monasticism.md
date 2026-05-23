@@ -1,8 +1,7 @@
---- 
- title: "The Holy Mystery of [[Monasticism]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Holy Mystery of [[Monasticism]]" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **[[Fr. Andrew]] Stephen Damick:** [Listen from 00:00:17](https://media.ancientfaith.com/lordofspirits/los_2022-02-10.mp3#t=00:00:17)

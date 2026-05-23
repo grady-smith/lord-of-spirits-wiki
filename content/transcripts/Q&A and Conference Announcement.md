@@ -1,8 +1,7 @@
---- 
- title: "Q&A and Conference Announcement" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Q&A and Conference Announcement" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2020-11-26.mp3#t=00:00:00)

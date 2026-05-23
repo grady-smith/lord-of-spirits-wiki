@@ -1,8 +1,7 @@
---- 
- title: "The Seat of the [[Apostles]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Seat of the [[Apostles]]" 
+tags: [lordofspirits] 
+---
 # The Seat of the [[Apostles]]
 
 ## Introduction

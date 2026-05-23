@@ -2,7 +2,6 @@
 title: "Lord of Spirits Conference 2022 Q&A"
 tags: [lordofspirits]
 ---
-
 ## Transcript
 
 **Narrator:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-04-23.mp3#t=00:00:00)

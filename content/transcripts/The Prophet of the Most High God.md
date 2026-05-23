@@ -1,8 +1,7 @@
---- 
- title: "The Prophet of the [[Most High God]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Prophet of the [[Most High God]]" 
+tags: [lordofspirits] 
+---
 # The Prophet of the [[Most High God]]
 
 ## Introduction & Opening Prayer

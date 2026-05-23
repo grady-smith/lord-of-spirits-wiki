@@ -1,7 +1,7 @@
---- 
- title: Origins of Sacrifice (Part 1) 
- tags: [lordofspirits] 
- ---
+---
+title: Origins of Sacrifice (Part 1) 
+tags: [lordofspirits] 
+---
 # Origins of [[Sacrifice]] (Part 1)
 
 ## Introduction

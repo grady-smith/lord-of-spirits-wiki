@@ -1,8 +1,7 @@
---- 
- title: "The Dwelling Place of [[God]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Dwelling Place of [[God]]" 
+tags: [lordofspirits] 
+---
 ## Introduction
 
 **Voiceover:** [Listen from 00:02](https://media.ancientfaith.com/lordofspirits/los_2021-06-24.mp3#t=00:02)

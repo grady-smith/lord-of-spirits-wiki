@@ -1,8 +1,7 @@
---- 
- title: Leviathan, Behemoth, and What's for Dinner 
- tags: [lordofspirits] 
- ---
-
+---
+title: Leviathan, Behemoth, and What's for Dinner 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **[[Fr. Andrew Stephen Damick]]:** [Listen from 01:09](https://media.ancientfaith.com/lordofspirits/los_2021-10-14.mp3#t=01:09) Welcome back to the [[Lord of Spirits]] podcast. I am Father Andrew Stephen Damick in Emmaus, Pennsylvania, and my co-host, Father Stephen De Young, is with me from Lafayette, Louisiana.

@@ -1,8 +1,7 @@
---- 
- title: "Priesthood is Fatherhood" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Priesthood is Fatherhood" 
+tags: [lordofspirits] 
+---
 ## Episode Summary
 
 [[Fr. Andrew Stephen Damick]] and [[Fr. Stephen De Young]] explore the biblical origins and nature of the priesthood, beginning with Adam as the archetypal priest-king in the Garden of Eden. They trace how this integrated role was fractured after the Fall, separated into distinct offices of king and priest with [[Moses]] and Aaron, and further corrupted over time, culminating in the Hasmonean and Sadducean abuses. The episode demonstrates that [[Christ]], as the new Adam, perfectly reunites these roles, establishing a new priesthood in His Church, structured in concentric circles of holiness from the bishop to the laity, whose collective priestly task is to offer the world to [[God]] and [[God]] to the world.

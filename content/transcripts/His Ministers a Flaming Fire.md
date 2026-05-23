@@ -1,8 +1,7 @@
---- 
- title: "His Ministers a Flaming Fire" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "His Ministers a Flaming Fire" 
+tags: [lordofspirits] 
+---
 ## His Ministers a Flaming Fire
 
 ### Introduction

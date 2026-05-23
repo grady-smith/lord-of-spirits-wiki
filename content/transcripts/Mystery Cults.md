@@ -1,8 +1,7 @@
---- 
- title: "Mystery Cults" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Mystery Cults" 
+tags: [lordofspirits] 
+---
 # [[Mystery Cults]]
 
 > He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]].

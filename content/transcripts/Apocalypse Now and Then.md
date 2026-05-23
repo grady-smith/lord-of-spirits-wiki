@@ -1,8 +1,7 @@
---- 
- title: "Apocalypse Now and Then" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Apocalypse Now and Then" 
+tags: [lordofspirits] 
+---
 ## He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. - [1 Enoch 48:4-5](https://media.ancientfaith.com/lordofspirits/los_2021-07-22.mp3#t=00:00:00)
 
 **[[Fr. Andrew Stephen Damick]]:** Welcome back to the [[Lord of Spirits]] podcast. My co-host, [[Fr. Stephen De Young]], is with me from Lafayette, Louisiana, and I am [[Fr. Andrew Stephen Damick]] in Emmaus, Pennsylvania. If you're listening to us live, you can call in at 855-AF-RADIO; that's 855-237-2346, and Matushka Trudi will be taking your calls tonight, and we'll get to your calls in the second part of today's show.

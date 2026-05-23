@@ -1,8 +1,7 @@
---- 
- title: "Halloween 2021: Demons and the Unseen Realm" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Halloween 2021: Demons and the Unseen Realm" 
+tags: [lordofspirits] 
+---
 # [[Halloween]] 2021: [[Demons]] and the Unseen Realm
 
 ## Introduction

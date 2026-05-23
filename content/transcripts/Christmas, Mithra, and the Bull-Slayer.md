@@ -1,8 +1,7 @@
---- 
- title: "Christmas, Mithra, and the Bull-Slayer" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Christmas, Mithra, and the Bull-Slayer" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **Intro:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2021-01-28.mp3#t=00:00:00)

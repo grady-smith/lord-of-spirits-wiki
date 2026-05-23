@@ -1,8 +1,7 @@
---- 
- title: "Great Lent" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Great Lent" 
+tags: [lordofspirits] 
+---
 ## Intro
 
 **Intro Voice:** [Listen from 00:00:01](https://media.ancientfaith.com/lordofspirits/los_2023-01-26.mp3#t=00:00:01)

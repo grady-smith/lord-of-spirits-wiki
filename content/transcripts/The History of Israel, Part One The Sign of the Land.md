@@ -1,8 +1,7 @@
---- 
- title: "The History of Israel, Part One: The Sign of the Land" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The History of Israel, Part One: The Sign of the Land" 
+tags: [lordofspirits] 
+---
 ## Episode Summary
 
 This episode begins a multi-part series on the history of Israel. [[Fr. Stephen]] De Young and [[Fr. Andrew]] Stephen Damick lay the groundwork by examining the promises made to [[Abraham]], which form the central theme of the entire biblical narrative. They detail the three tiers of these promises: numerous descendants, possession of the land, and ultimately, [[theosis]] (becoming like the stars of heaven). The fathers explain how these promises function as a "sequence of signs," where the fulfillment of a short-term promise validates the long-term one.

@@ -1,7 +1,7 @@
---- 
- title: "The Passion Narratives" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Passion Narratives" 
+tags: [lordofspirits] 
+---
 # The Passion Narratives
 
 ## Introduction

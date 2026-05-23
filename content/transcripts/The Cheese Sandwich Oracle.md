@@ -1,7 +1,7 @@
---- 
- title: "The Cheese Sandwich Oracle" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Cheese Sandwich Oracle" 
+tags: [lordofspirits] 
+---
 # The Cheese Sandwich Oracle
 
 ## Intro

@@ -1,8 +1,7 @@
---- 
- title: "The Mystery of [[Unction]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Mystery of [[Unction]]" 
+tags: [lordofspirits] 
+---
 # The Mystery of [[Unction]]
 
 ## Introduction

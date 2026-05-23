@@ -1,8 +1,7 @@
---- 
- title: "The [[Ur]] of [[Abraham]]" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The [[Ur]] of [[Abraham]]" 
+tags: [lordofspirits] 
+---
 # The [[Ur]] of [[Abraham]]
 
 ## An Overview of the Episode

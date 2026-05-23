@@ -1,7 +1,7 @@
---- 
- title: "A Journey into the Underworld" 
- tags: [lordofspirits] 
- ---
+---
+title: "A Journey into the Underworld" 
+tags: [lordofspirits] 
+---
 # A Journey into the [[Underworld]]
 
 ## Introcution

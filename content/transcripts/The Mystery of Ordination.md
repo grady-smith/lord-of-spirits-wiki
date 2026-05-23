@@ -1,7 +1,7 @@
---- 
- title: "The Mystery of [[Ordination]]" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Mystery of [[Ordination]]" 
+tags: [lordofspirits] 
+---
 # The Mystery of [[Ordination]]
 
 ## Transcript

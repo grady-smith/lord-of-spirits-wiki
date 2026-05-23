@@ -1,7 +1,7 @@
---- 
- title: "Technology and Technocracy" 
- tags: [lordofspirits] 
- ---
+---
+title: "Technology and Technocracy" 
+tags: [lordofspirits] 
+---
 # Technology and Technocracy
 
 ## Introduction

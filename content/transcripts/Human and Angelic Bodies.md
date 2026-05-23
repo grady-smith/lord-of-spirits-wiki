@@ -1,8 +1,7 @@
---- 
- title: "Human and Angelic Bodies" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Human and Angelic Bodies" 
+tags: [lordofspirits] 
+---
 # Human and Angelic Bodies
 
 ## Intro

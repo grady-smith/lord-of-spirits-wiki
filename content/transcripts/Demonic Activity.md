@@ -1,7 +1,7 @@
---- 
- title: "Demonic Activity" 
- tags: [lordofspirits] 
- ---
+---
+title: "Demonic Activity" 
+tags: [lordofspirits] 
+---
 # Demonic Activity
 
 ## Introduction and Episode Summary

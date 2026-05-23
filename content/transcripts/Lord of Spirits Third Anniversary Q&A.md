@@ -1,8 +1,7 @@
---- 
+---
 title: "Lord of Spirits Third Anniversary Q&A"
 tags: [lordofspirits] 
 ---
-
 ## Episode Summary
 
 In this third anniversary special, [[Fr. Andrew]] and [[Fr. Stephen]] host a live call-in show, answering a wide range of questions from listeners. Topics include King David's choice of Solomon as his heir, the significance and canonical status of the books of Maccabees, the nature of prayer as a sacrament, the tradition of Adam's skull at Golgotha, the meaning of the Byzantine calendar, and the practicalities of keeping time holy in family life.

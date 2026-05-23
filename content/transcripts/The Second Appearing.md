@@ -1,8 +1,7 @@
---- 
- title: "The Second Appearing" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Second Appearing" 
+tags: [lordofspirits] 
+---
 ## Intro
 
 **Voiceover:** [Listen from 00:00](https://media.ancientfaith.com/lordofspirits/los_2023-08-10.mp3#t=00:00)

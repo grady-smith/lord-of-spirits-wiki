@@ -1,8 +1,7 @@
---- 
- title: "Open Line Q&A (2022 Kickoff)" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Open Line Q&A (2022 Kickoff)" 
+tags: [lordofspirits] 
+---
 ## Episode Summary
 
 This is the first episode of 2022, a live call-in show where [[Fr. Andrew]] and [[Fr. Stephen]] answer a wide range of listener questions. Topics include the spiritual significance of St. Christopher's iconography, the relationship between [[Leviathan]] and the Roman Empire in the Book of [[Revelation]], the interchangeable use of *agape* and *phileo* in St. [[John]]'s Gospel, the nature of demonic hierarchy, whether marriage continues in the age to come, the modern crisis of truth, the identity of the "spirits in prison" in [[1 Peter]] 3, and the power of prayer for the departed.

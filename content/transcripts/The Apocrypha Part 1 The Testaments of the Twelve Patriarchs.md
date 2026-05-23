@@ -1,8 +1,7 @@
---- 
- title: "The Apocrypha Part 1: The Testaments of the Twelve Patriarchs" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The Apocrypha Part 1: The Testaments of the Twelve Patriarchs" 
+tags: [lordofspirits] 
+---
 ## Transcript
 
 **Intro:** [Listen from 00:00:00](https://media.ancientfaith.com/lordofspirits/los_2024-05-09.mp3#t=00:00:00)

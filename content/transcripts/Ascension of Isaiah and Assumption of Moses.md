@@ -1,7 +1,7 @@
 ---
- title: Ascension of Isaiah and Assumption of Moses
- tags: [lordofspirits]
- ---
+title: Ascension of Isaiah and Assumption of Moses
+tags: [lordofspirits]
+---
 # [[Ascension of Isaiah]] and [[Assumption of Moses]]
 
 ## Introduction

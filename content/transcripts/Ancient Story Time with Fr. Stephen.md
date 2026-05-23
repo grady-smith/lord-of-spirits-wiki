@@ -1,7 +1,7 @@
---- 
- title: "Ancient Story Time with Fr. Stephen" 
- tags: [lordofspirits] 
- ---
+---
+title: "Ancient Story Time with Fr. Stephen" 
+tags: [lordofspirits] 
+---
 [Listen from 01:06](https://media.ancientfaith.com/lordofspirits/los_2025-07-24.mp3#t=01:06)
 Hello [[Lord of Spirits]] listeners. This is [[Father Stephen De Young]]. [[Father Andrew]], unfortunately, has decided to give you up, let you down, run around and desert you in order to go to the Archdiocesan convention. And so I thought to myself, "Self," I thought, "What could I possibly do to slake the insatiable thirst of our listeners for content?"
 

@@ -1,7 +1,7 @@
---- 
- title: Q&A - July 2021 
- tags: [lordofspirits] 
- ---
+---
+title: Q&A - July 2021 
+tags: [lordofspirits] 
+---
 # Q&A - July 2021
 
 ## Introduction

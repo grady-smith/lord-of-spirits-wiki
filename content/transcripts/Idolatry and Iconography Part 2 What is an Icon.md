@@ -1,7 +1,7 @@
---- 
- title: "Idolatry and Iconography Part 2: What is an Icon?" 
- tags: [lordofspirits] 
- ---
+---
+title: "Idolatry and Iconography Part 2: What is an Icon?" 
+tags: [lordofspirits] 
+---
 ## Transcribed by an AI, Scrutinized by a Human
 
 He will be a staff for the righteous with which for them to stand and not to fall. And he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the [[Lord of Spirits]]. [First Enoch, chapter 48, verses 4 through 5.](https://media.ancientfaith.com/lordofspirits/los_2021-10-14.mp3#t=00:18)

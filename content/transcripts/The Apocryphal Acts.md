@@ -1,7 +1,7 @@
---- 
- title: "The Apocryphal Acts" 
- tags: [lordofspirits] 
- ---
+---
+title: "The Apocryphal Acts" 
+tags: [lordofspirits] 
+---
 # The Apocryphal [[Acts]]
 
 ## Introduction & Opening Banter

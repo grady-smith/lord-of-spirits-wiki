@@ -1,7 +1,7 @@
---- 
- title: "What Happens When We Die?" 
- tags: [lordofspirits] 
- ---
+---
+title: "What Happens When We Die?" 
+tags: [lordofspirits] 
+---
 [00:00:01] **Voiceover:** He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. [00:00:10] All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of spirits. 1 [[Enoch]], chapter 48, verses four through five.
 
 [00:00:22] The modern world doesn't acknowledge but is nevertheless haunted by spirits: angels, demons, and saints. [00:00:30] In our time, many yearn to break free of the prison of a flat, secular materialism to see and to know reality as it truly is. [00:00:39] What is this spiritual reality like? How do we engage with it well? How do we permeate everyday life with spiritual presence? Orthodox Christian priests, [[Father Andrew]] Stephen Damick and [[Father Stephen]] De Young, host this live call-in show, focused on enchantment in creation, the union of the seen and unseen as made by God and experienced by mankind throughout history. Welcome to the [[Lord of Spirits]].

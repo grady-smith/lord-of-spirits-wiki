@@ -1,7 +1,7 @@
---- 
- title: "Salvation" 
- tags: [lordofspirits] 
- ---
+---
+title: "Salvation" 
+tags: [lordofspirits] 
+---
 # [[Salvation]]
 
 ## Introduction and Episode Summary

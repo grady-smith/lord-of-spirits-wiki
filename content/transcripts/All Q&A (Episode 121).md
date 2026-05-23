@@ -2,7 +2,6 @@
 title: "All Q&A (Episode 121)"
 tags: [lordofspirits]
 ---
-
 # All Q&A (Episode 121)
 
 This is a pre-recorded Q&A episode of The [[Lord of Spirits]] podcast, addressing questions submitted by listeners via Speakpipe. The first half focuses on questions related to authority, obedience, and heresy, which were prompted by previous episodes on apostolic and Mosaic succession. The second half covers a wider range of topics.

@@ -1,7 +1,7 @@
---- 
- title: Latin Theology 
- tags: [lordofspirits] 
- ---
+---
+title: Latin Theology 
+tags: [lordofspirits] 
+---
 # The [[Lord of Spirits]] - Episode 133: Latin Theology
 
 ## Introduction

@@ -1,8 +1,7 @@
---- 
- title: "The First [[Fall]]: Death" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "The First [[Fall]]: Death" 
+tags: [lordofspirits] 
+---
 # The First [[Fall]]: Death
 
 ## Introduction

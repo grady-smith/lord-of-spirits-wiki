@@ -1,7 +1,7 @@
---- 
- title: Time 
- tags: [lordofspirits] 
- ---
+---
+title: Time 
+tags: [lordofspirits] 
+---
 # Time
 
 ## Transcript

@@ -1,8 +1,7 @@
---- 
- title: "Confession" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Confession" 
+tags: [lordofspirits] 
+---
 # [[Confession]]
 
 ## Part 1: What is Forgiveness?

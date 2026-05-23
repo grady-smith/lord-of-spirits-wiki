@@ -1,8 +1,7 @@
---- 
- title: "Thanksgiving Q&A 2022" 
- tags: [lordofspirits] 
- ---
-
+---
+title: "Thanksgiving Q&A 2022" 
+tags: [lordofspirits] 
+---
 ## Intro
 
 **[[Fr. Andrew]] Stephen Dameck:** [00:00](https://media.ancientfaith.com/podcasts/lordofspirits/Lord_of_Spirits_2022-11-24.mp3#t=00:00) He will be a staff for the righteous with which for them to stand and not to fall, and he will be the light of the nations and the hope of those whose hearts are troubled. All who dwell on the earth will fall down and worship him, and they will praise and bless and celebrate with song the Lord of Spirits. [[1 Enoch]], chapter 48, verses 4 through 5.

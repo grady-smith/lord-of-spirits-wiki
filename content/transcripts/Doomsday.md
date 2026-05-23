@@ -1,7 +1,7 @@
---- 
- title: "Doomsday" 
- tags: [lordofspirits] 
- ---
+---
+title: "Doomsday" 
+tags: [lordofspirits] 
+---
 # Doomsday
 
 ## Introduction
