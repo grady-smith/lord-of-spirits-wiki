@@ -38,6 +38,7 @@ export const defaultContentPageLayout: PageLayout = {
         node.displayName = node.name
       },
     }),
+  ],
   right: [
     Component.Graph(),
     Component.DesktopOnly(Component.TableOfContents()),
