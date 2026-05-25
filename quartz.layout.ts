@@ -33,8 +33,11 @@ export const defaultContentPageLayout: PageLayout = {
         { Component: Component.ReaderMode() },
       ],
     }),
-    Component.Explorer(),
-  ],
+    Component.Explorer({
+      mapFn: (node) => {
+        node.displayName = node.name
+      },
+    }),
   right: [
     Component.Graph(),
     Component.DesktopOnly(Component.TableOfContents()),
@@ -57,7 +60,11 @@ export const defaultListPageLayout: PageLayout = {
         { Component: Component.Darkmode() },
       ],
     }),
-    Component.Explorer(),
+    Component.Explorer({
+      mapFn: (node) => {
+        node.displayName = node.name
+      },
+    }),
   ],
   right: [],
 }
