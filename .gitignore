@@ -10,3 +10,7 @@ public/
 .env*
 !.env.example
 .DS_Store
+
+# playwright and tests
+playwright-report/
+test-results/
