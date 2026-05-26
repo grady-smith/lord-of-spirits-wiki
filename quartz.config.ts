@@ -23,32 +23,32 @@ const config: QuartzConfig = {
       fontOrigin: "googleFonts",
       cdnCaching: true,
       typography: {
-        header: "Merriweather",
+        header: "Inter",
         body: "Inter",
         code: "Fira Code",
       },
       colors: {
         lightMode: {
-          light: "#fbf7f5",
-          lightgray: "#e5e5e5",
-          gray: "#b8b8b8",
-          darkgray: "#4e4e4e",
-          dark: "#2b2b2b",
-          secondary: "#5c3a21", // Deep theological brown
-          tertiary: "#8b6a4f",
-          highlight: "rgba(143, 159, 169, 0.15)",
-          textHighlight: "#fff23688",
+          light: "#ffffff",
+          lightgray: "#f3f4f6",
+          gray: "#9ca3af",
+          darkgray: "#374151",
+          dark: "#111827",
+          secondary: "#2563eb", // Vibrant blue accent
+          tertiary: "#60a5fa",
+          highlight: "rgba(37, 99, 235, 0.1)",
+          textHighlight: "rgba(37, 99, 235, 0.2)",
         },
         darkMode: {
-          light: "#161618",
-          lightgray: "#393639",
-          gray: "#646464",
-          darkgray: "#d4d4d4",
-          dark: "#ebebec",
-          secondary: "#c9a071", // Mystical gold
-          tertiary: "#84a59d",
-          highlight: "rgba(143, 159, 169, 0.15)",
-          textHighlight: "#b3aa0288",
+          light: "#0f1115",
+          lightgray: "#1f2937",
+          gray: "#6b7280",
+          darkgray: "#d1d5db",
+          dark: "#f9fafb",
+          secondary: "#3b82f6", // Vibrant blue accent
+          tertiary: "#93c5fd",
+          highlight: "rgba(59, 130, 246, 0.15)",
+          textHighlight: "rgba(59, 130, 246, 0.25)",
         },
       },
     },
@@ -89,7 +89,7 @@ const config: QuartzConfig = {
       Plugin.Favicon(),
       Plugin.NotFoundPage(),
       // Comment out CustomOgImages to speed up build time
-      Plugin.CustomOgImages(),
+      // Plugin.CustomOgImages(),
     ],
   },
 }
