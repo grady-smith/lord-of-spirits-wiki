@@ -18,7 +18,7 @@
     "format": "npx prettier . --write",
     "test": "tsx --test",
     "profile": "0x -D prof ./quartz/bootstrap-cli.mjs build --concurrency=1",
-    "deploy": "npx quartz sync",
+    "deploy": "wrangler deploy",
     "predeploy": "npm run test",
     "preview": "wrangler dev"
   },
@@ -113,6 +113,6 @@
     "prettier": "^3.8.1",
     "tsx": "^4.21.0",
     "typescript": "^5.9.3",
-    "wrangler": "^4.94.0"
+    "wrangler": "^4.95.0"
   }
 }
