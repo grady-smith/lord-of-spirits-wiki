@@ -1,0 +1,6 @@
+name = "lord-of-spirits-wiki"
+compatibility_date = "2024-05-30"
+assets = { directory = "astro_wiki/dist" }
+
+[build]
+command = "cd astro_wiki && npm install && npm run build"
