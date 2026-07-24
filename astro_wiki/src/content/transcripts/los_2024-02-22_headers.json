@@ -1,0 +1,22 @@
+[
+  {
+    "header": "## Exploring the Text",
+    "anchor_text": "<Dialogue speaker=\"SPEAKER_03\" time=\"31:55\">Hmm.</Dialogue>"
+  },
+  {
+    "header": "## Deeper Dive",
+    "anchor_text": "<Dialogue speaker=\"Unknown\" time=\"50:18\"></Dialogue>"
+  },
+  {
+    "header": "## Theological Implications",
+    "anchor_text": "<Dialogue speaker=\"Unknown\" time=\"01:12:47\">Mm-hmm.</Dialogue>"
+  },
+  {
+    "header": "## Further Insights",
+    "anchor_text": "<Dialogue speaker=\"SPEAKER_03\" time=\"01:25:37\">Sure.</Dialogue>"
+  },
+  {
+    "header": "## Historical Context",
+    "anchor_text": "<Dialogue speaker=\"SPEAKER_03\" time=\"01:36:00\">Yeah.</Dialogue>"
+  }
+]

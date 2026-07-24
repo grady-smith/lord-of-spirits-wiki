@@ -1,16 +1,2 @@
-node_modules/
-public/
-.quartz-cache/
 .DS_Store
-
-# wrangler files
-.wrangler
-.dev.vars*
-!.dev.vars.example
-.env*
-!.env.example
-.DS_Store
-
-# playwright and tests
-playwright-report/
-test-results/
+deploy_key*

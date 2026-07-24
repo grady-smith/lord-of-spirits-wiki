@@ -1,0 +1,40 @@
+---
+export const prerender = true;
+import { getCollection, render } from 'astro:content';
+import Layout from '../../layouts/Layout.astro';
+
+export async function getStaticPaths() {
+  const transcripts = await getCollection('transcripts');
+  return transcripts.map(entry => ({
+    params: { slug: entry.id },
+    props: { entry },
+  }));
+}
+
+const { entry } = Astro.props;
+const { Content } = await render(entry);
+---
+<Layout title={`${entry.data.title} | Lord of Spirits`}>
+  
+  <header class="hero" style="padding-block: 4rem 3rem;">
+    <div class="hero__glow"></div>
+    <div class="hero__content container">
+      <div style="margin-bottom: 2rem; text-align: left;">
+        <a href="/" class="section__link">&larr; Back to Home</a>
+      </div>
+      <h1 class="hero__title" style={`view-transition-name: episode-title-${entry.id}; font-size: clamp(2.5rem, 5vw, 4rem); text-align: left;`}>
+        {entry.data.title}
+      </h1>
+      <div class="hero__badge" style="margin-bottom: 0;">
+        <span class="hero__badge-dot"></span>
+        <time>{entry.data.date}</time>
+      </div>
+    </div>
+  </header>
+
+  <main class="container">
+    <div class="transcript-body" style={`view-transition-name: episode-card-${entry.id};`}>
+      <Content />
+    </div>
+  </main>
+</Layout>

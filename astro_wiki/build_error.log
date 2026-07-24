@@ -1,0 +1,8 @@
+13:23:52 [ERROR] [vite] ✗ Build failed in 18.66s
+[@mdx-js/rollup] Unexpected character `<` (U+003C) before name, expected a character that can start a name, such as a letter, `$`, or `_`
+file: /Users/steve/Documents/AG-Projects/LordOfSpirits_Wiki/astro_wiki/src/content/transcripts/los_2021-09-10.mdx:473:74
+  Location:
+    /Users/steve/Documents/AG-Projects/LordOfSpirits_Wiki/astro_wiki/src/content/transcripts/los_2021-09-10.mdx:473:74
+  Stack trace:
+    at Object.handler (file:///Users/steve/Documents/AG-Projects/LordOfSpirits_Wiki/astro_wiki/node_modules/@astrojs/mdx/dist/vite-plugin-mdx.js:57:17)
+    at async ModuleLoader.addModuleSource (file:///Users/steve/Documents/AG-Projects/LordOfSpirits_Wiki/astro_wiki/node_modules/rollup/dist/es/shared/node-entry.js:21906:36)

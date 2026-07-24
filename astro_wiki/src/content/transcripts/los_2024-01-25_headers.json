@@ -1,0 +1,22 @@
+[
+  {
+    "header": "## Exploring the Text",
+    "anchor_text": "<Dialogue speaker=\"SPEAKER_02\" time=\"17:20\">Yeah.</Dialogue>"
+  },
+  {
+    "header": "## Deeper Dive",
+    "anchor_text": "<Dialogue speaker=\"SPEAKER_02\" time=\"37:45\">Yeah.</Dialogue>"
+  },
+  {
+    "header": "## Theological Implications",
+    "anchor_text": "<Dialogue speaker=\"Unknown\" time=\"49:23\">Anyway.</Dialogue>"
+  },
+  {
+    "header": "## Further Insights",
+    "anchor_text": "<Dialogue speaker=\"Unknown\" time=\"01:04:42\">So how much more compassion for a human,</Dialogue>"
+  },
+  {
+    "header": "## Historical Context",
+    "anchor_text": "<Dialogue speaker=\"Unknown\" time=\"01:37:53\">right.</Dialogue>"
+  }
+]

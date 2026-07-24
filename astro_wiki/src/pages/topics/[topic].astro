@@ -1,0 +1,68 @@
+---
+export const prerender = true;
+import { getCollection } from 'astro:content';
+import linksContent from '../../data/unique_links.txt?raw';
+import Layout from '../../layouts/Layout.astro';
+
+export async function getStaticPaths() {
+  
+  // Extract topics like [[Theotokos]]
+  const matches = [...linksContent.matchAll(/\[\[(.*?)\]\]/g)];
+  const rawTopics = Array.from(new Set(matches.map(m => m[1])));
+  
+  const transcripts = await getCollection('transcripts');
+
+  return rawTopics.map(topic => {
+    const permalink = topic.replace(/ /g, '-').toLowerCase();
+    
+    // Find all transcripts that contain this topic
+    const relatedTranscripts = transcripts.filter(t => t.body.includes(`[[${topic}]]`));
+    
+    return {
+      params: { topic: permalink },
+      props: { 
+        topicName: topic,
+        transcripts: relatedTranscripts
+      },
+    };
+  });
+}
+
+const { topicName, transcripts } = Astro.props;
+---
+
+<Layout title={`Topic: ${topicName}`}>
+  <main class="container section">
+    <div style="margin-bottom: 2rem;">
+      <a href="/" class="section__link">&larr; Back to Home</a>
+    </div>
+    
+    <header class="hero" style="padding-block: 2rem; text-align: left;">
+      <div class="hero__badge" style="margin-bottom: 1rem;">
+        <span class="hero__badge-dot"></span>
+        KNOWLEDGE GRAPH HUB
+      </div>
+      <h1 class="hero__title" style="font-size: clamp(2.5rem, 6vw, 4.5rem); margin-bottom: 0.5rem;">
+        {topicName}
+      </h1>
+      <p class="hero__subtitle" style="margin: 0;">Found in {transcripts.length} {transcripts.length === 1 ? 'episode' : 'episodes'}.</p>
+    </header>
+
+    <div class="episodes-grid" style="margin-top: 3rem;">
+      {transcripts.map(t => (
+        <a href={`/transcripts/${t.id}`} class="episode-card" style={`view-transition-name: episode-card-${t.id};`}>
+          <div class="episode-card__meta">
+            <span class="episode-card__dot"></span>
+            <span class="episode-card__date">{t.data.date}</span>
+          </div>
+          <h2 class="episode-card__title" style={`view-transition-name: episode-title-${t.id};`}>{t.data.title}</h2>
+          <div class="episode-card__icon">
+            <svg width="24" height="24" fill="none" viewBox="0 0 24 24" stroke="currentColor">
+              <path stroke-linecap="round" stroke-linejoin="round" stroke-width="2" d="M17 8l4 4m0 0l-4 4m4-4H3" />
+            </svg>
+          </div>
+        </a>
+      ))}
+    </div>
+  </main>
+</Layout>

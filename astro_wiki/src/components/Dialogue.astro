@@ -1,0 +1,32 @@
+---
+interface Props {
+  speaker: string;
+  time: string;
+}
+
+const { speaker, time } = Astro.props;
+const cleanSpeaker = speaker.replace(/\[\[|\]\]/g, '');
+---
+
+<div class="dialogue group">
+  <div class="dialogue__aside">
+    <div class="dialogue__avatar">
+      <span class="dialogue__avatar-text">{cleanSpeaker.charAt(0).toUpperCase()}</span>
+    </div>
+  </div>
+  
+  <div class="dialogue__main">
+    <div class="dialogue__header">
+      <h3 class="dialogue__speaker-name">
+        <a href={`/topics/${cleanSpeaker.replace(/ /g, '-').toLowerCase()}`}>{cleanSpeaker}</a>
+      </h3>
+      <time class="dialogue__time" datetime={time}>
+        {time}
+      </time>
+    </div>
+    
+    <div class="dialogue__content">
+      <slot />
+    </div>
+  </div>
+</div>

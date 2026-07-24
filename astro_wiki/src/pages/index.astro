@@ -1,0 +1,78 @@
+---
+export const prerender = true;
+import { getCollection } from 'astro:content';
+import linksContent from '../data/unique_links.txt?raw';
+import Layout from '../layouts/Layout.astro';
+
+const transcripts = await getCollection('transcripts');
+// Sort by date (assuming YYYY-MM-DD format in title/date)
+const sortedTranscripts = transcripts.sort((a, b) => b.data.date.localeCompare(a.data.date));
+const latestEpisodes = sortedTranscripts.slice(0, 6);
+
+const matches = [...linksContent.matchAll(/\[\[(.*?)\]\]/g)];
+const rawTopics = Array.from(new Set(matches.map(m => m[1]))).slice(0, 30); // Show top 30 concepts
+---
+
+<Layout title="Lord of Spirits Wiki">
+  
+  <!-- Hero Section -->
+  <header class="hero">
+    <div class="hero__glow"></div>
+    
+    <div class="hero__content container">
+      <div class="hero__badge">
+        <span class="hero__badge-dot"></span>
+        KNOWLEDGE GRAPH V2
+      </div>
+      <h1 class="hero__title">
+        Lord of Spirits
+      </h1>
+      <p class="hero__subtitle">
+        Explore the theology of enchantment, the unseen realm, and Orthodox Christian tradition through our fully interconnected LLM Knowledge Graph.
+      </p>
+    </div>
+  </header>
+
+  <main class="container">
+    
+    <!-- Topics Cloud -->
+    <section class="section">
+      <div class="section__header">
+        <h2 class="section__title">Theological Concepts</h2>
+        <span class="section__link">Explore by Topic &rarr;</span>
+      </div>
+      <div class="topics-cloud">
+        {rawTopics.map(topic => (
+          <a href={`/topics/${topic.replace(/ /g, '-').toLowerCase()}`} class="topic-tag">
+            {topic}
+          </a>
+        ))}
+      </div>
+    </section>
+
+    <!-- Latest Episodes -->
+    <section class="section">
+      <div class="section__header">
+        <h2 class="section__title">Latest Transcripts</h2>
+      </div>
+      <div class="episodes-grid">
+        {latestEpisodes.map(ep => (
+          <a href={`/transcripts/${ep.id}`} class="episode-card" style={`view-transition-name: episode-card-${ep.id};`}>
+            <div class="episode-card__icon">
+              <svg width="24" height="24" fill="none" viewBox="0 0 24 24" stroke="currentColor">
+                <path stroke-linecap="round" stroke-linejoin="round" stroke-width="2" d="M17 8l4 4m0 0l-4 4m4-4H3" />
+              </svg>
+            </div>
+            <div class="episode-card__meta">
+              <span class="episode-card__dot"></span>
+              <span class="episode-card__date">{ep.data.date}</span>
+            </div>
+            <h3 class="episode-card__title" style={`view-transition-name: episode-title-${ep.id};`}>{ep.data.title}</h3>
+            <p class="episode-card__desc">Full interactive transcript with timestamps, speaker diarization, and cross-referenced concepts.</p>
+          </a>
+        ))}
+      </div>
+    </section>
+
+  </main>
+</Layout>
