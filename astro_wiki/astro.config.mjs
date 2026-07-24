@@ -4,8 +4,6 @@ import mdx from '@astrojs/mdx';
 
 import remarkWikiLink from 'remark-wiki-link';
 
-import vercel from '@astrojs/vercel';
-
 export default defineConfig({
   integrations: [
     mdx({
@@ -21,7 +19,5 @@ export default defineConfig({
 
   vite: {
     // plugins: []
-  },
-
-  adapter: vercel()
+  }
 });
